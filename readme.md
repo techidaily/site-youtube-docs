@@ -1,6 +1,6 @@
-# TechiDaily
+# Youtube Docs Site
 
-Welcome to [https://android-transfer.techidaily.com](https://android-transfer.techidaily.com)
+Welcome to [https://youtube-docs.techidaily.com](https://youtube-docs.techidaily.com)
 
 ## Publish
 
