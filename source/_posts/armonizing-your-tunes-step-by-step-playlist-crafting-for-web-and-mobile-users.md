@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Harmonizing Your Tunes  Step-by-Step Playlist Crafting for Web & Mobile Users\""
-date: 2024-06-17T16:22:59.003Z
-updated: 2024-06-18T16:22:59.003Z
+date: 2024-07-02T13:30:24.149Z
+updated: 2024-07-03T13:30:24.149Z
 tags:
   - ai video
   - ai youtube
@@ -30,7 +30,7 @@ Are you one of those who want to listen to their favorite tracks while working o
 
 If you are using a Windows or Mac computer and want to create a YouTube music playlist on a web browser, follow the below steps:
 
-Step1 In the first step, turn on your PC, launch a web browser from the desktop or Dock, and head to the[YouTube](https://www.youtube.com/) website. Next, Sign into your account with your Google email ID if you are not already logged in.
+Step1 In the first step, turn on your PC, launch a web browser from the desktop or Dock, and head to the [YouTube](https://www.youtube.com/) website. Next, Sign into your account with your Google email ID if you are not already logged in.
 
 ![signing into youtube](https://images.wondershare.com/filmora/article-images/2023/03/signing-into-youtube.png)
 

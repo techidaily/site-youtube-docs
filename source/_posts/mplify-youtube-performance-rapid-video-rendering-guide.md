@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Amplify YouTube Performance - Rapid Video Rendering Guide\""
-date: 2024-06-17T16:31:19.634Z
-updated: 2024-06-18T16:31:19.634Z
+date: 2024-07-02T13:30:22.980Z
+updated: 2024-07-03T13:30:22.980Z
 tags:
   - ai video
   - ai youtube
@@ -42,7 +42,7 @@ Don’t let this happen to your videos! Here are 4 ways you can save time and av
 
 ## 1\. Create mini-projects
 
-When you have a[large editing project](https://tools.techidaily.com/wondershare/filmora/download/) with lots of different titles, animations, clip sequences, and PIP tracks it can get hard to keep track of everything. That’s especially true if you need to go back and make changes. A change to one part of your video could affect other parts of it.
+When you have a [large editing project](https://tools.techidaily.com/wondershare/filmora/download/) with lots of different titles, animations, clip sequences, and PIP tracks it can get hard to keep track of everything. That’s especially true if you need to go back and make changes. A change to one part of your video could affect other parts of it.
 
 Also, the more complex your video is the longer it will take to render/export.
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Artisan's Approach  Crafting Unique, Shareable YouTube Shorts\""
-date: 2024-06-17T16:20:15.402Z
-updated: 2024-06-18T16:20:15.402Z
+date: 2024-07-02T13:30:26.573Z
+updated: 2024-07-03T13:30:26.573Z
 tags:
   - ai video
   - ai youtube
@@ -24,7 +24,7 @@ thumbnail: https://thmb.techidaily.com/4a8a85a143c0d3d9775ca5a0e81916a22ae62d07a
 
  Mar 27, 2024• Proven solutions
 
-Since smartphones are cheap and easily available in the market today, and there is also a huge range of contents to view online, a majority of users prefer watching videos that are both short enough to convey the message within a few seconds, and can be seen on your phone’s screen with decent picture quality. Considering this, Google lately came up with a Tik Tok-style app called[YouTube shorts](https://tools.techidaily.com/wondershare/filmora/download/)that can be accessed right from your Android or iPhone as long as you are using the YouTube app, and are signed in to your Google account.
+Since smartphones are cheap and easily available in the market today, and there is also a huge range of contents to view online, a majority of users prefer watching videos that are both short enough to convey the message within a few seconds, and can be seen on your phone’s screen with decent picture quality. Considering this, Google lately came up with a Tik Tok-style app called [YouTube shorts](https://tools.techidaily.com/wondershare/filmora/download/) that can be accessed right from your Android or iPhone as long as you are using the YouTube app, and are signed in to your Google account.
 
 That said, in the following sections you will learn everything about the **YouTube Shorts app**, and how it could help you gain more viewers for your YouTube channel.
 

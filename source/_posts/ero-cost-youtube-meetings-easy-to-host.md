@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Zero Cost Youtube Meetings  Easy to Host\""
-date: 2024-06-17T16:55:29.877Z
-updated: 2024-06-18T16:55:29.877Z
+date: 2024-07-02T13:30:26.055Z
+updated: 2024-07-03T13:30:26.055Z
 tags:
   - ai video
   - ai youtube
@@ -45,7 +45,7 @@ For Win 7 or later (64-bit)
 
 For macOS 10.12 or later
 
-![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg)Secure Download
+![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg) Secure Download
 
 ## Hosting a Webinar for Free
 
