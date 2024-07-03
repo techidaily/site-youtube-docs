@@ -1,0 +1,184 @@
+---
+title: "\"2024 Approved  Craft the Perfect Stream  A Comprehensive Guide to YouTube’s Full-Rotation Videos\""
+date: 2024-06-17T17:17:16.450Z
+updated: 2024-06-18T17:17:16.450Z
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "\"This Article Describes 2024 Approved: Craft the Perfect Stream: A Comprehensive Guide to YouTube’s Full-Rotation Videos\""
+excerpt: "\"This Article Describes 2024 Approved: Craft the Perfect Stream: A Comprehensive Guide to YouTube’s Full-Rotation Videos\""
+keywords: "\"YouTube Full-Rotate Tips,Successful Video Rotation,Crafting YouTube Series,Streaming Video Strategy,Video Rotation Guide,Engaging Full-Rotation Content,Mastering YouTube Videos\""
+thumbnail: https://thmb.techidaily.com/267319de45b47bfed89a5beeea4e8662c6ef68d4fb035ab41968a0873cebbd66.jpg
+---
+
+## Craft the Perfect Stream: A Comprehensive Guide to YouTube’s Full-Rotation Videos
+
+# How to live streaming 360 video to youtube
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+* [Part1.Stream 360 to Youtube via Ricoh Theta S and OBS on PC](#part1)
+* [Part2.Live Stream from Allie 360 Camera to YouTube on Mobile](#part2)
+
+## 1\. Stream 360 to Youtube via Ricoh Theta S and OBS on PC
+
+**Step 1:** First of all you need to get ready with your Ricoh Theta S 360 camera unit.
+
+**Step 2:** Now visit the [official website](https://theta360.com/en/support/download/) of Theta 360 in order to download your dedicated live streaming application.
+
+![official website](https://images.wondershare.com/filmora/article-images/official-website.jpg)
+
+**Step 3:** Get your application and install it on your Mac or PC as per need.
+
+**Step 4:** It is time to plug in to your Ricoh Theta S 360 camera using your PC.
+
+![Richoh Theta](https://images.wondershare.com/filmora/article-images/richoh-theta.jpg)
+
+**Step 5:** Now select your device ‘Ricoh Theta S’ and then hit Okay.
+
+![click OK](https://images.wondershare.com/filmora/article-images/click-ok.jpg)
+
+**Step 6:**  You will find option to register to application with your respective device. Select and hit register.
+
+![Click register](https://images.wondershare.com/filmora/article-images/click-register.jpg)
+
+**Step 7:** As soon as your registration process is complete then un-plug your USB cable.
+
+**Step 8:** It is time to turn the Ricoh Theta device to Live Mode; you simple need to press the top power and lower video button simultaneously to directly switch to the live mode.
+
+![bottom video](https://images.wondershare.com/filmora/article-images/bottom-video.jpg)
+
+**Step 9:** Once your device enters into Live Stream mode then a Led will start blinking on your device that represents your device is live at this moment.
+
+![led](https://images.wondershare.com/filmora/article-images/led.jpg)
+
+**Step 10:** Now you need to plug in the USB cable again with your computer.
+
+**Step 11:** Visit the official site of OBS and download your software; install it on your system.
+
+**Step 12:** Go to create scene option and then switch to create sources.
+
+![Create scene](https://images.wondershare.com/filmora/article-images/create-scene.jpg)
+
+**Step 13:** Select video capture device as your source from drop down menu.
+
+![device as](https://images.wondershare.com/filmora/article-images/device-as.jpg)
+
+**Step 14:** Now from available list select Theta UVC as your active video capture source.
+
+![Theta UVC](https://images.wondershare.com/filmora/article-images/theta-uvc.jpg)
+
+**Step 15:** You need to adjust screen as per your requirements.
+
+![screen](https://images.wondershare.com/filmora/article-images/screen.jpg)
+
+**Step 16:** Now move to YouTube and then hit New Live Events option.
+
+![new live events](https://images.wondershare.com/filmora/article-images/new-live-events.jpg)
+
+**Step 17:** Complete the basic information.
+
+![basic info](https://images.wondershare.com/filmora/article-images/basic-info.jpg)
+
+**Step 18:** You need to move to advanced settings now; select 360 live stream option and then create event.
+
+**Step 19:** Now complete the ingesting settings and finally select create new stream option.
+
+![new stream option](https://images.wondershare.com/filmora/article-images/new-stream-option.jpg)
+
+**Step 20:** As soon as your event is created then you will be able to find your stream name on screen, copy it and simply paste it on OBS window.
+
+![ingesting settings](https://images.wondershare.com/filmora/article-images/ingesting-settings.jpg)
+
+**Step 21:** It is time to return to OBS settings and then you need to paste that copied name on stream key option.
+
+![paste to obs](https://images.wondershare.com/filmora/article-images/paste-to-obs.jpg)
+
+**Step 22:** Once all above settings are complete then click start stream option from your OBS window and you will soon be able to find your 360 live on YouTube.
+
+![stream key](https://images.wondershare.com/filmora/article-images/stream-key.jpg)
+
+![360 live](https://images.wondershare.com/filmora/article-images/360-live.jpg)
+
+## 2.Live Stream from Allie 360 Camera to YouTube on Mobile
+
+**Step 1:** Get ready with your Allie 360 camera unit.
+
+**Step 2:** Visit YouTube and then hit the option to create your live event.
+
+**Step 3:** It is time to download your Allie Application and then get it installed on your device.
+
+* Prefer to use this link if you are working on iOS: <https://itunes.apple.com/app/allie-home/id1063986074>
+* Android users need to visit: <https://play.google.com/store/apps/details?id=com.icrealtime.allie>
+
+**Step 4:** As soon as you have downloaded your app then simply turn on the Bluetooth, Wi-Fi and air plane mode on your device.
+
+![air plane mode](https://images.wondershare.com/filmora/article-images/air-plane-mode.jpg)
+
+**Step 5:** Simply open your Allie application and then connect your camera.
+
+![allie app](https://images.wondershare.com/filmora/article-images/allie-app.jpg)
+
+**Step 6:** Now users need to hit stream icon on screen.
+
+![icon on](https://images.wondershare.com/filmora/article-images/icon-on.jpg)
+
+**Step 7:** You will be asked to fill the necessary information about your video. It is also possible to make adjustments regarding video quality. Once you are done with all required settings then hit Submit option.
+
+![click submit](https://images.wondershare.com/filmora/article-images/click-submit.jpg)
+
+**Step 8:** Soon your video will become live; note that you can also share your live video via SNS platform with other viewers.
+
+![SNS platform](https://images.wondershare.com/filmora/article-images/sns-platform.jpg)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/24-creative-content-concepts-for-vlogs/"><u>In 2024, Creative Content Concepts for Vlogs</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nic-hub-curating-exceptional-dj-visual-downloads/"><u>Harmonic Hub  Curating Exceptional DJ Visual Downloads</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-simple-steps-for-looped-iphone-videos/"><u>2024 Approved  Simple Steps for Looped iPhone Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ow-to-maximize-income-a-simplified-3-step-process-for-youtube-revenue-monitoring/"><u>[New] How To Maximize Income  A Simplified 3-Step Process for YouTube Revenue Monitoring</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-quick-start-to-clear-background-filming/"><u>[Updated] In 2024, Quick Start to Clear Background Filming</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-online-video-arena-showdown-who-wins-vimeo-or-giants-like-youtubeplusdailymotion/"><u>[New] 2024 Approved  Online Video Arena Showdown  Who Wins – Vimeo or Giants Like YouTube+DailyMotion?</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-key-points-to-remember-a-comprehensive-look-at-youtube-tv/"><u>[New] 2024 Approved  Key Points to Remember  A Comprehensive Look at YouTube TV</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ving-affiliate-success-with-online-videos/"><u>Achieving Affiliate Success with Online Videos</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/updated-we-can-say-that-the-horror-movies-of-the-90s-laid-the-foundation-for-current-horror-movies-so-without-wasting-time-lets-create-a-1990s-horror-movie-/"><u>Updated We Can Say that the Horror Movies of the 90S Laid the Foundation for Current Horror Movies. So, without Wasting Time, Lets Create a 1990S Horror Movie Similar to The Blair Witch Project</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-google-frp-lock-on-oppo-a2-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock on Oppo A2 Devices</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-easy-ways-to-manage-your-vivo-x100-location-settings-drfone-by-drfone-virtual/"><u>In 2024, Easy Ways to Manage Your Vivo X100 Location Settings | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-innovative-fb-video-editors-the-best-20-tools-for-effective-ads/"><u>[New] Innovative FB Video Editors  The Best 20 Tools for Effective Ads</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-6-ingenious-sites-brimming-with-customizable-youtube-themes/"><u>[New] 2024 Approved  6 Ingenious Sites Brimming With Customizable YouTube Themes</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/how-to-record-whatsapp-call/"><u>How to Record WhatsApp Call</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-high-definition-video-made-easy-a-beginners-guide-to-pixels-for-2024/"><u>New High-Definition Video Made Easy A Beginners Guide to Pixels for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-presentation-mastery-8-top-screen-record-comparisons/"><u>[New] 2024 Approved  Presentation Mastery 8  Top Screen Record Comparisons</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-earnings-empire-constructing-a-profitable-youtube-channel-for-2024/"><u>[Updated] Earnings Empire  Constructing a Profitable YouTube Channel for 2024</u></a></li>
+</ul></div>
