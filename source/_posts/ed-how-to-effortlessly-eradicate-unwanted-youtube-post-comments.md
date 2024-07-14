@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] How to Effortlessly Eradicate Unwanted Youtube Post-Comments\""
-date: 2024-06-17T16:35:11.554Z
-updated: 2024-06-18T16:35:11.554Z
+date: 2024-07-13T06:23:32.875Z
+updated: 2024-07-14T06:23:32.875Z
 tags:
   - ai video
   - ai youtube
@@ -40,7 +40,7 @@ So how do you delete all YouTube comments? In this how-to blog, we will show you
 
 In this section, we will tell you how you can do it from your desktop.
 
-1. Go to[https://www.youtube.com/](https://www.youtube.com/) from your desktop browser and log in.
+1. Go to [https://www.youtube.com/](https://www.youtube.com/) from your desktop browser and log in.
 2. Once you log in, you need to go to your channel. For this, you can select the My Channel option from the upper-left side of your YouTube home page.
 3. From the list of your videos, select the one you need and scroll down to reach the comment you want to delete.
 4. When you locate the comment, click on the three vertical dots on the right-hand side of the comment. From the drop-down list, click on Remove. The process is complete, and YouTube will remove your comment.
@@ -63,9 +63,9 @@ Have you accidentally posted something on a YouTuber’s channel? Are you anxiou
 
 Fear not. Read on to know how to **delete all comments you posted on someone else’s YouTube channel** from your desktop.
 
-1. Visit[https://www.youtube.com/](https://www.youtube.com/) from your desktop and then sign in YouTube channel.
+1. Visit [https://www.youtube.com/](https://www.youtube.com/) from your desktop and then sign in YouTube channel.
 2. If your YouTube account is not open, tap on Sign in and enter your email and password to log in to your account.
-3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
+3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from [here](https://www.youtube.com/feed/history/comment%5Fhistory).
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
@@ -112,7 +112,7 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
-1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
+1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from [here](https://www.youtube.com/account%5Fadvanced).
 
 ![YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
@@ -151,3 +151,52 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-cutting-edge-youtube-end-card-tactics-and-layouts/"><u>[New] 2024 Approved  Cutting Edge Youtube End Card Tactics & Layouts</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-channel-expansion-through-smart-youtube-link-building-methods/"><u>[New] 2024 Approved  Channel Expansion Through Smart YouTube Link-Building Methods</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-avoid-every-interruption-the-ultimate-guide-to-7-adblocking-tools/"><u>[New] 2024 Approved  Avoid Every Interruption  The Ultimate Guide to 7 AdBlocking Tools</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-unveiling-ipads-full-potential-a-timelapse-journey-begins-here/"><u>[Updated] Unveiling iPad's Full Potential  A Timelapse Journey Begins Here</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unveiling-the-secrets-how-to-efficiently-record-internet-radio/"><u>In 2024, Unveiling the Secrets  How To Efficiently Record Internet Radio</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-how-to-elevate-your-characters-audio-presence-in-free-fire-naturally/"><u>[Updated] How to Elevate Your Character's Audio Presence in Free Fire, Naturally</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-10-power-players-youtubes-ladies-in-gaming/"><u>[New] 2024 Approved  10 Power Players  YouTube's Ladies in Gaming</u></a></li>
+<li><a href="https://network-issues.techidaily.com/harmonious-operation-hybrid-graphics-on-intel-and-nvidia-in-win11/"><u>Harmonious Operation: Hybrid Graphics on Intel & Nvidia in Win11</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-channel-creation-chronicles-the-ultimate-beauty-blogging-start-up/"><u>[New] 2024 Approved  Channel Creation Chronicles  The Ultimate Beauty Blogging Start-Up</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/-to-supercharged-video-engagement-with-youtube-notes-for-2024/"><u>Guide to Supercharged Video Engagement with YouTube Notes for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-bitevideo-innovator/"><u>[New] 2024 Approved  BiteVideo Innovator</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-3-step-formula-how-to-check-youtube-income/"><u>[New] 2024 Approved  [3-Step Formula] How To Check YouTube Income</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/-your-vision-best-cameras-for-video-creators-for-2024/"><u>Craft Your Vision  Best Cameras for Video Creators for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-5-next-level-editors-to-transcend-the-standard-youtube-videos/"><u>[New] 2024 Approved  5 Next-Level Editors to Transcend the Standard Youtube Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/-your-channels-income-understanding-critical-view-thresholds-for-2024/"><u>Boost Your Channel's Income  Understanding Critical View Thresholds for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/-unconventional-tactics-for-subscriber-growth-for-2024/"><u>[New] 3 Unconventional Tactics for Subscriber Growth for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-boost-your-earnings-on-youtube-shorts-a-guide/"><u>[New] 2024 Approved  Boost Your Earnings on YouTube Shorts  A Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-amplify-views-effortlessly-discovering-the-best-20-youtube-techniques/"><u>[New] 2024 Approved  Amplify Views Effortlessly  Discovering the Best 20 YouTube Techniques</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-cultivating-a-brand-identity-youtube-visibility-without-spending/"><u>[New] 2024 Approved  Cultivating a Brand Identity  YouTube Visibility without Spending</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-in-2024-blender-is-a-3d-animation-software-that-can-be-used-to-create-stunning-3d-models-and-videos/"><u>Updated In 2024, Blender Is a 3D Animation Software that Can Be Used to Create Stunning 3D Models and Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/-video-showdown-comparing-success-on-youtubes-vs-tiktok-for-2024/"><u>Short Video Showdown  Comparing Success on YouTubes Vs. TikTok for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/0-volume-surge-controllers-for-windowsmacos-for-2024/"><u>Top 10 Volume Surge Controllers for Windows/MacOS for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-7-free-video-editing-programs-that-work-flawlessly/"><u>[New] 2024 Approved  7 Free Video Editing Programs That Work Flawlessly</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-beyond-the-basics-advanced-techniques-for-improved-recordings/"><u>[New] 2024 Approved  Beyond the Basics  Advanced Techniques for Improved Recordings</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/can-i-bypass-a-forgotten-phone-password-of-xiaomi-civi-3-disney-100th-anniversary-edition-by-drfone-android/"><u>Can I Bypass a Forgotten Phone Password Of Xiaomi Civi 3 Disney 100th Anniversary Edition?</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-poker-playpersonalized-projections/"><u>2024 Approved  POKER PLAYPERSONALIZED PROJECTIONS</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-crafting-content-masterpieces-with-these-essential-youtube-tips/"><u>[New] 2024 Approved  Crafting Content Masterpieces with These Essential YouTube Tips</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/-visionary-videos-from-start-to-finish-using-youtube-studio-editor-for-2024/"><u>Craft Visionary Videos From Start to Finish Using YouTube Studio Editor for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-authenticity-matters-ensuring-your-tiktoks-are-legally-uploaded/"><u>[New] 2024 Approved  Authenticity Matters  Ensuring Your TikToks Are Legally Uploaded</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/-visual-guide-to-subtitling-techniques-for-effective-dialogue-placement/"><u>[New] A Visual Guide to Subtitling  Techniques for Effective Dialogue Placement</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-clearing-up-opaque-video-views-on-youtube/"><u>[New] 2024 Approved  Clearing Up Opaque Video Views on YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-a-deep-dive-into-youtube-mastery-using-sony-vegas-software/"><u>[New] 2024 Approved  A Deep Dive Into YouTube Mastery Using Sony Vegas Software</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-audience-allure-powerful-hashtags-that-transform-youtube-shorts/"><u>[New] 2024 Approved  Audience Allure  Powerful Hashtags That Transform YouTube Shorts</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-can-you-transfer-files-from-infinix-note-30i-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How Can You Transfer Files From Infinix Note 30i To iPhone 15/14/13? | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-smoothly-blend-images-and-movies-a-guide-to-windows-photos-and-storyremix/"><u>[New] Smoothly Blend Images & Movies  A Guide to Windows Photos and StoryRemix</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-keep-your-snaps-secret-stealthy-photo-taking-tricks-for-snapchat/"><u>[New] 2024 Approved  Keep Your Snaps Secret  Stealthy Photo Taking Tricks for Snapchat</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-avoiding-common-pitfalls-in-youtube-sponsorships-according-to-famebit/"><u>[New] 2024 Approved  Avoiding Common Pitfalls in YouTube Sponsorships, According to FameBit</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-8-essential-tools-for-your-youtube-to-avi-needs/"><u>[New] 2024 Approved  8 Essential Tools for Your YouTube-to-AVI Needs</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-where-can-i-find-bird-sounds-mp3-effect/"><u>New Where Can I Find Bird Sounds MP3 Effect?</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-budget-friendly-strategies-to-infuse-text-and-video/"><u>[New] 2024 Approved  Budget-Friendly Strategies to Infuse Text & Video</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-bring-your-gslides-to-life-with-youtube-media/"><u>[New] 2024 Approved  Bring Your GSlides to Life with YouTube Media</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-professional-edge-mastering-bordered-videos-on-insta/"><u>[New] 2024 Approved  Professional Edge  Mastering Bordered Videos on Insta</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/-your-reach-the-quintessential-five-tactics-for-youtube-success/"><u>Boost Your Reach  The Quintessential Five Tactics for YouTube Success</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-2024-approved-alleviate-problem-buffering-tweets-in-chromebook/"><u>[New] 2024 Approved  Alleviate Problem  Buffering Tweets in Chromebook</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-2024-approved-create-professional-looking-videos-on-mac-top-software-picks/"><u>New 2024 Approved Create Professional-Looking Videos on Mac Top Software Picks</u></a></li>
+</ul></div>

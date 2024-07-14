@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Guide to Quick Eradication of Online YouTube Discussions"
-date: 2024-06-17T16:17:02.201Z
-updated: 2024-06-18T16:17:02.201Z
+date: 2024-07-13T06:04:26.812Z
+updated: 2024-07-14T06:04:26.812Z
 tags:
   - ai video
   - ai youtube
@@ -40,7 +40,7 @@ So how do you delete all YouTube comments? In this how-to blog, we will show you
 
 In this section, we will tell you how you can do it from your desktop.
 
-1. Go to[https://www.youtube.com/](https://www.youtube.com/) from your desktop browser and log in.
+1. Go to [https://www.youtube.com/](https://www.youtube.com/) from your desktop browser and log in.
 2. Once you log in, you need to go to your channel. For this, you can select the My Channel option from the upper-left side of your YouTube home page.
 3. From the list of your videos, select the one you need and scroll down to reach the comment you want to delete.
 4. When you locate the comment, click on the three vertical dots on the right-hand side of the comment. From the drop-down list, click on Remove. The process is complete, and YouTube will remove your comment.
@@ -63,9 +63,9 @@ Have you accidentally posted something on a YouTuber’s channel? Are you anxiou
 
 Fear not. Read on to know how to **delete all comments you posted on someone else’s YouTube channel** from your desktop.
 
-1. Visit[https://www.youtube.com/](https://www.youtube.com/) from your desktop and then sign in YouTube channel.
+1. Visit [https://www.youtube.com/](https://www.youtube.com/) from your desktop and then sign in YouTube channel.
 2. If your YouTube account is not open, tap on Sign in and enter your email and password to log in to your account.
-3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
+3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from [here](https://www.youtube.com/feed/history/comment%5Fhistory).
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
@@ -112,7 +112,7 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
-1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
+1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from [here](https://www.youtube.com/account%5Fadvanced).
 
 ![YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
@@ -151,3 +151,60 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-superior-nintendo-switch-brawlers-selection-max-156/"><u>[New] Superior Nintendo Switch Brawlers Selection (Max 156)</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/sh-potential-deciding-between-studio-and-beta-version/"><u>Unleash Potential  Deciding Between Studio and Beta Version</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-exclusive-list-of-premium-online-and-desktop-gif-makers/"><u>[New] 2024 Approved  Exclusive List of Premium Online & Desktop GIF Makers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ominating-the-index-youtube-seo-tools-that-work-for-2024/"><u>[New] Dominating the Index  YouTube SEO Tools That Work for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-unleashing-potential-mastering-advertising-partnerships-with-famebit/"><u>In 2024, Unleashing Potential  Mastering Advertising Partnerships with FameBit</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-instant-thumbnail-transformation-personalized-youtube-shorts-in-a-flash/"><u>[Updated] Instant Thumbnail Transformation  Personalized YouTube Shorts in a Flash</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/egies-for-boosting-your-youtube-shorts-audience-for-2024/"><u>Strategies for Boosting Your YouTube Shorts Audience for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-optimizing-posts-secrets-to-higher-page-rank/"><u>2024 Approved  Optimizing Posts  Secrets to Higher Page Rank</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-cutting-edge-techniques-pushing-boundaries-in-youtube-cinematography/"><u>2024 Approved  Cutting Edge Techniques  Pushing Boundaries in YouTube Cinematography</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-pixelpie-slicer-for-2024/"><u>[Updated] PixelPie Slicer for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-the-art-of-keeping-your-audience-attentive-and-committed-top-6-methods-revealed/"><u>[New] In 2024, The Art of Keeping Your Audience Attentive & Committed  Top 6 Methods Revealed</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-unlocking-youtubes-hidden-view-tracking-method/"><u>[New] In 2024, Unlocking YouTube’s Hidden View Tracking Method</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-decoding-ad-revenue-distribution-in-youtubes-economic-model/"><u>[Updated] Decoding Ad Revenue Distribution in YouTube's Economic Model</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-elite-recording-devices-for-livestream-producers/"><u>[New] 2024 Approved  Elite Recording Devices for Livestream Producers</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-changeadd-location-filters-on-snapchat-for-your-nokia-c22-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Add Location Filters on Snapchat For your Nokia C22 | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-time-travel-for-video-views-youtube-upside-down-guide/"><u>2024 Approved  Time Travel for Video Views  YouTube Upside-Down Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ing-youtube-videos-activating-av1-support-for-2024/"><u>Boosting YouTube Videos  Activating AV1 Support for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-audible-savings-the-essential-guide-to-using-these-24-no-cost-splitters-on-youtube/"><u>[Updated] Audible Savings  The Essential Guide to Using These 24 No-Cost Splitters on YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/izing-audience-engagement-with-youtube-shorts-templates/"><u>Maximizing Audience Engagement with YouTube Shorts Templates</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-essential-tips-for-successful-youtube-broadcasts/"><u>In 2024, Essential Tips for Successful YouTube Broadcasts</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-step-by-step-crafting-youtube-content-in-sony-vegas-for-2024/"><u>[Updated] Step-by-Step  Crafting YouTube Content in Sony Vegas for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-se-to-other-iphone-15-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone SE to other iPhone 15 devices? | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/shing-revenue-with-review-videos-of-household-items/"><u>Unleashing Revenue with Review Videos of Household Items</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-discovering-the-best-music-playback-on-youtube-2023/"><u>2024 Approved  Discovering the Best Music Playback on YouTube, 2023</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/vlogventures-in-cosmetics-how-to-create-your-fashion-forward-channel/"><u>Vlogventures in Cosmetics  How to Create Your Fashion-Forward Channel</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/oosting-your-youtube-shorts-profits-key-requirements-and-earning-potential-for-2024/"><u>[New] Boosting Your Youtube Shorts Profits  Key Requirements & Earning Potential for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-quick-tips-for-easy-youtube-thumbnail-acquisition-zero-price/"><u>2024 Approved  Quick Tips for Easy YouTube Thumbnail Acquisition – Zero Price!</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-achieving-a-noiseless-presence-on-social-video-platforms/"><u>[Updated] 2024 Approved  Achieving a Noiseless Presence on Social Video Platforms</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-film-fans-choice-cutting-edge-youtube-channels/"><u>[Updated] 2024 Approved  Film Fan's Choice  Cutting-Edge YouTube Channels</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-top-10-youtube-to-webm-converter-apps-reviewed-and-ranked/"><u>[New] 2024 Approved  Top 10 YouTube to WebM Converter Apps Reviewed & Ranked</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/outube-master-of-moneymaking-skills-for-2024/"><u>[New] YouTube Master of Moneymaking Skills for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-the-music-law-guide-for-instagram-users/"><u>[New] 2024 Approved  The Music Law Guide for Instagram Users</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-youtube-editing-essentials-a-comprehensive-guide-to-song-inserts/"><u>2024 Approved  YouTube Editing Essentials  A Comprehensive Guide to Song Inserts</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-quick-guide-activatingdeactivating-picture-in-picture-pip-for-youtube/"><u>[New] Quick Guide  Activating/Deactivating Picture In Picture (PIP) for YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-exploring-this-years-most-iconic-music-video-responses/"><u>2024 Approved  Exploring This Year's Most Iconic Music Video Responses</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-finding-balance-the-art-of-choosing-video-dimensions/"><u>[New] Finding Balance  The Art of Choosing Video Dimensions</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/standing-video-length-and-content-strategy-in-youtube-shorts/"><u>Understanding Video Length and Content Strategy in YouTube Shorts</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/teps-to-manage-video-watcher-restrictions-on-youtube/"><u>[New] Steps to Manage Video Watcher Restrictions on Youtube</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-realme-c51-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Realme C51? | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-mastering-playlist-sharing-on-youtube/"><u>2024 Approved  Mastering Playlist Sharing on YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-converting-your-favourite-tracks-bridging-spotify-with-youtube-music/"><u>[Updated] In 2024, Converting Your Favourite Tracks  Bridging Spotify with YouTube Music</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/undamentals-of-high-impact-asmr-filming-and-editing-for-2024/"><u>The Fundamentals of High-Impact ASMR Filming & Editing for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-simplify-lenovo-screen-casting-today-for-2024/"><u>[Updated] Simplify Lenovo Screen Casting Today for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/cing-video-impact-interpreting-youtube-metrics-wisely-for-2024/"><u>Enhancing Video Impact  Interpreting YouTube Metrics Wisely for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-amplify-your-channels-evading-synthetic-watchers/"><u>[Updated] Amplify Your Channels  Evading Synthetic Watchers</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-harnessing-the-power-of-color-difference-keying-methods/"><u>2024 Approved  Harnessing the Power of Color Difference Keying Methods</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-remove-google-frp-lock-on-oppo-k11x-by-drfone-android-unlock-remove-google-frp/"><u>How to remove Google FRP Lock on Oppo K11x</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-proficient-content-tagging-made-simple-the-best-7-budget-friendly-online-taggification-apps-reviewed/"><u>[Updated] Proficient Content Tagging Made Simple  The Best 7 Budget-Friendly Online Taggification Apps Reviewed</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/mobile-animation-magic-top-stop-motion-apps-revealed-for-2024/"><u>Mobile Animation Magic Top Stop Motion Apps Revealed for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/1716069979603-updated-2024-approved-pc-and-macs-best-screenshot-apps-ranked/"><u>[Updated] 2024 Approved  PC and Mac's Best Screenshot Apps Ranked!</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/outube-yield-comparing-channels-for-peak-performance/"><u>The YouTube Yield  Comparing Channels for Peak Performance</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-adopt-the-best-practices-of-live-streaming-with-google-meet-youtube/"><u>[Updated] Adopt the Best Practices of Live Streaming with Google Meet Youtube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-unleash-high-definition-content-with-youtubes-av1-feature/"><u>[Updated] 2024 Approved  Unleash High-Definition Content with YouTube’s AV1 Feature</u></a></li>
+</ul></div>

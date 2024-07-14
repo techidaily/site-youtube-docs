@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Ultimate Guide to Self-Supported YouTube Earnings Strategies\""
-date: 2024-06-17T16:46:38.581Z
-updated: 2024-06-18T16:46:38.581Z
+date: 2024-07-13T06:35:25.901Z
+updated: 2024-07-14T06:35:25.901Z
 tags:
   - ai video
   - ai youtube
@@ -38,7 +38,7 @@ Over thousands of hours of content are uploaded on YouTube every day and people 
 
 ## **What is the YouTube Partner Program (YPP)?**
 
-[YPP enables YouTubers to make money from an advertisement](https://www.filmora.io/community-blog/youtube-monetization---the-ultimate-guide-to-ad-revenue-422.html)that appears before or during their videos.
+[YPP enables YouTubers to make money from an advertisement](https://www.filmora.io/community-blog/youtube-monetization---the-ultimate-guide-to-ad-revenue-422.html) that appears before or during their videos.
 
 ## **How Much Money Can YouTubers Make from Ads?**
 
@@ -88,7 +88,7 @@ Here are some examples of products and services you can offer:
 
  ![YouTuber Jake Paul](https://images.wondershare.com/filmora/article-images/jack-paul1.jpg)
 
-_YouTuber, Jake Paul uses eCommerce platform_ [_Fanjoy_](https://fanjoy.co/collections/)_to sell his merch._
+_YouTuber, Jake Paul uses eCommerce platform_ [_Fanjoy_](https://fanjoy.co/collections/) _to sell his merch._
 
 #### **Services:**
 
@@ -116,7 +116,7 @@ If you are selling a meditation eBook and guided meditation services, type in so
 
 ![meditation](https://images.wondershare.com/filmora/article-images/meditation3.png)
 
-From there, take your possible keywords and put them into a tool such as [Ubersuggest](https://neilpatel.com/ubersuggest/)to find other related keywords. This will help you create discoverable content that will catch the interest of those who will buy what you are selling.
+From there, take your possible keywords and put them into a tool such as [Ubersuggest](https://neilpatel.com/ubersuggest/) to find other related keywords. This will help you create discoverable content that will catch the interest of those who will buy what you are selling.
 
  **2\. Your content must have value:** You cannot start with the Call to Action or try selling to your audience right away. You must first build trust and prove that what you are selling has value.
 
@@ -168,7 +168,7 @@ The average affiliate commission rate is between 5% to 30%, with a lot of variab
 
 ![affiliate links](https://images.wondershare.com/filmora/article-images/affiliat-link8.jpg)
 
-_Travel YouTuber,_ [_Sorelle Amore_](https://www.youtube.com/user/SorelleIAm)_’s affiliate links to her vlogging gears._
+_Travel YouTuber,_ [_Sorelle Amore_](https://www.youtube.com/user/SorelleIAm) _’s affiliate links to her vlogging gears._
 
  Keep in mind that people are most likely going to take recommendations from people they trust. You wouldn’t buy a computer from a nutritionist and you wouldn’t buy vitamins from a gamer, so consider what you are an expert in and what products you have the most authority to speak about.
 
@@ -204,7 +204,7 @@ Here is the list of 4 popular affiliate marketing networks:
 
 \- [PeerFly](https://peerfly.com/)
 
-You can also partner with brands directly as many of them, such as [Sephora](https://www.sephora.com/affiliates)and [Canon](https://shop.usa.canon.com/shop/en/catalog/affiliate-program), will have their own affiliate program.
+You can also partner with brands directly as many of them, such as [Sephora](https://www.sephora.com/affiliates) and [Canon](https://shop.usa.canon.com/shop/en/catalog/affiliate-program), will have their own affiliate program.
 
 ## **3\. Brand Deal or Sponsorships:**
 
@@ -257,7 +257,7 @@ But how can you approach crowdfunding so it doesn’t look like you are begging?
 
 \- **Project-based:**  Is there a special project you have in mind, get support for it. A longer-form video or one that your fans have been wanting for a while, by highlighting this anticipated project, you can get more backing behind it financially.
 
- From Sept-Oct 2011, the YouTube channel Freddiew (aka RocketJump) went on [Kickstarter to crowdfund](https://www.kickstarter.com/projects/freddiew/video-game-high-school)so they can produce a web series called Video Game High School. In 30 days, they were able to surpass their goal of $75,000 with $273,725 and 5,661 backers. The result is a multiple season web series, the first one published onto YouTube in May 2012.
+ From Sept-Oct 2011, the YouTube channel Freddiew (aka RocketJump) went on [Kickstarter to crowdfund](https://www.kickstarter.com/projects/freddiew/video-game-high-school) so they can produce a web series called Video Game High School. In 30 days, they were able to surpass their goal of $75,000 with $273,725 and 5,661 backers. The result is a multiple season web series, the first one published onto YouTube in May 2012.
 
  Without crowdfunding, the project would unlikely have been produced and published for viewers in such a short amount of time.
 
@@ -275,7 +275,7 @@ If you have a pie in the sky goal, you aren’t going to fully leverage the mess
 
 #### **How Does Patreon Work for YouTubers?**
 
-When it comes to crowdfunding for YouTubers, [Patreon](https://www.patreon.com/)is the platform of choice. While other platforms such as Kickstarter or GoFundMe are focused on entrepreneurial pursuits, large projects, or charitable causes, Patreon is designed to support creatives and reward and incentivize donors.
+When it comes to crowdfunding for YouTubers, [Patreon](https://www.patreon.com/) is the platform of choice. While other platforms such as Kickstarter or GoFundMe are focused on entrepreneurial pursuits, large projects, or charitable causes, Patreon is designed to support creatives and reward and incentivize donors.
 
 ## **Key Takeaways:**
 
@@ -313,3 +313,48 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-identifying-your-ideal-video-sharing-app-tiktok-or-youtubes-shorts/"><u>[New] 2024 Approved  Identifying Your Ideal Video Sharing App  TikTok or YouTubes' Shorts?</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-transform-spaces-and-elevate-brands-the-ultimate-apps-list-for-youtube-artistry/"><u>[Updated] In 2024, Transform Spaces & Elevate Brands  The Ultimate Apps List for YouTube Artistry</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-youtube-earning-masterclass-taking-your-streaming-business-to-new-heights/"><u>[Updated] In 2024, YouTube Earning Masterclass  Taking Your Streaming Business to New Heights</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-platform-pick-go-live-with-obs-or-twitch-studio-for-2024/"><u>[Updated] Platform Pick  Go Live with OBS or Twitch Studio for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/why-fake-likes-will-ruin-your-instagram-account-for-2024/"><u>Why Fake Likes Will Ruin Your Instagram Account for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/isual-description-programmer/"><u>[New] Visual Description Programmer</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/-figure-views-prime-hashtag-strategies-for-success/"><u>[New] 6-Figure Views  Prime Hashtag Strategies for Success</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-strategic-approaches-to-subtitle-embedding-on-facebook-reddit/"><u>In 2024, Strategic Approaches to Subtitle Embedding on Facebook, Reddit</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-vivo-y200withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Vivo Y200with/without a PC</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/-mic-selection-for-online-vloggers-for-2024/"><u>Ideal Mic Selection for Online Vloggers for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-step-by-step-guide-to-creating-popular-youtube-openings/"><u>[Updated] In 2024, Step-by-Step Guide to Creating Popular YouTube Openings</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-procedure-for-removing-stashed-videos-from-watch-later-for-2024/"><u>[Updated] Procedure for Removing Stashed Videos From Watch Later for 2024</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-in-2024-getting-acquainted-with-google-play-musics-integrated-podcast-listening-capabilities/"><u>New In 2024, Getting Acquainted with Google Play Musics Integrated Podcast Listening Capabilities</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-mastering-the-art-of-audio-capture-sans-microphone/"><u>[New] 2024 Approved  Mastering the Art of Audio Capture Sans Microphone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-unique-stories-crafting-powerful-yt-narratives/"><u>[New] 2024 Approved  Unique Stories  Crafting Powerful YT Narratives</u></a></li>
+<li><a href="https://windows11.techidaily.com/guiding-pathway-merging-emulated-game-titles-with-playnite-software/"><u>Guiding Pathway: Merging Emulated Game Titles with Playnite Software</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-maximizing-youtube-exposure-with-ongoing-creative-commons-compliance/"><u>[New] 2024 Approved  Maximizing YouTube Exposure with Ongoing Creative Commons Compliance</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-generate-interest-making-your-own-youtube-intros/"><u>[Updated] Generate Interest  Making Your Own YouTube Intros</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/levating-audio-rates-on-youtube-dual-device-approach-for-2024/"><u>[New] Elevating Audio Rates on YouTube  Dual Device Approach for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-youtube-subscriber-boost-the-4-simplest-tricks-to-grow-your-channel-faster/"><u>[Updated] In 2024, YouTube Subscriber Boost – The 4 Simplest Tricks to Grow Your Channel Faster</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-viral-video-vanguard-top-ten-in-one-hour-one-day-on-yt-for-2024/"><u>[Updated] Viral Video Vanguard  Top Ten in One Hour, One Day on YT for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-syncing-your-youtube-watchlist-with-instagram-feed/"><u>[Updated] Syncing Your YouTube Watchlist with Instagram Feed</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ffortless-engagement-how-to-craft-a-direct-subscribe-link/"><u>[New] Effortless Engagement  How to Craft a Direct Subscribe Link</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/he-dynamic-duo-of-filmmaking-and-thumbnail-design/"><u>[New] The Dynamic Duo of Filmmaking and Thumbnail Design</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-transform-your-food-blog-into-an-engaging-mukbang-show-for-2024/"><u>[Updated] Transform Your Food Blog Into an Engaging Mukbang Show for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-mp4-file-capture-comparative-study-and-reviews/"><u>[Updated] 2024 Approved  MP4 File Capture  Comparative Study & Reviews</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-efficient-fortnite-imagery-design-quickly/"><u>In 2024, Efficient Fortnite Imagery Design Quickly</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-enchanting-viewers-the-art-of-crafting-engaging-youtube-description-templates/"><u>In 2024, Enchanting Viewers  The Art of Crafting Engaging YouTube Description Templates</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-from-clicks-to-cash-the-systematic-triple-pathway-for-youtube-revenue-tracking/"><u>In 2024, From Clicks to Cash  The Systematic Triple Pathway for YouTube Revenue Tracking</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-decoding-the-secret-of-highest-quality-youtube-mp3s/"><u>[New] 2024 Approved  Decoding the Secret of Highest Quality YouTube MP3s</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-your-life-your-legacy-youtube-videos-that-matter/"><u>[Updated] Your Life, Your Legacy  YouTube Videos That Matter.</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/0-stellar-tools-that-amplify-your-videos-youtube-presence-for-2024/"><u>[New] 10 Stellar Tools That Amplify Your Video's YouTube Presence for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-elevate-your-youtube-presence-with-simple-seo-techniques/"><u>[Updated] In 2024, Elevate Your YouTube Presence with Simple SEO Techniques</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-how-to-add-featured-channels-on-youtube-a-complete-guide/"><u>In 2024, How to Add Featured Channels on YouTube  A Complete Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-turning-your-youtube-views-into-a-screen-capture-made-simple-and-free/"><u>[Updated] In 2024, Turning Your YouTube Views Into a Screen Capture Made Simple and Free</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-a-filmmakers-approach-to-youtube-splitscreen-videos/"><u>[New] In 2024, A Filmmaker's Approach to YouTube Splitscreen Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-integrating-wirecast-into-your-youtube-livestream-strategy-for-2024/"><u>[Updated] Integrating WireCast Into Your YouTube Livestream Strategy for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/unveiling-secrets-to-extending-reach-with-youtube-lists/"><u>Unveiling Secrets to Extending Reach with YouTube Lists</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-craftsmanship-in-marvellous-marvel-creation/"><u>[New] 2024 Approved  Craftsmanship in Marvellous Marvel Creation</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-massive-subscriber-jump-for-a-sensible-5-investment/"><u>[Updated] In 2024, Massive Subscriber Jump for a Sensible $5 Investment</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-new-multiple-ways-how-to-remove-icloud-activation-lock-from-your-iphone-12-pro-by-drfone-ios/"><u>In 2024, New Multiple Ways How To Remove iCloud Activation Lock From your iPhone 12 Pro</u></a></li>
+</ul></div>
