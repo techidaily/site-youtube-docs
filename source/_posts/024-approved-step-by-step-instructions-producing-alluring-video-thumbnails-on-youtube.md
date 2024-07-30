@@ -1,0 +1,159 @@
+---
+title: "\"[New] 2024 Approved  Step-by-Step Instructions  Producing Alluring Video Thumbnails on YouTube\""
+date: 2024-07-29T16:34:14.931Z
+updated: 2024-07-30T16:34:14.931Z
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "\"This Article Describes [New] 2024 Approved: Step-by-Step Instructions: Producing Alluring Video Thumbnails on YouTube\""
+excerpt: "\"This Article Describes [New] 2024 Approved: Step-by-Step Instructions: Producing Alluring Video Thumbnails on YouTube\""
+keywords: "YouTube Thumbnail Tips,Attractive Video Thumbnails,Crafting Engaging Thumbnails,Enhancing YouTubes Image,Thumbnail Design for Videos,Creating Popular Thumbnails,Improve YouTube Thumbnails"
+thumbnail: https://thmb.techidaily.com/14598feaeb4d0e61d08a761998cd6976c067dba5c944d538d367654e5b9adad2.jpg
+---
+
+## Step-by-Step Instructions: Producing Alluring Video Thumbnails on YouTube
+
+# How to Make Video Thumbnails for YouTube
+
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+The **video thumbnails** you use for YouTube are vital to getting views and subscribers. There are a lot of things that go into making people watch your videos, but your video thumbnail might be the most important factor.
+
+Here are 5 easy tips for creating thumbnails that get views.
+
+1. **[Have a Consistent Layout](#one)**
+2. **[Use Your Face](#two)**
+3. **[Use Graphics/Emojis That is On Topic](#three)**
+4. **[Make Your Text Huge](#four)**
+5. **[Keep It Clutter-Free!](#five)**
+
+ _Contest now closed._
+
+## Edit Your Videos Before Creating Video Thumbnails
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<!-- affiliate ads end -->
+## 1\. Have a Consistent Layout
+
+Your thumbnails all must look like part of the same set. You want viewers to recognize your videos like yours, and they are more likely to do that if you build up a standard layout that they can start associating with you.
+
+An example of a standard layout could be you in the middle of the screen wearing an expression that matches the theme of your video, with your title written underneath your face. Every individual thumbnail would still be different, but you and the text would always be in the same spot.
+
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
+
+## **2\. Use Your Face**
+
+People feel automatically connected and drawn into images that make eye contact. This makes thumbnails which feature faces more click-able than thumbnails which don’t, in most genres (i.e. if you make food videos then this may not apply – featuring the food might be more important than featuring your face). [Check out more tips like this here](https://tools.techidaily.com/wondershare/filmora/download/).
+
+Also, if somebody recognizes you in your thumbnail from a previous video of yours, that will go a long way towards making them click.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<!-- affiliate ads end -->
+## 3\. Use Graphics/Emojis that are On Topic
+
+Anybody can take a screenshot of themselves in their video and use it as a thumbnail. To make your thumbnails look polished, consider using small images (like emojis or hearts) to stand out. This will add color and personality to your thumbnail.
+
+Make sure the images you choose are relevant to the topic of your video.
+
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## 4\. Make Your Text Huge
+
+If you use text in your thumbnail (you don’t have to) then it should be to add context. For example, if the main image is just you smiling then you might need some text to let viewers know the video is a makeup tutorial.
+
+Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
+
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## 5\. Keep it Clutter-Free
+
+It’s great to add text and emojis to your thumbnails, but you do need to be careful not to add too much. You never want your thumbnails to look cluttered. Viewers should be able to glance at your thumbnails and know exactly what kind of video to expect – that’s difficult to do if there’s too much to process.
+
+A good rule for text is to use only 1-3 words. That way they won’t clutter your screen, and you can make them large enough to read on small-screened devices.
+
+ [For even more tips on making great YouTube thumbnails, click here](https://tools.techidaily.com/wondershare/filmora/download/).
+
+Use these tips to make video thumbnails for YouTube, and tell us what kind of results you get!
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-intriguing-stories-flourishing-channels-top-3-techniques/"><u>[New] 2024 Approved  Intriguing Stories, Flourishing Channels  Top 3 Techniques</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/raft-your-study-of-the-past-with-these-top-10-channels/"><u>[New] Craft Your Study of the Past with These Top 10 Channels</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-how-to-snip-and-save-from-youtube-the-ultimate-guide/"><u>[New] In 2024, How to Snip and Save From YouTube  The Ultimate Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-youtubers-ultimate-guide-10-keys-to-unique-short-form-videos/"><u>[New] In 2024, Youtubers' Ultimate Guide  10 Keys to Unique Short-Form Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/vercoming-the-invisible-screen-hurdle-youtube-fixes/"><u>[New] Overcoming the Invisible Screen Hurdle  YouTube Fixes</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ro-streaming-setup-leading-livestream-hardware-and-software-for-2024/"><u>[New] Pro Streaming Setup  Leading Livestream Hardware and Software for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ocial-signals-and-their-role-in-youtube-popularity-for-2024/"><u>[New] Social Signals and Their Role in YouTube Popularity for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/tep-into-fantasy-youtubes-top-10-vr-gems-for-2024/"><u>[New] Step Into Fantasy  Youtube's Top 10 VR Gems for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-streaming-fb-content-on-apple-tv-a-step-by-step-guide-for-2024/"><u>[New] Streaming FB Content on Apple TV  A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ltimate-guide-to-best-youtube-banner-size-and-channel-art-dimension-for-2024/"><u>[New] Ultimate Guide to Best YouTube Banner Size and Channel Art Dimension for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-brief-beatcasts-role-of-the-melody/"><u>[Updated] 2024 Approved  Brief Beatcasts  Role of the Melody</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-essential-guide-recording-video-calls-on-pctablet/"><u>[Updated] 2024 Approved  Essential Guide  Recording Video Calls on PC/Tablet</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-expressive-youtube-aesthetics-at-no-cost/"><u>[Updated] 2024 Approved  Expressive YouTube Aesthetics at No Cost</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-eye-candy-extravaganza-highest-watched-videos-in-a-day-for-2024/"><u>[Updated] Eye Candy Extravaganza  Highest Watched Videos in a Day for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-privacy-purposed-selecting-best-insta-watchers/"><u>[Updated] In 2024, Privacy-Purposed  Selecting Best Insta Watchers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-precision-in-yt-imagery-mastering-size-and-ratio/"><u>[Updated] Precision in YT Imagery  Mastering Size & Ratio</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-split-screen-audio-logging-for-2024/"><u>[Updated] Split Screen Audio Logging for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-youtube-taping-permissibility-concerns-for-2024/"><u>[Updated] YouTube Taping  Permissibility Concerns for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-acquire-high-quality-sounds-for-media-creators/"><u>2024 Approved  Acquire High-Quality Sounds for Media Creators!</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-affordable-methods-for-video-and-text-synergy/"><u>2024 Approved  Affordable Methods for Video and Text Synergy</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-revitalize-reps-with-the-top-backdrop-tracks-for-training/"><u>2024 Approved  Revitalize Reps with the Top Backdrop Tracks for Training</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-school-based-videography-crafting-quality-content/"><u>2024 Approved  School-Based Videography  Crafting Quality Content</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-transform-your-revenue-with-youtube-shorts-tips/"><u>2024 Approved  Transform Your Revenue with YouTube Shorts Tips</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ding-with-expertise-mastering-the-art-and-science-of-asmr-production/"><u>Ascending with Expertise  Mastering The Art & Science of ASMR Production</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/d-the-sequence-celebrating-youtubes-top-cosmetics-artists-for-2024/"><u>Behind the Sequence  Celebrating YouTube's Top Cosmetics Artists for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/el-identity-design-icons-and-thumbnails-essentials/"><u>Channel Identity Design  Icons & Thumbnails Essentials</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/error-code-0x80242016-stopping-windows-updates/"><u>Error Code 0X80242016 Stopping Windows Updates</u></a></li>
+<li><a href="https://facebook.techidaily.com/frugal-yet-effective-top-5-costless-methods-for-social-media-scheduling/"><u>Frugal Yet Effective: Top 5 Costless Methods for Social Media Scheduling</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ize-visual-impact-on-youtube-adding-watermarks-and-logo-to-media-content-for-2024/"><u>Maximize Visual Impact on YouTube  Adding Watermarks & Logo to Media Content for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/have-talker-alteration-tech-for-content-makers/"><u>Must-Have Talker Alteration Tech for Content Makers</u></a></li>
+<li><a href="https://facebook.techidaily.com/swiftly-updating-personal-graphics-on-facebook-platform/"><u>Swiftly Updating Personal Graphics on Facebook Platform</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-5-car-locator-apps-for-vivo-v30-lite-5g-drfone-by-drfone-virtual-android/"><u>Top 5 Car Locator Apps for Vivo V30 Lite 5G | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-iphone-6-plus-and-android-phones-by-drfone-ios/"><u>Top IMEI Unlokers for iPhone 6 Plus and Android Phones</u></a></li>
+<li><a href="https://some-skills.techidaily.com/ultimate-tutorial-editing-photos-by-cutting-out-the-surround-for-2024/"><u>Ultimate Tutorial  Editing Photos by Cutting Out the Surround for 2024</u></a></li>
+</ul></div>

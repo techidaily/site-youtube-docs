@@ -1,0 +1,184 @@
+---
+title: "\"[New] 2024 Approved  Strategic Use of YouTube Cards & Markup\""
+date: 2024-07-29T16:39:43.575Z
+updated: 2024-07-30T16:39:43.575Z
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "\"This Article Describes [New] 2024 Approved: Strategic Use of YouTube Cards & Markup\""
+excerpt: "\"This Article Describes [New] 2024 Approved: Strategic Use of YouTube Cards & Markup\""
+keywords: "YouTube Card SEO,Markup Strategy,Video Engagement,Content Optimization,Social Media Ads,Video Promotion Tech,CTA in Videos"
+thumbnail: https://thmb.techidaily.com/0ee75a1caf32369cd8820b736a236dfed0354f2e5d90ffefd2a92d695eb153e0.jpg
+---
+
+## Strategic Use of YouTube Cards & Markup
+
+# How to Use YouTube Cards and Annotations?
+
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+YouTube Annotations and Cards are both tools for linking viewers to your other videos or to off-YouTube webpages. Two of the major differences between them are:
+
+Annotations are not clickable on mobile devices.
+
+You cannot choose the size or positioning of Cards.
+
+This article will teach you about both Cards and Annotations and discuss the best uses for each of them.
+
+**Part 1: Annotations**
+
+Annotations are messages that float overtop of your videos in the YouTube player. Usually, annotations are clickable and take users to other content created by you.
+
+**Section 1: Types of Annotations**
+
+There are five types of YouTube annotations:
+
+**Notes** are colored boxes placed over the top of your videos.
+
+**Speech Bubbles** look like dialogue boxes in a comic strip. They have tails that you can adjust so it looks like one of the people in your video is saying what is written in the annotation.
+
+**Spotlights** have a subtle border and are completely clear inside. Your text only appears when a viewer’s cursor hovers over top of these annotations.
+
+**Labels** are like spotlights except that viewers do not have to hover over them for your text to be visible.
+
+Any of these annotations can be used to link viewers to other videos, or as subscribe links. You can also add a simple **Title** to your video through the Annotations menu.
+
+**Section 2: How to Use Annotations**
+
+\*Note: the above video mentions Pause annotations, which are no longer available.
+
+Here are two of the best uses for annotations:
+
+**Clickable End Cards / Outros**
+
+One of the best ways you can use spotlight annotations is to create clickable end cards for your videos.
+
+When your video finishes playing the YouTube player will display a selection of suggested videos that might direct viewers away from your channel. You can keep more of these viewers watching your content by creating your own ‘suggested videos’ card and putting it at the end of your videos.
+
+Put thumbnails of two or three of your other videos on your end card, or use ‘picture-in-picture’ to actually imbed footage from them. Then, after you upload your video, go in and place clickable spotlight annotations over top of your video thumbnails.
+
+This is one use for annotations that cannot be duplicated with cards.
+
+**Promoting Your Videos**
+
+You should not wait until the end of your video to start linking viewers to other content. Many viewers will click away before they see your end card because your video is not exactly what they were looking for. By placing note or speech bubble annotations occasionally throughout your videos you can catch some of these people before they click off of your channel.
+
+This works especially well if you link to videos on similar subjects to the one you are annotating.
+
+Instead of just linking to another video of yours, try to link to that video on a playlist. Once a viewer is on a playlist your videos will auto-play after each other, which is good for both your view count and watch time.
+
+You can also use the newer YouTube Cards for this, but Annotations might still be a better choice because viewers only need to click once vs. twice for Cards.
+
+Try both and see which performs best for your channel. It might be in your best interest to keep on using both as they target different audiences – Cards are clickable on mobile devices, for example, but Annotations are not.
+
+#### **Part 2: YouTube Cards**
+
+YouTube Cards are newer than annotations and a lot of people believe they will one day replace Annotations. While there are benefits to Cards – like embedding images to represent your links – you cannot choose the shape, size, or placement of them. This means they have limited uses.
+
+When viewers click on a Card they are shown additional information and a thumbnail representing the page they will be taken to if they choose to click again. This extra step could be either help viewers decide to click your links or give them a second chance to decide they would rather not.
+
+**Section 1: When to Use Cards**
+
+A linked Annotation is simply a call to action viewers can click on. A Card is a call to action as well, but instead of taking the viewer directly to where its link leads when it is clicked a Card opens up into a larger version of itself with a thumbnail image.
+
+Crowdfunding pages (Patreon is a great choice for video creators), charity fundraising pages, and merchandise stores are all examples of links that benefit from the format of YouTube Cards.
+
+When you link a viewer to a non-YouTube page you break up their session time, which negatively impacts your watch time and SEO ranking. You want to make sure that the viewers you are directing away from YouTube are the ones most likely to convert after they leave. By ‘convert’ we mean to contribute to your Patreon campaign, donate to the charity you are promoting, or buy some of your merchandise.
+
+Giving viewers more information and a thumbnail through a Card can help ensure the most interested viewers are the ones clicking your links.
+
+If you want to find a video editing solution that empowers your imagination and creativity yet takes less effort, please try this robust and user-friendly video editing software Filmora, which is equipped with its own footage stock **_[Wondershare Filmstock](https://www.filmstocks.com/?fs%5Fchannel=ws)_** and will definitely enhance your productivity and helps you to make money by making videos much easier.
+
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+</a>
+<!-- affiliate ads end -->
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-mastering-youtube-short-troubleshooting/"><u>[New] 2024 Approved  Mastering YouTube Short Troubleshooting</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-miniature-melodic-maps-actors-in-audio-landscape/"><u>[New] 2024 Approved  Miniature Melodic Maps  Actors in Audio Landscape</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-undisclosed-snapshotting-mastering-invisible-image-capture-on-snapchat/"><u>[New] 2024 Approved  Undisclosed Snapshotting  Mastering Invisible Image Capture on Snapchat</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-unlocking-your-creative-potential-style-and-niche/"><u>[New] 2024 Approved  Unlocking Your Creative Potential  Style & Niche</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-youtubers-toolkit-essential-setup-guidelines/"><u>[New] 2024 Approved  Youtubers' Toolkit  Essential Setup Guidelines</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/uilding-a-brand-through-youtube-a-strategic-guide-for-2024/"><u>[New] Building a Brand Through YouTube  A Strategic Guide for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/levate-your-content-selecting-top-thumbnail-fonts/"><u>[New] Elevate Your Content  Selecting Top Thumbnail Fonts</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-expert-guide-to-eliminating-red-eye-on-your-iphone-shots-for-free/"><u>[New] Expert Guide to Eliminating Red Eye on Your iPhone Shots for Free</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/arness-the-full-potential-of-your-youtube-content-using-wmm/"><u>[New] Harness the Full Potential of Your YouTube Content Using WMM</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/gtv-vs-youtube-unveiling-key-distinctions-and-best-platform-for-sharing-for-2024/"><u>[New] IGTV Vs. YouTube  Unveiling Key Distinctions & Best Platform for Sharing for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-deleting-youtube-comments/"><u>[New] In 2024, Deleting YouTube Comments</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-liberate-content-consumption-with-these-leading-free-and-on-demand-tools/"><u>[New] In 2024, Liberate Content Consumption with These Leading Free & On-Demand Tools</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-varied-ideas-for-daily-vlogging-talks/"><u>[New] In 2024, Varied Ideas for Daily Vlogging Talks</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-wealthy-web-showrunners/"><u>[New] In 2024, Wealthy Web Showrunners</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/etworking-with-influencers-partnerships-for-viral-video-potential/"><u>[New] Networking with Influencers  Partnerships for Viral Video Potential</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/napshot-verbalizer/"><u>[New] Snapshot Verbalizer</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/taying-legal-in-the-digital-space-youtubes-copyright-guide/"><u>[New] Staying Legal in the Digital Space  YouTube's Copyright Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-revenue-rationale-calculating-your-average-earning-from-adsense-per-k-views/"><u>[Updated] 2024 Approved  Revenue Rationale  Calculating Your Average Earning From AdSense per K Views</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-are-there-legal-restrictions-to-recording-youtube-videos-for-2024/"><u>[Updated] Are There Legal Restrictions to Recording YouTube Videos for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-bright-futures-in-film-revolutionary-setup-tips/"><u>[Updated] Bright Futures in Film  Revolutionary Setup Tips</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-climbing-to-youtube-zenith-a-step-by-step-guide-to-creative-studio-mastery/"><u>[Updated] Climbing to YouTube Zenith  A Step-by-Step Guide to Creative Studio Mastery</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-creating-heartfelt-youtube-journeys-for-2024/"><u>[Updated] Creating Heartfelt YouTube Journeys for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-dslrs-rivalry-with-mirrorless-for-video-artistry/"><u>[Updated] DSLR's Rivalry with Mirrorless for Video Artistry</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-beyond-indexation-understanding-youtubes-unlisted-mechanism/"><u>[Updated] In 2024, Beyond Indexation  Understanding YouTube's Unlisted Mechanism</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-delving-into-t-series-revenue-generation-on-video-platforms/"><u>[Updated] In 2024, Delving Into T-Series' Revenue Generation on Video Platforms</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-eye-opening-list-of-the-top-12-yt-gamers-intros-freepaid-sessions/"><u>[Updated] In 2024, Eye-Opening List of the Top 12 YT Gamers' Intros (Free/Paid Sessions)</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unmatched-mobileweb-image-magnification-toolkit/"><u>[Updated] Unmatched Mobile/Web Image Magnification Toolkit</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-youtube-creator-studio-vs-youtube-studio-beta-for-2024/"><u>[Updated] YouTube Creator Studio Vs. YouTube Studio (Beta) for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-x-sonic-recorder-desktop-format/"><u>2024 Approved  X-Sonic Recorder  Desktop Format</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ve-profitability-on-youtube-embracing-any-device-approach-for-2024/"><u>Achieve Profitability on Youtube  Embracing Any Device Approach for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/generate-humor-picmagic-creation/"><u>Generate Humor  PicMagic Creation</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-data-from-iphone-11-pro-to-other-iphone-11-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 11 Pro To Other iPhone 11 devices? | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-boost-your-capacity-20-premier-gratis-cloud-storage-options/"><u>In 2024, Boost Your Capacity  20 Premier Gratis Cloud Storage Options</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-crafting-memorable-experiences-with-vr-escapades/"><u>In 2024, Crafting Memorable Experiences with VR Escapades</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-ispoofer-is-not-working-on-vivo-v29-pro-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, iSpoofer is not working On Vivo V29 Pro? Fixed | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-monitoring-your-instagram-exit-strategy/"><u>In 2024, Monitoring Your Instagram Exit Strategy</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-navigating-famebit-pathways-to-secure-youtube-partnerships/"><u>In 2024, Navigating FameBit Pathways to Secure YouTube Partnerships</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-navigating-online-content-the-merits-of-youtubes-ad-free-alternative/"><u>In 2024, Navigating Online Content  The Merits of YouTube's Ad-Free Alternative</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-the-art-of-changing-meeting-screens-on-microsoft-teams/"><u>In 2024, The Art of Changing Meeting Screens on Microsoft Teams</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-top-tech-gear-choosing-cameras-for-youtube-success/"><u>In 2024, Top Tech Gear  Choosing Cameras for YouTube Success</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-youtube-editing-competitors-ranked-top-5-non-youtube-sites-list/"><u>In 2024, YouTube Editing Competitors Ranked  Top 5 Non-YouTube Sites List</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/-fixes-for-green-screen-glitches-on-mac-video-editing-platform-for-2024/"><u>Quick Fixes for Green Screen Glitches on Mac Video Editing Platform for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/omplete-wm-maker-playbook-for-youtube-clips-perfection-for-2024/"><u>The Complete WM Maker Playbook for YouTube Clips Perfection for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ing-through-thoughts-transforming-video-into-cash/"><u>Thriving Through Thoughts  Transforming Video Into Cash</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-call-logs-from-realme-c67-4g-by-fonelab-android-recover-call-logs/"><u>Undelete lost call logs from Realme C67 4G</u></a></li>
+</ul></div>
