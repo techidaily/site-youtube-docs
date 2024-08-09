@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Instant Guide  Photos to Powerful YouTube Channel Thumbnails in a Flash\""
-date: 2024-07-13T07:33:35.160Z
-updated: 2024-07-14T07:33:35.160Z
+date: 2024-08-08T16:44:42.870Z
+updated: 2024-08-09T16:44:42.870Z
 tags:
   - ai video
   - ai youtube
@@ -20,6 +20,9 @@ There is a saying that first impressions last, and this is proven true, especial
 
 This technique not only attract viewers to watch your video, but it also gives a glimpse of your content. In this article, we will provide you with a quick tutorial on how to resize a YouTube thumbnail and suggest handy tools you can use to create the perfect YouTube video thumbnail!
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![youtube thumbnail resize](https://images.wondershare.com/filmora/article-images/resize-youtube-thumbnail.jpg)
 
 ## Best YouTube Thumbnail Size
@@ -30,6 +33,9 @@ According to YouTube's help center, there are some things to remember when creat
 * When it comes to the thumbnail dimension, make sure to use an aspect ratio of 16:9.
 * Also, your YouTube thumbnail image should not exceed 2MB and is in either JPG, GIF or PNG format.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How To Resize Your YouTube Thumbnail
 
 The primary reason for changing the YouTube thumbnail size is to gain more audience. If you are a content creator, your main goal is to introduce your content to a wider range of viewers, right? So you have to pay attention to even the smallest detail, such as YouTube thumbnails to increase viewership and top YouTube SEO.
@@ -48,6 +54,9 @@ Now, let us start the tutorial.
 
 Step1 Open an image you want to set as a thumbnail. Then, **Right-click> Resize.**
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![select image for youtube thumbnail resize](https://images.wondershare.com/filmora/article-images/photo-for-youtube-thumbnail-resize.JPG)
 
 Step2 Select "Define custom dimensions."
@@ -62,6 +71,9 @@ Step4 Click the upload thumbnail button on YouTube and **import** your resized i
 
 ![upload resized thumbnail in youtube](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-resize-finished.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
 ### Method 2\. Online YouTube Thumbnail Size Converter
 
 The second method you can use is the online YouTube thumbnail size converter. As it completely works in browsers, you do not need to worry about any app installation to access the feature. Furthermore, using online YouTube thumbnail size converters ensures you maintain your image resolution and prevents it from getting blurry or pixelated.
@@ -104,6 +116,9 @@ Step2 In the snapshot window, **choose** to **save** the snapshot as a PNG or JP
 
 Step3 Select the output storage location and **click OK**.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ![filmora save snapshot](https://images.wondershare.com/filmora/article-images/filmora-save-snapshot.jpg)
 
 **2\. Resize the YouTube Thumbnail**
@@ -114,12 +129,21 @@ Step1 Import the image into the app timeline.
 
 Step2 Drag and drop the image into the timeline and **click** the green "**Export**" button. In the popup Export window, select **GIF**. Next, click "**Settings**" to adjust the resolution.
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![adjust filmora export settings](https://images.wondershare.com/filmora/article-images/filmora-adjust-gif-settings.jpg)
 
 Step3 As the recommended size of a YouTube Thumbnail is 1280 \* 720 pixels, you can set the resolution to 1280 \* 720\. Then click **Apply** and **Export** the GIF. You can now upload the GIF thumbnail to your YouTube account.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ![filmora adjust resolution](https://images.wondershare.com/filmora/article-images/filmora-adjust-resolution.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Method 4\. Convert Images to YouTube Thumbnail Using Third-Party Software
 
 In addition to using dedicated video editing software, several third-party image editing programs can be used to resize images for use as YouTube thumbnails. Programs like [GIMP](https://www.gimp.org/) are popular for this purpose, as it offers a wide range of tools and features for editing and resizing images.
@@ -130,6 +154,9 @@ To resize an image using an image editing program like GIMP, follow these steps:
 
 Step1 Install and **launch** GIMP on your computer.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ![gimp install](https://images.wondershare.com/filmora/article-images/gimp-install.JPG)
 
 Step2 Click on "**File**" > "**Open**," then search for the file you want to resize.
@@ -142,10 +169,16 @@ Step3 Click on "**Image**" > "**Scale Image**" and make sure that the resolution
 
 Step4 Click on "**File**" > "**Export As**" and **toggle** the "**Select File Type (By Extension)**" option. **Choose** JPG/JPEG format because it can compress the thumbnail enough to stay within the limit of 2 megabytes.
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![gimp export format](https://images.wondershare.com/filmora/article-images/gimp-export-format.JPG)
 
 Step5 You can change the quality of the image and **click** the "**Export**" button to save the thumbnail.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![gimp export thumbnail](https://images.wondershare.com/filmora/article-images/gimp-export-thumbnail.JPG)
 
 ## Comparison of These 4 YouTube Thumbnail Resizing Methods
@@ -174,6 +207,9 @@ However, using a third-party image editing program may require a learning curve 
 
 Each of the four methods for resizing YouTube thumbnails has its pros and cons, and the best method will depend on the user's specific needs and preferences.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Conclusion
 
 This article explored four methods for resizing YouTube thumbnails: using the Windows default app, online converters, Wondershare Filmora, and image editing programs like GIMP. Each method has advantages and disadvantages; the best one depends on your specific needs and preferences. No matter your chosen method, you can resize YouTube thumbnails confidently with these tools and techniques.
@@ -198,16 +234,28 @@ Step3 Select the output storage location and **click OK**.
 
 Step1 Import the image into the app timeline.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<!-- affiliate ads end -->
 ![filmora import snapshot](https://images.wondershare.com/filmora/guide/get-started-with-filmora-02.png)
 
 Step2 Drag and drop the image into the timeline and **click** the green "**Export**" button. In the popup Export window, select **GIF**. Next, click "**Settings**" to adjust the resolution.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<!-- affiliate ads end -->
 ![adjust filmora export settings](https://images.wondershare.com/filmora/article-images/filmora-adjust-gif-settings.jpg)
 
 Step3 As the recommended size of a YouTube Thumbnail is 1280 \* 720 pixels, you can set the resolution to 1280 \* 720\. Then click **Apply** and **Export** the GIF. You can now upload the GIF thumbnail to your YouTube account.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![filmora adjust resolution](https://images.wondershare.com/filmora/article-images/filmora-adjust-resolution.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Method 4\. Convert Images to YouTube Thumbnail Using Third-Party Software
 
 In addition to using dedicated video editing software, several third-party image editing programs can be used to resize images for use as YouTube thumbnails. Programs like [GIMP](https://www.gimp.org/) are popular for this purpose, as it offers a wide range of tools and features for editing and resizing images.
@@ -222,6 +270,9 @@ Step1 Install and **launch** GIMP on your computer.
 
 Step2 Click on "**File**" > "**Open**," then search for the file you want to resize.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<!-- affiliate ads end -->
 ![gimp open thumbnail](https://images.wondershare.com/filmora/article-images/gimp-open-thumbnail.JPG)
 
 Step3 Click on "**Image**" > "**Scale Image**" and make sure that the resolution is 1920 by 1080.
@@ -262,6 +313,9 @@ However, using a third-party image editing program may require a learning curve 
 
 Each of the four methods for resizing YouTube thumbnails has its pros and cons, and the best method will depend on the user's specific needs and preferences.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Conclusion
 
 This article explored four methods for resizing YouTube thumbnails: using the Windows default app, online converters, Wondershare Filmora, and image editing programs like GIMP. Each method has advantages and disadvantages; the best one depends on your specific needs and preferences. No matter your chosen method, you can resize YouTube thumbnails confidently with these tools and techniques.
@@ -288,3 +342,44 @@ This article explored four methods for resizing YouTube thumbnails: using the Wi
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-best-practices-8-steps-for-digital-sound-preservation/"><u>[New] 2024 Approved  Best Practices  8 Steps for Digital Sound Preservation</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-discreetly-navigate-through-instagrams-stories-archive/"><u>[New] 2024 Approved  Discreetly Navigate Through Instagram's Stories Archive</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-online-video-arena-showdown-who-wins-vimeo-or-giants-like-youtubeplusdailymotion/"><u>[New] 2024 Approved  Online Video Arena Showdown  Who Wins – Vimeo or Giants Like YouTube+DailyMotion?</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-broadcast-battle-analyzing-obs-vs-twitchs-pros-for-2024/"><u>[New] Broadcast Battle  Analyzing OBS Vs. Twitch's Pros for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/rom-ordinary-to-outstanding-crafting-unique-shorts-thumbnails/"><u>[New] From Ordinary to Outstanding  Crafting Unique Shorts Thumbnails</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-explore-our-collection-50plus-unique-free-youtube-banner-ads/"><u>[New] In 2024, Explore Our Collection  50+ Unique, Free YouTube Banner Ads</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-the-ultimate-xbox-one-shutterbug-techniques/"><u>[New] In 2024, The Ultimate Xbox One Shutterbug Techniques</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-youtubes-earnings-strategy-explored/"><u>[New] In 2024, YouTube's Earnings Strategy Explored</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nstant-methods-for-jumbled-youtube-queue-management-for-2024/"><u>[New] Instant Methods for Jumbled YouTube Queue Management for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/astering-youtube-the-ultimate-guide-to-earning-for-2024/"><u>[New] Mastering YouTube  The Ultimate Guide to Earning for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/avigating-the-world-of-mp4-edits-on-apple-devices/"><u>[New] Navigating the World of MP4 Edits on Apple Devices</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-conquer-youtube-searches-with-these-top-11-seo-strategies/"><u>[Updated] 2024 Approved  Conquer YouTube Searches with These Top 11 SEO Strategies</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-enhance-your-presence-best-free-tools-for-intriguing-openings/"><u>[Updated] 2024 Approved  Enhance Your Presence  Best Free Tools for Intriguing Openings</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-into-the-unknown-how-to-start-and-flourish-as-a-travel-videographer/"><u>[Updated] 2024 Approved  Into the Unknown  How To Start & Flourish As a Travel Videographer</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-spark-interest-10-innovative-highlight-ideas-to-try-now/"><u>[Updated] 2024 Approved  Spark Interest  10 Innovative Highlight Ideas to Try Now</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-unveiling-video-sharing-secrets-examining-igtv-and-youtube-in-depth/"><u>[Updated] 2024 Approved  Unveiling Video Sharing Secrets  Examining IGTV & YouTube in Depth</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-visualpuzzle-editor/"><u>[Updated] 2024 Approved  VisualPuzzle Editor</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-bridging-the-gap-integrating-spotify-and-youtube-music-playlists-for-2024/"><u>[Updated] Bridging the Gap  Integrating Spotify and YouTube Music Playlists for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-how-to-protectly-copy-youtube-tracks-for-free-for-2024/"><u>[Updated] How to Protectly Copy Youtube Tracks for Free for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-cutting-edge-computing-select-the-optimal-device-for-video-editing/"><u>[Updated] In 2024, Cutting Edge Computing  Select the Optimal Device for Video Editing</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-mastering-youtubes-aesthetics-enhancing-your-videos/"><u>[Updated] In 2024, Mastering YouTube's Aesthetics  Enhancing Your Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-pioneers-in-the-realm-of-multimedia-synergy-for-2024/"><u>[Updated] Pioneers in the Realm of Multimedia Synergy for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-video-sharing-showdown-20-decoding-the-platform-preferences-vimeo-youtubes-and-dailymotions-for-2024/"><u>[Updated] Video Sharing Showdown 2.0  Decoding the Platform Preferences - Vimeo, YouTubes & DailyMotions for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-overcoming-obscured-viewing-fix-for-youtube/"><u>2024 Approved  Overcoming Obscured Viewing  Fix for Youtube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-tips-for-higher-youtube-traction-with-persistent-creative-commons-usage/"><u>2024 Approved  Tips for Higher YouTube Traction with Persistent Creative Commons Usage</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-transforming-mundane-titles-into-visual-marvels-with-ae/"><u>2024 Approved  Transforming Mundane Titles Into Visual Marvels with AE</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/el-progression-reach-and-maintain-10k-viewer-threshold-for-2024/"><u>Channel Progression  Reach and Maintain 10K Viewer Threshold for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fixing-the-silent-call-a-user-friendly-approach-to-skype-audio-glitches/"><u>Fixing the Silent Call: A User-Friendly Approach to Skype Audio Glitches</u></a></li>
+<li><a href="https://howto.techidaily.com/full-guide-how-to-fix-connection-is-not-private-on-xiaomi-redmi-k70-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Guide How To Fix Connection Is Not Private on Xiaomi Redmi K70 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-from-novice-to-expert-ascending-with-asmr-video-production-tactics/"><u>In 2024, From Novice to Expert  Ascending with ASMR Video Production Tactics</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-unlock-your-boost-mobile-iphone-se-2022-before-the-plan-expires-by-drfone-ios/"><u>In 2024, Unlock Your Boost Mobile iPhone SE (2022) Before the Plan Expires</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-vr-adventures-that-will-captivate-you/"><u>In 2024, VR Adventures That Will Captivate You</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-your-ultimate-guide-to-distinguishing-your-youtube-shorts/"><u>In 2024, Your Ultimate Guide to Distinguishing Your Youtube Shorts</u></a></li>
+<li><a href="https://driver-install.techidaily.com/mastering-wi-fi-driver-update-for-atheros-devices-on-windows/"><u>Mastering Wi-Fi Driver Update for Atheros Devices on Windows</u></a></li>
+<li><a href="https://change-location.techidaily.com/pokemon-go-cooldown-chart-on-xiaomi-redmi-note-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Xiaomi Redmi Note 12 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/top-tunes-prime-sites-for-got-ringtone-downloads-for-2024/"><u>Top Tunes  Prime Sites for GoT Ringtone Downloads for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/your-guide-to-the-top-5-chromebook-sniping-software/"><u>Your Guide to the Top 5 Chromebook Sniping Software</u></a></li>
+</ul></div>
