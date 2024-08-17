@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  First Steps on the Path  Equipment for Beginners\""
-date: 2024-07-13T07:28:57.714Z
-updated: 2024-07-14T07:28:57.714Z
+date: 2024-08-16T06:33:53.632Z
+updated: 2024-08-17T06:33:53.632Z
 tags:
   - ai video
   - ai youtube
@@ -50,6 +50,9 @@ On one end of the spectrum, you have basic smartphone cameras and web cameras, w
 
 If you already have a DSLR camera then it’s a good idea to familiarize yourself with it. You have far more freedom to adjust the settings and achieve a professional look for your videos with a DSLR, but that does mean it’ll take some time to become an expert at using it. Ultra-high resolution is not required for YouTube, but it certainly won’t hurt to have additional sharpness and more detail in the scene. If you’re shopping for a DSLR, look for one with a flip screen that allows you to quickly check what your viewers see.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 ## YouTube Microphone and Audio
 
 **The short version:** Audio quality is extremely important. If you can buy either a new camera or an external microphone, but not both, it might be better to go for the microphone. [Click here for advice on upping your audio quality without an external microphone.](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -60,6 +63,9 @@ Again, most YouTube video makers have a limited budget at their disposal, so pro
 
 If you’re not ready to invest in a shotgun mic, you can also find very inexpensive (often under $20) LAV mics. These small microphones can be pinned to your shirt, which allows them to record very clear dialogue because they’re so close to your mouth.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<!-- affiliate ads end -->
 ## Lights for YouTube
 
 **The short version:** You need as much light as you can get. Lighting kits can be affordable on Amazon, but you can also achieve a great look using daylight/windows and 'daylight' lightbulbs.
@@ -72,6 +78,9 @@ If you have the budget available to get some lighting equipment, you can find so
 
 Another useful piece of lighting equipment to have is a reflector. A reflector is usually a piece of white, silver, or gold fabric stretched over a frame. You can use it to bounce light from one light source back towards yourself (this is a great way to fill shadows cast by your main light). Reflectors tend to be inexpensive, but you can also use white cardboard or tinfoil in place of purchasing a reflector.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<!-- affiliate ads end -->
 ## Tripods and Camera Stands
 
 **The short version:** You need something to hold your camera. If you mostly film in your own home that can be a desk or a stack of books, but if you make a lot of videos while you're on the go you probably need a tripod or gimbal. Heavier cameras need heavier tripods.
@@ -85,6 +94,9 @@ Even if you are using a phone or a webcam to record YouTube videos, you should c
 ## Smartphone Camera Gear
 
 ![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **The short version:** There's a lot of gear out there designed with smartphone photos and videos in mind, including clip-on lenses, tripod mounts, phone-mounted LED lights, and inexpensive microphones that plug into the audio jack.
 
@@ -94,9 +106,16 @@ On the flip side, smartphone cameras typically perform poorly in low light. It i
 
 Another common downside of smartphone cameras is that most of them use digital zoom, which is vastly inferior to optical zoom. If you intend to shoot anything that’s further away than a few feet, you need a clip-on lens that goes on top of the built-in camera. This inexpensive device will give you a lot of freedom to work in space, and allow you to make spectacular shots even without high-end YouTube equipment.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Equipment with Easy-to-Use Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
+ PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -123,3 +142,49 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-ballot-bonanza-prime-election-strategy-games-for-2024/"><u>[New] Ballot Bonanza  Prime Election Strategy Games for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/xploring-youtubes-functionality-following-uploaded-videos/"><u>[New] Exploring YouTube’s Functionality Following Uploaded Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-instant-techniques-mix-up-your-youtube-watchlist/"><u>[New] In 2024, Instant Techniques  Mix Up Your YouTube Watchlist</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-tech-savvy-tips-for-recording-video-calls/"><u>[New] In 2024, Tech-Savvy Tips for Recording Video Calls</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/kyrocket-to-the-top-on-youtube-secrets-of-effective-seo-tactics-1-11-for-2024/"><u>[New] Skyrocket to the Top on YouTube  Secrets of Effective SEO Tactics (1-11) for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/op-youtube-fonts-for-striking-shareable-thumbnails-for-2024/"><u>[New] Top YouTube Fonts for Striking, Shareable Thumbnails for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-from-clicks-to-cash-elevating-exposure-economics/"><u>[Updated] 2024 Approved  From Clicks to Cash  Elevating Exposure Economics</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-launchpad-essentials-your-first-steps-in-streaming/"><u>[Updated] 2024 Approved  Launchpad Essentials  Your First Steps in Streaming</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-quick-ways-to-reshuffle-youtube-tracks-on-pcphonetv/"><u>[Updated] 2024 Approved  Quick Ways to Reshuffle YouTube Tracks on PC/Phone/TV</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-best-ranked-affordable-video-players-and-streaming-services-pc-and-mobile/"><u>[Updated] Best-Ranked Affordable Video Players and Streaming Services (PC & Mobile)</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-breaking-down-the-top-ae-title-styles/"><u>[Updated] Breaking Down the Top AE Title Styles</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-dominate-instagram-with-superior-reel-content-for-2024/"><u>[Updated] Dominate Instagram with Superior Reel Content for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-free-yourself-from-fringe-a-youtube-video-fix-guide-for-2024/"><u>[Updated] Free Yourself From Fringe  A YouTube Video Fix Guide for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-giggles-galore-celebrating-the-funniest-web-content-creators/"><u>[Updated] Giggles Galore  Celebrating the Funniest Web Content Creators</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-achieve-balance-and-vitality-top-10-premium-yoga-streams/"><u>[Updated] In 2024, Achieve Balance & Vitality - Top 10 Premium Yoga Streams</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-secrets-of-soaring-wealth-joshis-youtube-path/"><u>[Updated] In 2024, Secrets of Soaring Wealth  Joshi's Youtube Path</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-multimedia-text-producer/"><u>[Updated] Multimedia Text Producer</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-shorts-fixed-ready-to-stream-and-share-for-2024/"><u>[Updated] Shorts Fixed - Ready to Stream and Share for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-youtube-studio-monetization-check-ensure-your-channels-monetization-for-2024/"><u>[Updated] YouTube Studio Monetization Check  Ensure Your Channel's Monetization for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-beyond-the-screen-top-10-immersive-vr-gear/"><u>2024 Approved  Beyond The Screen  Top 10 Immersive VR Gear</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-the-comprehensive-handbook-of-youtube-views-and-financial-growth/"><u>2024 Approved  The Comprehensive Handbook of YouTube Views and Financial Growth</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ve-more-views-tailoring-and-scaling-youtube-images-for-2024/"><u>Achieve More Views  Tailoring and Scaling YouTube Images for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/aprendizaje-de-tiempo-en-espanol-fundamentos/"><u>Aprendizaje De Tiempo en Español: Fundamentos</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/asus-zephyrus-g14-review-a-no-compromises-gaming-laptop/"><u>Asus Zephyrus G14 Review: A No Compromises Gaming Laptop</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/tial-rules-of-engagement-on-youtube/"><u>Essential Rules of Engagement on YouTube</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/everything-you-need-to-know-about-unlocked-apple-iphone-xs-max-by-drfone-ios/"><u>Everything You Need To Know About Unlocked Apple iPhone XS Max</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-elevating-your-youtube-comments-with-emoji-skills/"><u>In 2024, Elevating Your YouTube Comments with Emoji Skills</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fake-gps-on-vivo-y100-5g-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>In 2024, How To Fake GPS On Vivo Y100 5G For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-unveiling-srts-potential-in-subtitle-format-sub/"><u>In 2024, Unveiling SRT's Potential in Subtitle Format (SUB)</u></a></li>
+<li><a href="https://howto.techidaily.com/itel-s23plus-camera-not-working-unexpected-error-fix-it-now-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Itel S23+ Camera Not Working Unexpected Error? Fix It Now | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/g-the-most-of-your-youtube-thumbnail-space-for-2024/"><u>Making the Most of Your YouTube Thumbnail Space for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ring-youtube-channel-descriptions/"><u>Mastering YouTube Channel Descriptions</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ize-youtube-creations-a-guide-to-high-quality-visuals/"><u>Optimize YouTube Creations  A Guide to High-Quality Visuals</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ated-income-status-for-content-makers/"><u>Pro-Rated Income Status for Content Makers</u></a></li>
+<li><a href="https://win-dash.techidaily.com/quick-access-downloading-and-setting-up-pioneer-dj-ddj-sx2-drivers/"><u>Quick Access: Downloading & Setting Up Pioneer DJ DDJ-SX2 Drivers</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/shedding-light-on-videography-excellence/"><u>Shedding Light on Videography Excellence</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/reat-livestream-debate-facebook-vs-youtube-live-and-twitter-periscope-for-2024/"><u>The Great Livestream Debate  FACEbook Vs. YOUTube Live & Twitter Periscope for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ty-approaches-to-youtube-video-card-production/"><u>Thrifty Approaches to YouTube Video Card Production</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/is-money-learn-to-slash-youtube-video-durations/"><u>Time Is Money - Learn to Slash YouTube Video Durations</u></a></li>
+<li><a href="https://driver-download.techidaily.com/troubleshooting-tips-how-to-successfully-update-rndis-usb-networking-drivers-for-windows-users/"><u>Troubleshooting Tips: How to Successfully Update RNDIS USB Networking Drivers for Windows Users</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/k-your-charm-personalized-youtube-channel-url-essentials-for-2024/"><u>Unlock Your Charm  Personalized YouTube Channel URL Essentials for 2024</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-add-a-timer-in-minutes-a-quick-fcpx-tutorial/"><u>Updated Add a Timer in Minutes A Quick FCPX Tutorial</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Essential Resources for Crafting Eye-Catching YouTube Ends\""
-date: 2024-07-13T07:25:37.414Z
-updated: 2024-07-14T07:25:37.414Z
+date: 2024-08-16T06:37:04.366Z
+updated: 2024-08-17T06:37:04.366Z
 tags:
   - ai video
   - ai youtube
@@ -85,6 +85,9 @@ Here’s one for the Minecraft fans:
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<!-- affiliate ads end -->
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
 
 1\. First, you have to sign up with an e-mail address
@@ -94,6 +97,9 @@ Another way to get your YouTube end screens for free, of course, is to make them
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
 ![create-outro-end-screen-with-canva](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
+<!-- affiliate ads begin -->
+<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
 
@@ -108,10 +114,16 @@ Another way to get your YouTube end screens for free, of course, is to make them
 6\. Stretch your image to the ends of your canvas.
 
 ![stretch-end-screen-templates-canva](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 
 7\. Insert your own shapes, lines, colours, images, and text over the image.
 
 ![adjust-end-screen-templates-in-canva](https://images.wondershare.com/filmora/article-images/adjust-end-screen-templates-in-canva.jpg)
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 8\. When you’re done, delete the original image so that you’re left with just your own design. Go ahead and click “download.”
 
@@ -120,8 +132,15 @@ Another way to get your YouTube end screens for free, of course, is to make them
 If you're looking for other options to design your end screen, make sure to also check out our article on [The YouTube Outro Guide](https://tools.techidaily.com/wondershare/filmora/download/). To edit the YouTube video with more effects and templates, you can try [Wondershare Filmora video editor.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -146,3 +165,46 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-unveiling-the-top-ten-youtube-music-reaction-stars/"><u>[New] 2024 Approved  Unveiling the Top Ten YouTube Music Reaction Stars</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/dapting-your-favorite-songs-from-spotify-to-youtube-music-service-for-2024/"><u>[New] Adapting Your Favorite Songs From Spotify to YouTube Music Service for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-crafting-viral-videos-the-ultimate-fb-reel-techniques/"><u>[New] Crafting Viral Videos  The Ultimate FB Reel Techniques</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/igital-cash-creation-a-closer-look-at-vids-vs-videos/"><u>[New] Digital Cash Creation  A Closer Look at Vids Vs. Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-deciphering-youtubes-cc-policy-for-video-makers/"><u>[New] In 2024, Deciphering YouTube's CC Policy for Video Makers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-diy-youtube-trailer-production-via-filmora-software/"><u>[New] In 2024, DIY YouTube Trailer Production via Filmora Software</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-navigating-the-network-of-youtube-multitasking-mastery/"><u>[New] In 2024, Navigating The Network Of YouTube Multitasking Mastery</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/kyrocketing-views-simple-strategies-without-cost/"><u>[New] Skyrocketing Views  Simple Strategies Without Cost</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/he-ultimate-compilation-of-top-10-free-youtube-spaces-for-digital-illustrators-for-2024/"><u>[New] The Ultimate Compilation of Top 10 Free YouTube Spaces for Digital Illustrators for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/hriving-as-a-novice-youtuber-sidestep-these-8-crucial-pitfalls-for-2024/"><u>[New] Thriving as a Novice YouTuber? Sidestep These 8 Crucial Pitfalls for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-cutting-edge-concepts-for-captivating-youtube-video-thumbnails/"><u>[Updated] 2024 Approved  Cutting-Edge Concepts for Captivating YouTube Video Thumbnails</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-stats-galore-visualize-youtubes-fascinating-facts-2017/"><u>[Updated] 2024 Approved  Stats Galore! Visualize YouTube's Fascinating Facts (2017)</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-frolic-in-fun-the-best-comedy-centric-concepts-for-shorter-videos-for-2024/"><u>[Updated] Frolic in Fun  The Best Comedy-Centric Concepts for Shorter Videos for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-how-to-instantly-design-custom-coverage-for-your-short-videos-for-2024/"><u>[Updated] How To Instantly Design Custom Coverage For Your Short Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-10-must-watch-historical-channels-for-students/"><u>[Updated] In 2024, 10 Must-Watch Historical Channels for Students</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-eluding-youtube-ban-protective-measures/"><u>[Updated] In 2024, Eluding YouTube Ban  Protective Measures</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-enhancing-your-youtube-content-with-right-camera-gear/"><u>[Updated] In 2024, Enhancing Your YouTube Content with Right Camera Gear</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-enriching-meta-descriptions-a-template-transformation-journey/"><u>[Updated] In 2024, Enriching Meta Descriptions  A Template Transformation Journey</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-simplified-video-transferring-techniques-for-youtube-enthusiasts/"><u>[Updated] In 2024, Simplified Video Transferring Techniques for YouTube Enthusiasts</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-outro-crafting-made-easy-the-best-free-guide-top-6/"><u>[Updated] Outro Crafting Made Easy - The Best Free Guide (Top 6)</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-ultimate-guide-to-choosing-a-top-tier-gif-maker/"><u>[Updated] Ultimate Guide to Choosing a Top-Tier GIF Maker</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-unparalleled-quality-discover-the-best-8-streamer-cameras-for-2024/"><u>[Updated] Unparalleled Quality  Discover the Best 8 Streamer Cameras for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-10-affordable-mobile-apps-to-boost-your-images-visual-impact/"><u>2024 Approved  10 Affordable Mobile Apps to Boost Your Image's Visual Impact</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-color-mastery-selecting-the-best-luts-for-lightroom-editors/"><u>2024 Approved  Color Mastery  Selecting the Best LUTs for LightRoom Editors</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-financial-flourishing-yielding-higher-returns-with-mobile-youtube-content/"><u>2024 Approved  Financial Flourishing  Yielding Higher Returns with Mobile YouTube Content</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-valhallas-fury-gods-of-war-converge/"><u>2024 Approved  Valhalla's Fury  Gods of War Converge</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/fy-your-shorts-impact-with-bespoke-thumbnails/"><u>Amplify Your Shorts' Impact with Bespoke Thumbnails</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/essential-photo-tools-top-9-camgear-enhancers-for-filmmakers-for-2024/"><u>Essential Photo Tools  Top 9 CamGear Enhancers for Filmmakers for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-digital-detox-ignoring-negativity-on-youtube/"><u>In 2024, Digital Detox  Ignoring Negativity on YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-innovative-video-marketing-youtube-trailers-with-filmora/"><u>In 2024, Innovative Video Marketing  YouTube Trailers with Filmora</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-iphone-se-2022-backup-password-never-set-but-still-asking-heres-the-fix-by-drfone-ios/"><u>In 2024, iPhone SE (2022) Backup Password Never Set But Still Asking? Heres the Fix</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-infinix-hot-40ifrp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Infinix Hot 40iFRP Lock</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-get-animated-the-best-mobile-apps-for-cartooning-yourself/"><u>New In 2024, Get Animated The Best Mobile Apps for Cartooning Yourself</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/h-transition-of-online-videos-to-tv-screens/"><u>Smooth Transition of Online Videos to TV Screens</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ing-thumbnails-the-20-most-recommended-youtube-fonts-for-2024/"><u>Thriving Thumbnails  The 20 Most Recommended YouTube Fonts for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/top-10-fingerprint-lock-apps-to-lock-your-poco-x5-pro-phone-by-drfone-android/"><u>Top 10 Fingerprint Lock Apps to Lock Your Poco X5 Pro Phone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/-multimedia-sensation-apps-iphoneandroid-showdown/"><u>Top 5 Multimedia Sensation Apps  IPhone/Android Showdown</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/standing-the-legality-of-online-video-recordings/"><u>Understanding the Legality of Online Video Recordings</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/be-earnings-standards-new-rules-and-tips-for-2024/"><u>YouTube Earnings Standards  New Rules & Tips for 2024</u></a></li>
+</ul></div>

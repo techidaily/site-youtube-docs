@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Proven Strategies to Record Clear Audio Without a Mic\""
-date: 2024-07-13T07:29:06.584Z
-updated: 2024-07-14T07:29:06.584Z
+date: 2024-08-16T06:33:45.171Z
+updated: 2024-08-17T06:33:45.171Z
 tags:
   - ai video
   - ai youtube
@@ -47,12 +47,18 @@ For example, your camera’s mic might be just as good as a clip-on LAV, but tha
 
 Moving your camera/smartphone physically closer to you will make it hard to include anything besides your head and shoulders in your shot, but it will get you significantly better audio.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 ## 2.Shoot Somewhere Quiet
 
 The best way to limit the amount of background noise you pick up in your sound recording is to shoot somewhere where there’s no background noise. That probably seems really basic, but it’s something a lot of people just don’t do. It’s easy to default to recording in your home office, even though it’s right next to the kitchen where your family is bustling around, or in your bedroom even though there’s a busy street right outside your window.
 
 Sometimes the best thing you can do for your audio is simply to scout out a quiet room in your house where the sound recording conditions are better. Speaking of recording conditions…
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 3\. Pick a Good Room
 
 There’s more that goes into picking a good room than how quiet it is. If you try to record in a room that’s too big your voice might sound to distant, and if you try to record in a room that’s too small your audio will be too echo-y. You need a room that’s just right.
@@ -61,6 +67,9 @@ You should also pay attention to what’s in the room you’re recording in. Avo
 
 Look for a room that has a lot of soft things in it, like beds and sofas.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## 4\. Protect your Built-In Mic from Wind
 
 If you shoot outside, then the wind passing over your built-in mic will do terrible things to your audio. You can do a lot to counter-act this problem by physically blocking the wind.
@@ -74,11 +83,17 @@ _The pompom used in this video cost $2, but you might already have something tha
 If your built-in mic is on top of your camera you can get something called a ‘micromuff’. A micromuff is essentially a circular or rectangular piece of velcro with long strands of fluff on top. It’s open in the middle so it doesn’t actually cover your mic, but the surrounding fuzz blocks out the wind.
 
 ![Record better audio from wind with micromuff](https://images.wondershare.com/filmora/article-images/record-better-audio-from-wind.jpg)
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 _You use the adhesive backing to attach the base velcro to your camera. The other side of the velcro has your fluff attached to the back._
 
 The only thing about a micromuff is that it costs about $30, and if you’re going to spend $30 on audio equipment then you could just buy yourself an inexpensive LAV mic. I only bring up the micromuff because it’s a very simple design you can probably DIY – you just need velcro with adhesive backing and any of the fluff-sources we just discussed.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 5\. Use a Free Audio App
 
 If you’re recording on a smartphone, you can download a free app that will let you make adjustments to your audio as you record it. With the right app, you can adjust your gain (volume is how you control ‘output’ audio, and gain is for ‘input’ audio. By turning up your gain, you can make your mic more sensitive), tempo, and more. A lot of the time, your audio recording app will also let you edit your audio afterward.
@@ -102,6 +117,9 @@ As one of the most widely used video editing software in YouTube video editing, 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -126,3 +144,40 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-step-by-step-to-success-joining-youtubes-partner-program/"><u>[New] In 2024, Step-by-Step to Success  Joining YouTube's Partner Program</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/astering-video-captioning-on-youtube-for-2024/"><u>[New] Mastering Video Captioning on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/utro-essentials-made-simple-top-6-free-edition/"><u>[New] Outro Essentials Made Simple, Top 6 Free Edition</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-precision-and-panache-advanced-tiktok-editing-skills/"><u>[New] Precision and Panache  Advanced TikTok Editing Skills</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/he-ultimate-guide-to-refining-your-youtube-videos-after-publishing-for-2024/"><u>[New] The Ultimate Guide to Refining Your YouTube Videos After Publishing for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-google-collages-how-to-achieve-it-in-a-blink-of-an-eye/"><u>[Updated] 2024 Approved  Google Collages  How to Achieve It in A Blink of an Eye</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-mobile-and-desktop-techniques-for-youtube-short-video-submission/"><u>[Updated] 2024 Approved  Mobile & Desktop Techniques for YouTube Short Video Submission</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-unlock-content-reach-smart-use-of-video-tags/"><u>[Updated] 2024 Approved  Unlock Content Reach  Smart Use of Video Tags</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-youtubes-iconic-milestone-markers-for-viewership/"><u>[Updated] 2024 Approved  YouTube's Iconic Milestone Markers for Viewership</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-a-treasure-trove-of-9-complete-holiday-flicks-free-streaming-for-2024/"><u>[Updated] A Treasure Trove of 9 Complete Holiday Flicks, Free Streaming for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-cutting-through-content-clutter-youtube-shorts-essentials-for-2024/"><u>[Updated] Cutting Through Content Clutter  YouTube Shorts Essentials for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-ensuring-your-shorts-videos-thumbnail-shows-up/"><u>[Updated] In 2024, Ensuring Your Shorts Video's Thumbnail Shows Up</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-from-boring-to-buzzing-three-tactics-for-youtube-reaction-mastery/"><u>[Updated] In 2024, From Boring to Buzzing  Three Tactics for YouTube Reaction Mastery</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-innovative-thumbnail-tips-for-mac-users-youtube/"><u>[Updated] In 2024, Innovative Thumbnail Tips for Mac Users - YouTube</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-memories-maker-efficiently-download-tweeted-media-content/"><u>[Updated] In 2024, Memories Maker  Efficiently Download Tweeted Media Content</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-revive-your-profile-resetting-2023s-facebook-error/"><u>[Updated] In 2024, Revive Your Profile  Resetting 2023'S Facebook Error</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-tailoring-tags-to-achieve-six-figures-in-views/"><u>[Updated] In 2024, Tailoring #Tags to Achieve Six Figures in Views</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-vlog-glow-achieving-professional-video-setup/"><u>[Updated] In 2024, Vlog Glow  Achieving Professional Video Setup</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-virtual-makeup-mavens-top-youtube-creators-for-2024/"><u>[Updated] Virtual Makeup Mavens  Top YouTube Creators for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-groundbreaking-footage-starts-here-basics-for-novice-filmmakers/"><u>2024 Approved  Groundbreaking Footage Starts Here  Basics for Novice Filmmakers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-how-to-build-successful-youtube-advertisements-for-free/"><u>2024 Approved  How to Build Successful YouTube Advertisements for Free?</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-mastering-visual-learning-lesson-planning-guide/"><u>2024 Approved  Mastering Visual Learning  Lesson Planning Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/free-youtube-comment-finder-you-should-try/"><u>Best Free YouTube Comment Finder You Should Try</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ing-engaging-content-add-youtube-to-slides/"><u>Crafting Engaging Content  Add YouTube to Slides</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/genres-to-gems-building-a-personalized-youtube-music-mix-onlinemobile-for-2024/"><u>From Genres to Gems  Building a Personalized YouTube Music Mix Online/Mobile for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/galaxy-z-flip-evolution-continues-with-samsungs-latest-release-features-news-and-pricing-guide/"><u>Galaxy Z Flip Evolution Continues with Samsung's Latest Release - Features, News & Pricing Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-from-boring-to-breathtaking-the-transformation-of-channel-titles/"><u>In 2024, From Boring to Breathtaking  The Transformation of Channel Titles</u></a></li>
+<li><a href="https://extra-support.techidaily.com/peak-psd-opacity-adjustments-for-2024/"><u>Peak PSD Opacity Adjustments for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/securement-keeping-cameras-still-on-arms-only-for-2024/"><u>Shot Securement  Keeping Cameras Still on Arms Only for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/mline-your-youtube-presentations-with-captions-for-2024/"><u>Streamline Your YouTube Presentations with Captions for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/eginners-blueprint-for-youtube-gear-for-2024/"><u>The Beginner's Blueprint for YouTube Gear for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/1721437615697-the-evolution-of-internet-search-ai-enhanced-bing/"><u>The Evolution of Internet Search: AI-Enhanced Bing.</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ltimate-collection-of-top-ranked-cost-free-youtube-short-video-downloader-apps/"><u>The Ultimate Collection of Top-Ranked, Cost-Free YouTube Short Video Downloader Apps</u></a></li>
+</ul></div>

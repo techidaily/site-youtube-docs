@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Fuel the Fire  Top Videos That Inspire Audiences\""
-date: 2024-07-13T07:27:50.309Z
-updated: 2024-07-14T07:27:50.309Z
+date: 2024-08-16T06:34:57.801Z
+updated: 2024-08-17T06:34:57.801Z
 tags:
   - ai video
   - ai youtube
@@ -88,6 +88,9 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 
  **Unusual skill:** Do you have a party trick that you would love to show everyone, but don’t have a party to go to? YouTube is the place for you. Juggle, do a magic trick, dance like Christopher Walkens, whatever unusual skill you have, share it on camera, and get the accolades you so deserve.
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **5\. Explore Your Surroundings**
 
 **Tour:** Your home, your office, your city. Bring your camera and take your audience on a tour of a place you know well. Show them all the hidden gems, tell them a story about the history, and be spontaneous and discover along the way.
@@ -98,6 +101,9 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 
 **Discuss Current Events:** As the environmental climate, there is also a social and political climate. Address the current state of events in your city. Are there plans to build new infrastructure? Is there a social injustice that the public should know about? You can discuss international affairs, national politics, or keep it local to start.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **6\. Be An Educator**
 
 **Advice:** Have you been through a trying experience? Do you have advice for other people setting off on the same path? Whether it’s graduating school, starting a new job, losing weight, or practicing a new skill, creating content that offers helpful advice for those seeking it will give you credibility to speak about the topic since you have gone through the situation yourself.
@@ -112,6 +118,9 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 
 **Tutorial:** Is there software you use particularly well? Are you skilled in the kitchen or the garage? Can you install appliances without reading the instructions? Give a step-by-step tutorial in completing a project.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<!-- affiliate ads end -->
 ## **7\. Share Your Beliefs and Lifestyle**
 
 **Motivation:** Whatever you are pursuing, know that there are many on the same path as you. If you are an aspiring dancer create content for those that are with you on the journey. Encourage them and speak authentically about the accomplishments to come. Motivation is the energy that is in circulation. The more you send out into the universe, the more will come back to you.
@@ -134,6 +143,9 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 
 **Unboxing:** Got something new from Amazon? Before you open it, turn on your camera. Unboxing is an easy YouTube video idea that allows your viewers who are considering buying the item to better understand whether it is in fact the right purchase for them.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **8\. Nurture Your Curiosity**
 
 **Build Something:** IKEA furniture, a website, a LEGO miniature, a business plan. The best way to get better at something is to just do it. Use your hands and build something and capture it for YouTube.
@@ -185,6 +197,9 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 
 **“Best of” Video:** Select the best scenes from your favorite actor or the best plays from your favorite athlete and compile it into a video that highlights all the best moments.
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **10\. Create Entertainment**
 
 **Fails:** Don’t get embarrassed, get views. Embrace your shortcomings and accept that everybody has failed at something. Be careful and don’t get hurt too bad though.
@@ -216,6 +231,9 @@ Okay! How do you feel?
 I bet you are bursting and ready to create your next video. Onwards! Remember, whatever idea you pick, be sure to give it your own flair. That is what YouTube is all about. Got another YouTube video idea you want to share? Let the Filmora.io community know in the comments.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -240,3 +258,59 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-starter-kit-the-essential-youtube-setup/"><u>[New] 2024 Approved  Starter Kit  The Essential YouTube Setup</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-step-into-the-world-of-innovative-youtube-video-techniques/"><u>[New] 2024 Approved  Step Into the World of Innovative YouTube Video Techniques</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-step-by-step-guide-moving-youtube-content-to-dailymotion/"><u>[New] 2024 Approved  Step-by-Step Guide  Moving YouTube Content to Dailymotion</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-streamlining-profits-how-ajay-maximizes-youtube-earnings/"><u>[New] 2024 Approved  Streamlining Profits  How AJay Maximizes YouTube Earnings</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-streamlining-your-edit-with-jump-cut-tips/"><u>[New] 2024 Approved  Streamlining Your Edit with Jump Cut Tips</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-the-art-of-antiquated-visuals-for-modern-audienciplines/"><u>[New] 2024 Approved  The Art of Antiquated Visuals for Modern Audienciplines</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-the-detailed-breakdown-of-youtube-money/"><u>[New] 2024 Approved  The Detailed Breakdown of YouTube Money</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-the-dual-lens-approach-gaining-audience-insight-with-3-pov-strategies-for-youtube-reactions/"><u>[New] 2024 Approved  The Dual Lens Approach  Gaining Audience Insight with 3 POV Strategies for YouTube Reactions</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-the-premier-selection-of-top-10-free-youtube-art-mentors/"><u>[New] 2024 Approved  The Premier Selection of Top 10 Free YouTube Art Mentors</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-the-youtube-studio-essential-checklist-for-video-mastery/"><u>[New] 2024 Approved  The YouTube Studio Essential Checklist for Video Mastery</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-tips-to-improve-visual-integrity-while-watching-youtube-content/"><u>[New] 2024 Approved  Tips to Improve Visual Integrity While Watching YouTube Content</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-top-editors-for-youtube-writers-and-creators-all-free/"><u>[New] 2024 Approved  Top Editors for YouTube' Writers and Creators - All Free!</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-top-talent-spotlights-inspiring-recruitment-chronicles-1-10/"><u>[New] 2024 Approved  Top Talent Spotlights  Inspiring Recruitment Chronicles #1-10</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-unlocking-asmr-potential-professional-filming-practices-revealed/"><u>[New] 2024 Approved  Unlocking ASMR Potential  Professional Filming Practices Revealed</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-unlocking-the-secrets-to-outro-mastery-free-tutorials-1-6/"><u>[New] 2024 Approved  Unlocking the Secrets to Outro Mastery (FREE Tutorials 1-6)</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-unveiling-top-asmr-for-iphone-users/"><u>[New] 2024 Approved  Unveiling Top ASMR for iPhone Users</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-video-quality-edge-mirrorless-versus-dslr-cameras/"><u>[New] 2024 Approved  Video Quality Edge  Mirrorless Versus DSLR Cameras</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-viral-video-vanguards-top-10-with-staggering-subscriber-growth/"><u>[New] 2024 Approved  Viral Video Vanguards  Top 10 with Staggering Subscriber Growth</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-youtube-elites-creator-conclave/"><u>[New] 2024 Approved  YouTube Elites  Creator Conclave</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-youtube-live-thumbnails-the-ultimate-guide/"><u>[New] 2024 Approved  YouTube Live Thumbnails  The Ultimate Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-youtube-riches-with-best-hash-tags-tips/"><u>[New] 2024 Approved  YouTube Riches with Best Hash Tags Tips</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-creating-a-viral-youtube-sensation-simplified-action-plan/"><u>[Updated] 2024 Approved  Creating a Viral YouTube Sensation  Simplified Action Plan</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-boutonniere-bookmarks-casino-critique/"><u>[Updated] In 2024, BOUTONNIERE BOOKMARKS  Casino Critique</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-streamline-your-youtube-watch-with-no-black-or-white-edges/"><u>[Updated] Streamline Your YouTube Watch with No Black or White Edges</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-ultimate-video-mastery-for-professional-vimeo-users-for-2024/"><u>[Updated] Ultimate Video Mastery for Professional Vimeo Users for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-visual-consistency-through-masterful-use-of-luts-in-ae/"><u>[Updated] Visual Consistency Through Masterful Use of LUTs in AE</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-soundscapes-for-vimeo-a-compreayers-manual/"><u>2024 Approved  Soundscapes for Vimeo  A Compreayer's Manual</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/2024-approved-youtube-conversion-guide-top-8-picks-for-avi-enthusiasts/"><u>2024 Approved  YouTube Conversion Guide  Top 8 Picks for AVI Enthusiasts</u></a></li>
+<li><a href="https://win-dash.techidaily.com/easy-tutorial-to-get-the-latest-ralink-network-adapter-drivers-installed-on-your-windows-machine/"><u>Easy Tutorial to Get the Latest Ralink Network Adapter Drivers Installed on Your Windows Machine</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/go-live-on-youtube-from-a-phone-no-need-for-huge-fans-yet-for-2024/"><u>Go Live on YouTube From a Phone, No Need for Huge Fans Yet for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-itel-p55t-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos From Itel P55T to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-audit-your-channels-financial-success/"><u>In 2024, Audit Your Channel's Financial Success</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-bite-sized-broadcasting-maintaining-quality-in-quick-posts/"><u>In 2024, Bite-Sized Broadcasting  Maintaining Quality in Quick Posts</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-canvas-mastery-streamlining-edges-and-enhancing-visuals/"><u>In 2024, Canvas Mastery  Streamlining Edges and Enhancing Visuals</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-channel-growth-essential-steps-for-youtube-backlink-creation/"><u>In 2024, Channel Growth  Essential Steps for YouTube Backlink Creation</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-charting-a-course-youtubes-best-brands/"><u>In 2024, Charting a Course  YouTube's Best Brands</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-chuckle-factory-designing-7-video-ideas-for-humorists/"><u>In 2024, Chuckle Factory  Designing 7 Video Ideas for Humorists</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-comfortable-viewing-looping-youtube-videos-on-big-displays/"><u>In 2024, Comfortable Viewing  Looping YouTube Videos on Big Displays</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-comparing-youtube-video-downloader-apps-on-android/"><u>In 2024, Comparing YouTube Video Downloader Apps on Android</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-comprehensively-understanding-youtubes-aspect-ratio-ecosystem/"><u>In 2024, Comprehensively Understanding YouTube's Aspect Ratio Ecosystem</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-crafting-a-profitable-channel-in-your-first-youtube-steps/"><u>In 2024, Crafting a Profitable Channel in Your First Youtube Steps</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-dial-back-your-playlist-quick-steps-to-reverse-order/"><u>In 2024, Dial Back Your Playlist  Quick Steps to Reverse Order</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-discovering-the-worlds-most-popular-shorter-videos-free/"><u>In 2024, Discovering the World's Most Popular Shorter Videos (FREE)</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-honor-magic-5-pro-to-pc-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Honor Magic 5 Pro to PC? | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-kitchen-combatants-30-pugnacious-food-show-titles/"><u>In 2024, Kitchen Combatants  30 Pugnacious Food Show Titles</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-samsung-galaxy-f54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Samsung Galaxy F54 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-top-10-airplay-apps-in-nokia-105-classic-for-streaming-drfone-by-drfone-android/"><u>In 2024, Top 10 AirPlay Apps in Nokia 105 Classic for Streaming | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-top-5-streaming-software-that-will-amaze-your-mac-users/"><u>In 2024, Top 5 Streaming Software That Will Amaze Your Mac Users</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-2024-approved-do-you-want-to-record-videos-with-a-phantom-high-speed-camera-in-this-guide-you-can-get-a-detailed-note-on-the-phantom-camera/"><u>New 2024 Approved Do You Want to Record Videos with a Phantom High-Speed Camera? In This Guide, You Can Get a Detailed Note on the Phantom Camera</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/superior-mac-screen-recorder-options-not-bandicam-for-2024/"><u>Superior Mac Screen Recorder Options, Not Bandicam for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-perfect-at-home-cinema-experience-playing-catch-with-giants-your-guide-to-watching-3d-films-on-fandango/"><u>The Perfect At-Home Cinema Experience: Playing Catch With Giants - Your Guide to Watching 3D Films on Fandango</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/be-content-management-for-instagram-profiles/"><u>YouTube Content Management for Instagram Profiles</u></a></li>
+</ul></div>
