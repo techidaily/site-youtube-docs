@@ -1,7 +1,7 @@
 ---
 title: "\"Corrected  Clandestine Miniature Video Absence for 2024\""
-date: 2024-07-13T07:13:21.841Z
-updated: 2024-07-14T07:13:21.841Z
+date: 2024-08-28T17:03:21.904Z
+updated: 2024-08-29T17:03:21.904Z
 tags:
   - ai video
   - ai youtube
@@ -65,6 +65,9 @@ And, you must note that a YouTube Shorts video consists of two criteria as follo
 
 Here’s the section covering fixes on YouTube Shorts not showing. Please give it a read and resolve your issue happily!
 
+<!-- affiliate ads begin -->
+<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Fix 1: Update the YouTube App
 
 As we've already discussed above, check if your YouTube mobile app has the latest version. The newest version of the YouTube mobile app (Version: 16.17.36) has a dedicated Shorts button at the bottom. And, it replaces the Trending button from the YouTube app.
@@ -73,10 +76,20 @@ Moreover, the option to upload Shorts is now hidden behind the **+** icon. Tap o
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-not-showing-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Monthly Membership</a>
+<!-- affiliate ads end -->
 ### Fix 2: Check If Shorts Is Available in Your Country
 
 Now, YouTube Shorts is available globally, but there was a phase when YouTube Shorts was a beta feature. It was only available in India and the US, which could be why you could not view Shorts in the YouTube app.
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Fix 3: YouTube Shorts Is Mobile-only
 
 As of now, YouTube Shorts is only available on a smartphone because it's still in beta version. However, you can create Shorts via smartphone and the camera option in YouTube mobile app. Hence, there's no point in searching for Shorts on your computer.
@@ -147,6 +160,9 @@ You can choose among three ways to open the Auto Reframe feature in Filmora.
 
 ![filmora](https://images.wondershare.com/filmora/guide/1-auto-reframe-option.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<!-- affiliate ads end -->
 * **Way 2:** Import media as **File** \> **Import Media Files** and select the file. After you import the media, right-click and choose the **Auto Reframe**.
 
 ![filmora](https://images.wondershare.com/filmora/guide/2-auto-reframe-timeline.jpg)
@@ -155,6 +171,9 @@ You can choose among three ways to open the Auto Reframe feature in Filmora.
 
 ![filmora](https://images.wondershare.com/filmora/guide/3-auto-reframe-tools.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 2\. Adjust the Aspect Ratio and Motion Speed**
 
 A separate dialog box will display once you have selected the **Auto Reframe** option. Now, click on **Import Media** and choose a single video to import. You can change the imported video by hitting the **Replace File** at the top menu.
@@ -167,6 +186,9 @@ You can adjust the speed of your video in multiple options: keep it at **Auto** 
 
 ![filmora](https://images.wondershare.com/filmora/guide/5-select-motion-speed.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<!-- affiliate ads end -->
 **Step 3\. Analyze, and Auto Reframe the Video**
 
 Once you finish the above adjustments, hit the **Analysis** tab. Filmora will take a few seconds to finish analyzing your video project.
@@ -175,6 +197,9 @@ Then the video will be automatically and quickly reframed to your specified spee
 
 ![filmora](https://images.wondershare.com/filmora/guide/7-restart-reframing.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 4\. Preview the Reframed Video and Check**
 
 Lastly, you can preview your final video. If the video needs more work, you can also play and pause it at the point you want to adjust the frame. You can use **Next Edit Point**, **Undo**, **Redo**, and **Previous Edit Point** at the bottom panel.
@@ -185,6 +210,13 @@ Finally, after all the final adjustments, you can hit the **Export** tab, name y
 
 ![filmora](https://images.wondershare.com/filmora/guide/9-export-reframed-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 3: FAQs about YouTube Shorts
 
 **1\. Where to download the YouTube Shorts app?**
@@ -250,3 +282,50 @@ Follow @Liza Brown
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-ajay-the-creative-content-creators-profitable-venture-on-youtube/"><u>[New] 2024 Approved  AJay  The Creative Content Creator's Profitable Venture on YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-breakdown-fundamental-aspects-of-asmr-videos/"><u>[New] 2024 Approved  Breakdown  Fundamental Aspects of ASMR Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-broadcasting-made-simple-directly-stream-google-meet-to-youtube/"><u>[New] 2024 Approved  Broadcasting Made Simple  Directly Stream Google Meet to YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-dispatching-dreadful-green-screen-distortion-on-mac-editing-sessions/"><u>[New] 2024 Approved  Dispatching Dreadful Green Screen Distortion on Mac-Editing Sessions</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-drive-engagement-crafting-an-animated-subscribe-button-in-filmoras-step-by-step-guide/"><u>[New] 2024 Approved  Drive Engagement  Crafting an Animated Subscribe Button in Filmora's Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-elevating-engagement-finding-your-youtube-segment/"><u>[New] 2024 Approved  Elevating Engagement  Finding Your YouTube Segment</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-essential-tips-for-youtube-shorts-success/"><u>[New] 2024 Approved  Essential Tips for YouTube Shorts Success</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-exclusive-guide-choosing-among-top-9-free-logo-creators/"><u>[New] 2024 Approved  Exclusive Guide  Choosing Among Top 9 Free Logo Creators</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-from-startup-to-stardom-with-youtube-seo-basics/"><u>[New] 2024 Approved  From Startup to Stardom with YouTube SEO Basics</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-hitching-your-video-trailers-to-youtube-success/"><u>[New] 2024 Approved  Hitching Your Video Trailers to YouTube Success</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-how-to-convert-youtube-to-mp4-safely/"><u>[New] 2024 Approved  How to Convert YouTube to MP4 Safely?</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-how-to-gauge-if-an-mcn-is-right-for-your-youtube-journey/"><u>[New] 2024 Approved  How to Gauge if an MCN Is Right for Your YouTube Journey</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-how-to-stand-out-yt-thumbnail-size-and-engagement-strategies/"><u>[New] 2024 Approved  How to Stand Out  YT Thumbnail Size and Engagement Strategies</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-how-to-unlock-youtubes-enigmentic-video-cache/"><u>[New] 2024 Approved  How to Unlock YouTube’s Enigmentic Video Cache</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-ideal-free-resources-to-start-a-youtube-channel/"><u>[New] 2024 Approved  Ideal Free Resources to Start a YouTube Channel</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-selecting-snug-winter-scenes-as-video-sets/"><u>[New] 2024 Approved  Selecting Snug Winter Scenes as Video Sets</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-skyrocket-your-subscribers-with-these-easy-strategies/"><u>[New] 2024 Approved  Skyrocket Your Subscribers with These Easy Strategies</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-skyrocketing-view-figures-by-sustaining-youtubes-creative-commons-license/"><u>[New] 2024 Approved  Skyrocketing View Figures by Sustaining YouTube's Creative Commons License</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-spice-up-your-videos-7-premium-royalty-free-audio-clips/"><u>[New] 2024 Approved  Spice Up Your Videos  7 Premium, Royalty-Free Audio Clips</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/-tricks-for-instantly-boosting-youtube-subscribers-for-2024/"><u>[New] 5 Tricks for Instantly Boosting YouTube Subscribers for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/-quick-guide-to-chroma-key-background/"><u>[New] A Quick Guide to Chroma Key Background</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-efficient-laptop-recording-with-top-screenrec-tools/"><u>[New] In 2024, Efficient Laptop Recording with Top ScreenRec Tools</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-discovering-those-who-left-my-instagram-circle/"><u>2024 Approved  Discovering Those Who Left My Instagram Circle</u></a></li>
+<li><a href="https://article-files.techidaily.com/audience-enchantment-setting-tips-for-streams-for-2024/"><u>Audience Enchantment  Setting Tips for Streams for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/-recording-tools-for-gamers-for-2024/"><u>Elite Recording Tools for Gamers for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/express-corporate-essence-designing-emblems-on-the-go-for-2024/"><u>Express Corporate Essence - Designing Emblems on the Go for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/five-more-ways-to-step-away-from-facebooks-clutches/"><u>Five More Ways to Step Away From Facebook's Clutches</u></a></li>
+<li><a href="https://win-dash.techidaily.com/get-your-oculus-headset-up-and-running-latest-windows-11-10-8-and-7-drivers-download/"><u>Get Your Oculus Headset Up and Running: [Latest] Windows 11, 10, 8 & 7 Drivers Download</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/-screen-journey-begins-on-yt-ideas-take-flight/"><u>Green Screen Journey Begins on YT, Ideas Take Flight!</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-remove-an-airtag-from-your-apple-id-account-from-iphone-15-pro-by-drfone-ios/"><u>How to Remove an AirTag from Your Apple ID Account From iPhone 15 Pro?</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-lava-yuva-2-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Lava Yuva 2 to New Android? | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-icloud-activation-lock-on-mac-for-iphone-13-pro-max-by-drfone-ios/"><u>In 2024, How To Bypass iCloud Activation Lock on Mac For iPhone 13 Pro Max?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-netflix-location-to-get-more-country-version-on-asus-rog-phone-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Netflix Location to Get More Country Version On Asus ROG Phone 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-innovative-discussion-themes-for-vloggers/"><u>In 2024, Innovative Discussion Themes for Vloggers</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-movie-magic-solutions-questions-answered/"><u>In 2024, Movie Magic Solutions  Questions Answered</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-tips-and-tricks-for-setting-up-your-zte-nubia-z60-ultra-phone-pattern-lock-by-drfone-android/"><u>In 2024, Tips and Tricks for Setting Up your ZTE Nubia Z60 Ultra Phone Pattern Lock</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-two-ways-to-track-my-boyfriends-vivo-s17t-without-him-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Two Ways to Track My Boyfriends Vivo S17t without Him Knowing | Dr.fone</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/install-and-update-steelseries-hardware-comprehensive-tutorial-for-windows-operating-systems/"><u>Install and Update SteelSeries Hardware: Comprehensive Tutorial for Windows Operating Systems</u></a></li>
+<li><a href="https://tools.techidaily.com/wondershare/drfone/iphone-backup-and-restore/"><u>iOS Phone Backup</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/-download-how-to-safely-transfer-youtube-to-mp4-for-2024/"><u>Legal Download  How to Safely Transfer YouTube to MP4 for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/maximizing-viewing-tweeting-in-high-definition-hd/"><u>Maximizing Viewing  Tweeting in High Definition (HD)</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/-out-in-a-crowd-with-these-10-youtube-theme-innovators/"><u>Stand Out in a Crowd with These 10 YouTube Theme Innovators</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unlocking-excel-secrets-features-only-humans-can-utilize-not-chatgpt/"><u>Unlocking Excel Secrets: Features Only Humans Can Utilize (Not ChatGPT)</u></a></li>
+</ul></div>

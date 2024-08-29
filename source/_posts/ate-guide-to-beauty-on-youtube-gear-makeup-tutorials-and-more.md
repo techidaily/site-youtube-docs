@@ -1,7 +1,7 @@
 ---
 title: "\"Ultimate Guide to Beauty on YouTube - Gear, Makeup Tutorials, and More\""
-date: 2024-07-13T07:14:13.054Z
-updated: 2024-07-14T07:14:13.054Z
+date: 2024-08-28T17:02:26.931Z
+updated: 2024-08-29T17:02:26.931Z
 tags:
   - ai video
   - ai youtube
@@ -57,6 +57,9 @@ Another way you could find a niche is by taking on a specific area of interest, 
 
   SunKissAlba has a lifestyle channel that focuses on a ‘natural’ niche. She posts videos about every aspect of her lifestyle from putting on makeup to cooking, but natural/non-toxic products are a constant theme through everything she does. By niching her channel she hasn’t limited what kinds of videos she can do at all - she posts a huge variety of different types of videos. What she has done is to make her channel particularly valuable to audiences interested in things that are natural or organic.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Types of Beauty Videos – Your Content Strategy**
 
 It’s a lot easier to come up with weekly video ideas when you have an overarching strategy.
@@ -95,6 +98,9 @@ Here are some common types of beauty and lifestyle videos:
 * Kid’s Makeup Challenge
 * No Mirror Makeup Challenge
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **How to Get Products to Review**
 
  You probably already know that a lot of the products popular beauty YouTubers review in their videos were sent to them for free. Brands want to get their products into the hands of creators who have ‘influence’ both in the hopes that their audiences will decide to buy them and as part of generating buzz – getting more people talking about their products so more people become interested.
@@ -141,6 +147,9 @@ You might want to experiment with sitting at different distances to see how the 
 
 ![tilt down your camera](https://images.wondershare.com/filmora/article-images/tilt-down-camera1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **_Step 3:_** Check your frame (this is easiest if your camera has a screen that flips out) to make sure there’s not too much empty space in your shot.
 
 **_Step 4:_** Adjust your camera’s focus so your picture is clear. You may need to set up a lamp, chair, or stuffed animal as a stand-in for yourself while you stand behind the camera adjusting the focus.
@@ -159,6 +168,9 @@ ISO 400 should be a happy medium for shooting inside with your ring light, but y
 
 ![set film speed](https://images.wondershare.com/filmora/article-images/set-film-speed3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<!-- affiliate ads end -->
 For more info on [camera settings for beauty videos, click here](https://www.filmora.io/video-tutorials/how-to-set-up-your-camera-%E2%80%93-the-makeup-series-12.html).
 
 ## **Lighting for Beauty**
@@ -175,6 +187,13 @@ If you only have a ring light/front light then you may end up looking like you�
 
  ![light background](https://images.wondershare.com/filmora/article-images/light-background4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Yearly Membership</a>
+<!-- affiliate ads end -->
 #### **To Stand Out Against your Background (‘Backlighting’)**
 
 A front light that’s lighting you evenly is also lighting whatever’s behind you evenly, which can make your overall picture look flat.
@@ -207,6 +226,9 @@ One cool feature of the Neewer Ring Light is that you can choose between dayligh
 
 ![Neewer Ring Light](https://images.wondershare.com/filmora/article-images/neewer-ring-light5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 This light is dimmable and can be adjusted to the angle that suits your shot. That’s true of our number 2 pick too, and the second place light actually has a slight edge over the Neewer light because its color temperature is 5400K which is slightly closer to daylight than Neewer’s 5500K, but that’s honestly not super important for YouTube. They’re close enough that you won’t be able to tell the difference, and this light is over $100 more affordable.
 
 #### 2\. **Prismatic Halo Ring Light**
@@ -215,6 +237,9 @@ This lightweight ring light is easy to transport, set up, and mount your phone o
 
 This light is dimmable, so you can turn it down if it’s too bright, and the Prismatic Light Stand will allow you to tilt your light to the perfect angle. This will be handy if you’re mounting your camera inside the ring but want to place it slightly above your face instead of having it look at you head on.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Build Your Own Diva Ring Light**
 
 A ring light is an important tool for a lot of beauty YouTubers, but it doesn’t fit into everyone’s budget. Here’s one popular way to create your own ring light for about $20\.
@@ -302,3 +327,55 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-streamline-your-youtube-presentations-with-captions/"><u>[New] 2024 Approved  Streamline Your YouTube Presentations with Captions</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/iscover-12-cutting-edge-flip-screen-cams-for-video-content-for-2024/"><u>[New] Discover 12 Cutting-Edge Flip-Screen Cams for Video Content for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-streamlined-webp-to-jpg-conversion-methods-for-2024/"><u>[New] Streamlined WebP to JPG Conversion Methods for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/treamlining-youtube-content-onto-insta-feed-for-2024/"><u>[New] Streamlining YouTube Content Onto Insta Feed for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nlock-the-secret-to-massive-engagement-3-top-tips-for-making-powerful-two-pov-reaction-videos-on-youtube-for-2024/"><u>[New] Unlock the Secret to Massive Engagement  3 Top Tips for Making Powerful Two-POV Reaction Videos on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ield-assessment-predicting-youtube-money-for-2024/"><u>[New] Yield Assessment  Predicting YouTube Money for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/solved-monster-hunter-stories-2-wings-of-ruin-not-launching/"><u>[SOLVED] Monster Hunter Stories 2: Wings of Ruin Not Launching</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-cost-effective-subscriber-growth-hundreds-at-a-bargain-price/"><u>[Updated] 2024 Approved  Cost-Effective Subscriber Growth - Hundreds at a Bargain Price</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-creating-a-prime-business-channel-top-picks-and-simple-steps/"><u>[Updated] 2024 Approved  Creating a Prime Business Channel  Top Picks & Simple Steps</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-professional-filmmaking-essentials-ideal-lenses-to-consider/"><u>[Updated] 2024 Approved  Professional Filmmaking Essentials  Ideal Lenses to Consider</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-ultimate-guide-7-prime-free-video-tag-extractors/"><u>[Updated] 2024 Approved  Ultimate Guide  7 Prime Free Video Tag Extractors</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-break-free-from-youtube-top-5-innovative-video-editing-tools-for-2024/"><u>[Updated] Break Free From Youtube  Top 5 Innovative Video Editing Tools for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-elevate-your-asmr-sessions-with-these-microphones-for-2024/"><u>[Updated] Elevate Your ASMR Sessions with These Microphones for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-equipment-guide-for-dynamic-documentary-making/"><u>[Updated] Equipment Guide for Dynamic Documentary Making</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-hot-takes-dailys-most-popular-video-tracks/"><u>[Updated] Hot Takes  Daily's Most Popular Video Tracks</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-ideal-audio-transformer-devices-for-youtube-experts/"><u>[Updated] Ideal Audio Transformer Devices for YouTube Experts</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-a-practical-approach-to-using-screencastify-for-video-capture/"><u>[Updated] In 2024, A Practical Approach to Using Screencastify for Video Capture</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-charting-the-future-essential-online-stock-yts/"><u>[Updated] In 2024, Charting the Future  Essential Online Stock YTs</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-hot-ticket-video-countdown-of-the-hour/"><u>[Updated] In 2024, Hot Ticket  Video Countdown of the Hour</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-shorts-visibility-enhanced-issue-resolved/"><u>[Updated] In 2024, Shorts Visibility Enhanced – Issue Resolved</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-the-components-that-lift-you-in-youtube-viewership/"><u>[Updated] In 2024, The Components That Lift You in YouTube Viewership</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-mirrorless-vs-dslr-video-mastery-in-focus/"><u>[Updated] Mirrorless vs DSLR  Video Mastery in Focus</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-perfecting-your-videos-narrative-integrating-timestamps-smartly/"><u>[Updated] Perfecting Your Video's Narrative  Integrating Timestamps Smartly</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-video-perfection-in-progress-edits-after-uploading-on-youtube/"><u>[Updated] Video Perfection in Progress  Edits After Uploading on YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-crafting-effective-youtube-thumbnails-and-banners/"><u>2024 Approved  Crafting Effective YouTube Thumbnails & Banners</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-echoes-of-the-past-the-top-10-youtube-sources-for-history-lovers/"><u>2024 Approved  Echoes of the Past  The Top 10 YouTube Sources for History Lovers</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-innovative-techniques-for-next-level-lut-creation/"><u>2024 Approved  Innovative Techniques for Next-Level LUT Creation</u></a></li>
+<li><a href="https://program-issues.techidaily.com/banishing-silence-effective-solutions-to-the-roblox-audio-problem-on-win11-win10/"><u>Banishing Silence: Effective Solutions to the Roblox Audio Problem on Win11, Win10</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/livestream-capturing-solutions-for-content-makers-for-2024/"><u>Best Livestream Capturing Solutions for Content Makers for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/dynamic-dividends-boosting-social-media-roi-with-fb-ad-animations-for-2024/"><u>Dynamic Dividends  Boosting Social Media ROI with FB Ad Animations for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/fusing-visual-media-and-apple-audio-for-2024/"><u>Fusing Visual Media and Apple Audio for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/harmonic-hues-infusing-your-social-media-content-with-tunes-for-2024/"><u>Harmonic Hues  Infusing Your Social Media Content with Tunes for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-expert-insights-for-youtube-end-credits-top-makers-advice/"><u>In 2024, Expert Insights for YouTube End Credits - Top Makers' Advice</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-htc-phone-password-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock HTC Phone Password Without Factory Reset?</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-navigating-youtubes-economy-a-guide-to-video-revenue-generation/"><u>In 2024, Navigating YouTube's Economy  A Guide to Video Revenue Generation</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ators-designing-online-marvel-experiences-for-2024/"><u>Innovators Designing Online Marvel Experiences for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/jamboree-the-most-entertaining-youtubers-to-watch-for-2024/"><u>Jest Jamboree  The Most Entertaining YouTubers to Watch for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ring-youtubes-networking-finding-and-creating-video-co-ops-for-2024/"><u>Mastering YouTube's Networking  Finding and Creating Video Co-Ops for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/mp3-broadcasting-made-easy-upload-tutorial-for-youtube-for-2024/"><u>MP3 Broadcasting Made Easy  Upload Tutorial for YouTube for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/reactionvids10-discovering-2023s-stars-for-2024/"><u>MusicReactionVids10  Discovering 2023'S Stars for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ize-video-publishing-timing-for-maximum-views-for-2024/"><u>Optimize Video Publishing Timing for Maximum Views for 2024</u></a></li>
+<li><a href="https://driver-install.techidaily.com/refresh-windows-1011-improve-hdmi-connection/"><u>Refresh Windows 10/11: Improve HDMI Connection</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/e-extraction-converting-youtube-to-trusted-mp4-for-2024/"><u>Secure Extraction  Converting YouTube to Trusted MP4 for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ey-steps-to-composing-engaging-youtube-video-plans/"><u>The Key Steps to Composing Engaging YouTube Video Plans</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/ultimate-guide-streaming-games-with-ease-on-rust-legacy-for-2024/"><u>Ultimate Guide  Streaming Games with Ease on Rust Legacy for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/unveiling-the-latest-tech-at-toms-electronics-hub/"><u>Unveiling the Latest Tech at Tom's Electronics Hub</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-unlock-the-power-of-animation-converting-videos-into-cartoons-for-2024/"><u>Updated Unlock the Power of Animation Converting Videos Into Cartoons for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/1719172615230-your-complete-list-of-affordable-1440p-monitors-ready-to-play/"><u>Your Complete List of Affordable 1440P Monitors, Ready to Play!</u></a></li>
+</ul></div>
