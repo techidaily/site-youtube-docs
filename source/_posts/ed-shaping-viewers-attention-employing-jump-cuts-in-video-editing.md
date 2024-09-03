@@ -1,0 +1,144 @@
+---
+title: "\"[Updated] Shaping Viewers’ Attention  Employing Jump Cuts in Video Editing\""
+date: 2024-09-02T06:48:27.424Z
+updated: 2024-09-03T06:48:27.424Z
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "\"This Article Describes [Updated] Shaping Viewers’ Attention: Employing Jump Cuts in Video Editing\""
+excerpt: "\"This Article Describes [Updated] Shaping Viewers’ Attention: Employing Jump Cuts in Video Editing\""
+keywords: "Video Editing Techniques,Jump Cut Effects,Engaging Viewer Attention,Film Editing Strategies,Creative Cuts in Media,Visual Storytelling Tools,Dynamic Editing Methods"
+thumbnail: https://thmb.techidaily.com/031a4402ffc175410606d46c107303b712eafaa4d65eb4fb68f4c0c322106dcd.jpg
+---
+
+## Shaping Viewers’ Attention: Employing Jump Cuts in Video Editing
+
+# How To Use Jump Cuts in Your Vlog
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+A common problem for new YouTubers and Vlogers is that they cannot get through a recording without feeling like they have messed up and need to restart. It can be extremely discouraging at first. More experienced vloggers know that mistakes happen and they are no reason to stop recording. Instead of trying to record a perfect clip it is common for vloggers to remove errors from their videos in editing using jump cuts.
+
+## How To Use Jump Cuts in Your Vlog
+
+#### 1\. What is a Jump Cut?
+
+A jump cut is when you jump from one part of your clip to a later part of that same clip, cutting out the section in-between.
+
+In movies or tv shows jump cuts can be distracting. In vlogs it is the exact opposite; jump cuts are used to remove distractions. It is not strange for a YouTube video to contain a lot of jump cuts. If you go and re-watch a video by your favorite vlogger you will probably notice that every once in a while the vlogger is suddenly sitting differently or that something else has suddenly changed. That is a jump cut, and chances are you did not even think twice about it when you first watched the video.
+
+#### 2\. When to use Jump Cuts in your Youtube Video
+
+There are a lot of things you might want to take out of your clips using jump cuts. Here are some examples:
+
+**Repetition**: You may have had to repeat yourself because you misspoke. Or, you might watch your clip back and realize that two sections you intended – perhaps even scripted – are very similar and you only need one.
+
+**Off-Topic Tangents**: Once you get comfortable talking to the camera it is easy to find yourself getting off-topic while recording. These tangents might be funny or feel important, but you should still cut them out of your final video. Rather than scrapping them completely, though, consider giving your tangent its very own video. Successful vloggers post new videos frequently, after all.
+
+**Silence**: Use jump cuts to take out any pauses in your video. Every period of silence is an opportunity for viewers to get distracted and decide to click on something else. Adding music to the background of your video can help with shorter pauses, but cutting out any silence is still a good way to go.
+
+In the video tutorial below, we will share with you some practical and creative jump cuts tips that you can try in video editing. And most of the jump cuts are done with the cutting features in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/). You can download the free trial version below by clicking the Free Download button based on your system.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+#### 3\. How to Make Jump Cuts in Vlog & YouTube Videos
+
+You can make jump cuts in almost every editing program, from free software like Windows Movie Maker to professional programs like Adobe Premiere. Remember no matter which video editing software you are using to edit your videos with jump cut, you need to ensure that the software can scroll through your video clips and audio files frame-by-frame. And some video editors may only allow you to scroll video footage frame by frame. This tutorial is for Filmora Video Editor (Now upgraded to Filmora), but many of the same steps will apply to other software.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+You may also like: [How to trim and cut videos in Windows Movie Maker for Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Open up Filmora Video Editor and add a clip into the timeline. Watch it through, and then revisit sections where you think you might want to make cuts.
+
+Find a place in your clip that has silence and use the scissors icon to cut your clip into two. Then start playing your clip and pause as soon as you hear sound.
+
+Make sure your clip is selected, and then go back frame by frame until you hear nothing.
+
+Use the scissors icon to make another cut. You will now have three clips; one before the silence, the silent pause, and the section where sound starts again. Delete the quiet middle clip.
+
+#### 4\. Keep video shorter for more views
+
+The videos that get the most views on YouTube are an average of three minutes long. People will use the length of a video as a reason not to click on it. Viewers are also more likely to get distracted and stop watching longer videos before they are over. That does not mean you should not take as long as you need to properly explain your ideas, just that you should be careful your video is not longer than it needs to be. It is common for youtubers to use only about a third of the clip they record. The rest is removed using jump cuts.
+
+Filmora video editor will help you to be more creative in video editing and saving your time at the same time. Download and leave a comment below about how do you like it.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-making-a-channels-story-visible-in-snippets/"><u>[New] 2024 Approved  Making a Channel's Story Visible in Snippets</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-thrifty-tips-for-hosting-webinars-on-youtube/"><u>[New] 2024 Approved  Thrifty Tips for Hosting Webinars on YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-turning-tides-exploring-unique-methods-to-reverse-youtube-videos/"><u>[New] 2024 Approved  Turning Tides  Exploring Unique Methods to Reverse YouTube Videos</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-a-compre-cookies-guide-to-marketing-magic-with-20-terms/"><u>[New] A Compre Cookie's Guide to Marketing Magic with 20 Terms</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nhancing-your-youtube-projects-a-compreayer-of-visual-improvement-for-2024/"><u>[New] Enhancing Your YouTube Projects  A Compreayer of Visual Improvement for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-enriching-slides-video-incorporation-from-youtube/"><u>[New] In 2024, Enriching Slides  Video Incorporation From YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-how-to-edit-the-length-of-a-video-on-youtube/"><u>[New] In 2024, How to Edit the Length of a Video on YouTube</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-igtv-masterpieces-top-editing-software-showcased/"><u>[New] In 2024, IGTV Masterpieces  Top Editing Software Showcased</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-nixing-the-green-glow-youtubes-mac-solution-manual/"><u>[New] In 2024, Nixing the Green Glow  YouTube's Mac Solution Manual</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ptimal-tag-selection-elevate-your-videos-online-presence-for-2024/"><u>[New] Optimal Tag Selection  Elevate Your Video's Online Presence for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-explore-the-10-fastest-expanding-yt-hubs-for-wisdom/"><u>[Updated] 2024 Approved  Explore the 10 Fastest-Expanding YT Hubs for Wisdom</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-free-tribe-50-branding-banners-ready-to-unleash/"><u>[Updated] 2024 Approved  Free Tribe  50 Branding Banners Ready to Unleash!</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-transform-your-videos-on-demand-freedom-through-editing-android-edition/"><u>[Updated] 2024 Approved  Transform Your Videos on Demand  Freedom Through Editing, Android Edition</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-elevate-video-decks-smart-description-templates/"><u>[Updated] Elevate Video Decks  Smart Description Templates</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-elite-scripting-developing-a-countdown-mechanism-in-obs-for-2024/"><u>[Updated] Elite Scripting  Developing a Countdown Mechanism in OBS for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-how-to-blur-background-in-zoom-with-ease-an-ultimate-guide/"><u>[Updated] How to Blur Background in Zoom with Ease  An Ultimate Guide</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-how-to-make-a-memorable-impact-with-youtubes-minis-for-2024/"><u>[Updated] How to Make a Memorable Impact with Youtube's Minis for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-become-a-freelance-transcriber-tips-and-tricks-for-youtube-content/"><u>[Updated] In 2024, Become a Freelance Transcriber  Tips and Tricks for YouTube Content</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-step-by-step-guide-to-background-dimming-in-videos/"><u>[Updated] In 2024, Step-by-Step Guide to Background Dimming in Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-tips-and-tricks-to-add-tags-to-youtube-video/"><u>[Updated] In 2024, Tips & Tricks to Add Tags to YouTube Video</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-leading-6-video-languages-conversion-aids/"><u>[Updated] Leading 6 Video Languages Conversion Aids</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-mastering-youtube-brand-visuals-the-ultimate-creation-guide/"><u>[Updated] Mastering YouTube Brand Visuals  The Ultimate Creation Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-youtubers-with-a-glamour-touch-top-names-for-2024/"><u>[Updated] YouTubers with a Glamour Touch  Top Names for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-zoom-in-how-to-sequentially-play-youtube-videos-for-free-for-2024/"><u>[Updated] Zoom In  How to Sequentially Play YouTube Videos for Free for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-12-premier-video-game-entrances-by-top-youtubers-free-and-paid-analysis/"><u>2024 Approved  12 Premier Video Game Entrances by Top Youtubers  Free & Paid Analysis</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-enhance-youtube-video-speed-fast-render-and-upload-techniques/"><u>2024 Approved  Enhance YouTube Video Speed - Fast Render and Upload Techniques</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-quick-aspect-alteration-for-web-design/"><u>2024 Approved  Quick Aspect Alteration for Web Design</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-video-mastery-start-here-essential-seo-gadgets/"><u>2024 Approved  Video Mastery Start Here - Essential SEO Gadgets</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ices-navigational-guide-on-youtube-channel-creation-and-making-dough-for-2024/"><u>A Novice's Navigational Guide on YouTube  Channel Creation and Making Dough for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/el-flair-free-download-templates/"><u>Channel Flair  Free Download Templates</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ng-through-the-clutter-youtubes-copyright-evolution-for-2024/"><u>Cutting Through the Clutter  YouTube's Copyright Evolution for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1723203275797-forza-horizon-n-no-audio-troubleshoot-and-solve-the-mute-dilemma-effectively/"><u>Forza Horizon N No Audio? Troubleshoot and Solve the Mute Dilemma Effectively</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/43001433-how-to-stream-to-youtube-facebook-twitch-and-over-30-platforms/"><u>How to Stream to YouTube, Facebook, Twitch and Over 30 Platforms</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-leading-vr-game-experts-you-cant-miss/"><u>In 2024, Leading VR Game Experts You Can't Miss</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-make-an-impression-with-youtube-clips-step-by-step-into-the-world-of-gif-making/"><u>In 2024, Make an Impression With YouTube Clips  Step-by-Step Into the World of Gif Making</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ng-techniques-to-skyrocket-your-game-vids-for-2024/"><u>Tagging Techniques to Skyrocket Your Game Vids for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/1722982998486-troubleshooting-cant-start-the-game-check-your-game-files/"><u>Troubleshooting: Can't Start the Game? Check Your Game Files</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/king-youtubes-potential-essential-tactics-and-strategies/"><u>Unlocking YouTube's Potential  Essential Tactics and Strategies</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-2024-approved-5-best-cellphone-tunes-of-the-year/"><u>Updated 2024 Approved 5 Best Cellphone Tunes of the Year</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
