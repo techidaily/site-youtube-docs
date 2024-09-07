@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Tidied  Missing Miniature Videos on YouTube\""
-date: 2024-07-13T07:00:30.978Z
-updated: 2024-07-14T07:00:30.978Z
+date: 2024-09-06T19:05:37.872Z
+updated: 2024-09-07T19:05:37.872Z
 tags:
   - ai video
   - ai youtube
@@ -20,6 +20,12 @@ thumbnail: https://thmb.techidaily.com/5102f68d4f6f5865eb613c39e1e5be805ea96bcf0
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Liza Brown
 
  Oct 26, 2023• Proven solutions
@@ -61,6 +67,12 @@ And, you must note that a YouTube Shorts video consists of two criteria as follo
 * The video has to be vertical (portrait-style)
 * The video must be 60 seconds or less
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: How to Fix YouTube Shorts Not Showing Up?
 
 Here’s the section covering fixes on YouTube Shorts not showing. Please give it a read and resolve your issue happily!
@@ -73,6 +85,12 @@ Moreover, the option to upload Shorts is now hidden behind the **+** icon. Tap o
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-not-showing-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Fix 2: Check If Shorts Is Available in Your Country
 
 Now, YouTube Shorts is available globally, but there was a phase when YouTube Shorts was a beta feature. It was only available in India and the US, which could be why you could not view Shorts in the YouTube app.
@@ -83,6 +101,18 @@ As of now, YouTube Shorts is only available on a smartphone because it's still i
 
 You can upload Shorts videos from your laptop. The entire process is similar to uploading a regular video. However, you have to mention #Shorts in the title and description to differentiate it as a Shorts video.
 
+<!-- affiliate ads begin -->
+<span id="1975555">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Common Fixes to YouTube Shorts Not Working
 
 1. Update the YouTube App to the latest version.
@@ -95,6 +125,12 @@ The fixes above are also applicable if the YouTube Shorts are not showing on iPh
 
 Or, you can try the VPN solution before contacting the YouTube team.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### If Videos Are Not Visible under YouTube Shorts
 
 **Solution 1:** Ensure that you've added #shorts in the title and description. Those who have YouTube Shorts, they can make shorts videos via the Shorts camera. Those who can't access this camera can also upload their current vertical videos that are less than 60 seconds after adding the hashtag #Shorts in the title or description.
@@ -105,6 +141,12 @@ All in all, you must include #shorts to let the YouTube algorithm figure out the
 
 **Solution 3:** If your YouTube Shorts is not getting views, you need to wait more here because it takes a while for YouTube to index a Shorts video and suggest them to people. So, it's the task of the algorithm that varies from person to person. Some Shorts videos take several days while others take weeks.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115934/19272" target="_top" id="2115934">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115934" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115934/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### If YouTube Shorts Videos Are Not Showing up Correctly
 
 Once uploaded, the YouTube Shorts will be displayed in a vertical thumbnail on YouTube and other regular content already there in your account. Or, it's your choice to create a new channel for the YouTube shorts videos. If the YouTube shorts not showing correctly, you can try as follows:
@@ -117,6 +159,24 @@ Once uploaded, the YouTube Shorts will be displayed in a vertical thumbnail on Y
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-not-showing-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<span id="1983549">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Bonus Tip: How to Easily Create Vertical Videos for YouTube Shorts on PC
 
 The YouTube Shorts app is pretty convenient to use nowadays. However, it doesn't allow you to fine-edit the videos if you've explored the app or specifically when you want your videos to look more professional. The app doesn't even have many filtering options, such as Effects, Elements, etc., to make your videos more interactive.
@@ -151,10 +211,28 @@ You can choose among three ways to open the Auto Reframe feature in Filmora.
 
 ![filmora](https://images.wondershare.com/filmora/guide/2-auto-reframe-timeline.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 * **Way 3:** Lastly, you can choose the **Tools** option on the top menu bar and hit the **Auto Reframe**.
 
 ![filmora](https://images.wondershare.com/filmora/guide/3-auto-reframe-tools.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 2\. Adjust the Aspect Ratio and Motion Speed**
 
 A separate dialog box will display once you have selected the **Auto Reframe** option. Now, click on **Import Media** and choose a single video to import. You can change the imported video by hitting the **Replace File** at the top menu.
@@ -163,6 +241,12 @@ There are multiple aspect ratio templates available such as square (1:1), vertic
 
 ![filmora](https://images.wondershare.com/filmora/guide/4-select-reframing-aspect-ratio.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 You can adjust the speed of your video in multiple options: keep it at **Auto** or make it **Slow** or **Fast** as per your requirements.
 
 ![filmora](https://images.wondershare.com/filmora/guide/5-select-motion-speed.jpg)
@@ -250,3 +334,53 @@ Follow @Liza Brown
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/ssential-video-marketing-strategies-top-8-verified-services/"><u>[New] Essential Video Marketing Strategies Top 8 Verified Services</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-timing-tricks-for-youtube-traffic-surge/"><u>[New] In 2024, Timing Tricks for YouTube Traffic Surge</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-revolutionizing-receiving-a-new-paradigm-in-openings/"><u>[New] Revolutionizing Receiving A New Paradigm in Openings</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/he-science-of-visual-appeal-crafting-stunning-youtube-shorts-templates-for-2024/"><u>[New] The Science of Visual Appeal Crafting Stunning YouTube Shorts Templates for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/hree-safe-methods-for-directly-downloading-youtubes-audios-as-mp3-for-2024/"><u>[New] Three Safe Methods for Directly Downloading YouTube's Audios as MP3 for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nleashing-potential-a-treasury-of-youtube-themes-for-channels/"><u>[New] Unleashing Potential A Treasury of YouTube Themes for Channels</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nveiling-the-best-strategies-how-to-boost-engagement-and-growth-on-youtube-for-2024/"><u>[New] Unveiling the Best Strategies How to Boost Engagement and Growth on YouTube for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-vintage-video-upgrade/"><u>[New] Vintage Video Upgrade</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-how-youtubes-shorts-fund-aims-to-revolutionize-content-creation/"><u>[Updated] 2024 Approved How YouTube's Shorts Fund Aims to Revolutionize Content Creation</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-inside-the-earnings-loop-how-you-benefit-from-your-channel/"><u>[Updated] 2024 Approved Inside the Earnings Loop How You Benefit From Your Channel</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-premier-artist-blending-images-and-harmony/"><u>[Updated] 2024 Approved Premier Artist Blending Images & Harmony</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-the-high-def-odyssey-of-youtubes-twitter-vids/"><u>[Updated] 2024 Approved The High-Def Odyssey of YouTube's Twitter Vids</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-transition-to-darkness-premiere-pro-techniques/"><u>[Updated] 2024 Approved Transition to Darkness Premiere Pro Techniques</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-ultimate-list-free-best-ios-video-editor-tools/"><u>[Updated] 2024 Approved Ultimate List Free, Best iOS Video Editor Tools</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-unseen-youtube-videos-the-meaning-of-unlisted-status/"><u>[Updated] 2024 Approved Unseen YouTube Videos The Meaning of 'Unlisted' Status</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-channel-combat-determining-which-earns-more-from-videosdailymotion-or-youtube-for-2024/"><u>[Updated] Channel Combat Determining Which Earns More From Videos—Dailymotion or YouTube for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-master-your-download-installation-and-usage-of-ez-grabber/"><u>[Updated] Master Your Download Installation and Usage of EZ Grabber</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-shaping-snapshots-transitioning-from-auto-to-smart-hdr-shooting/"><u>[Updated] Shaping Snapshots Transitioning From Auto to Smart HDR Shooting</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-step-by-step-process-to-embrace-cc-copyrights-for-2024/"><u>[Updated] Step-by-Step Process to Embrace CC Copyrights for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-science-behind-stopping-photo-booth-movies/"><u>[Updated] The Science Behind Stopping Photo Booth Movies</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-ultimate-guide-to-purchasing-asmr-microphones/"><u>[Updated] Ultimate Guide to Purchasing ASMR Microphones</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-upgrade-your-view-enabling-youtubes-high-quality-av1-option/"><u>[Updated] Upgrade Your View Enabling YouTube's High-Quality AV1 Option</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-what-is-the-best-video-format-for-youtube-for-2024/"><u>[Updated] What Is the Best Video Format for YouTube for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-mastering-collab-videos-to-expand-viewership/"><u>2024 Approved Mastering Collab Videos to Expand Viewership</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-unrestricted-media-playback-free-on-windows-and-macos/"><u>2024 Approved Unrestricted Media Playback FREE on Windows & MacOS</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-youtubes-financial-frontier-strategies-for-maximum-gains/"><u>2024 Approved Youtube's Financial Frontier Strategies for Maximum Gains</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/a-peek-into-the-viral-world-of-stock-photo-memes/"><u>A Peek Into the Viral World of Stock Photo Memes</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/tless-offline-viewing-how-to-save-youtube-videos-for-iphoneipad/"><u>Effortless Offline Viewing How to Save YouTube Videos for iPhone/iPad</u></a></li>
+<li><a href="https://program-issues.techidaily.com/fixing-overwatch-startup-problem-how-to-tackle-the-black-screen-dilemma-successfully/"><u>Fixing Overwatch Startup Problem: How to Tackle the Black Screen Dilemma Successfully</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/g-hits-with-powerful-hashtag-strategies-for-2024/"><u>Gaming Hits with Powerful Hashtag Strategies for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/oth-sides-right-expert-tips-on-crafting-compelling-pov-based-youtube-reaction-videos-2-pov-perspective-for-2024/"><u>Get Both Sides Right – Expert Tips on Crafting Compelling POV-Based YouTube Reaction Videos (2 POV Perspective) for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-stop-life360-from-tracking-you-on-samsung-galaxy-f54-5g-drfone-by-drfone-virtual-android/"><u>How to Stop Life360 from Tracking You On Samsung Galaxy F54 5G? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-a-comprehensive-guide-to-mastering-ipogo-for-pokemon-go-on-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, A Comprehensive Guide to Mastering iPogo for Pokémon GO On Apple iPhone 11 Pro | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-a-guide-to-high-quality-slow-motion-images-for-instagram-sharing/"><u>In 2024, A Guide to High-Quality Slow Motion Images for Instagram Sharing</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-essential-steps-for-seamlessly-clearing-youtube-feedback/"><u>In 2024, Essential Steps for Seamlessly Clearing YouTube Feedback</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-three-ways-to-sim-unlock-google-pixel-8-by-drfone-android/"><u>In 2024, Three Ways to Sim Unlock Google Pixel 8</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-the-art-of-video-enhancement-expert-guidance/"><u>New The Art of Video Enhancement Expert Guidance</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ct-picks-microphones-for-diverse-online-audiences/"><u>Perfect Picks Microphones for Diverse Online Audiences</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/resolve-your-outriders-game-lag-problem-once-and-for-all/"><u>Resolve Your Outriders Game Lag Problem Once and For All</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/resolving-lcd-darkness-on-notebooks/"><u>Resolving LCD Darkness on Notebooks</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ating-the-market-precision-in-sharing-through-shorts-for-2024/"><u>Saturating the Market Precision in Sharing Through Shorts for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/acular-screen-collaborations-selecting-an-mcn-for-2024/"><u>Spectacular Screen Collaborations Selecting an MCN for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/step-by-step-tutorial-for-downloading-and-updating-elan-smbus-drivers-in-windows/"><u>Step-by-Step Tutorial for Downloading & Updating ELAN SMBus Drivers in Windows</u></a></li>
+<li><a href="https://howto.techidaily.com/super-easy-ways-to-deal-with-realme-narzo-60x-5g-unresponsive-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Super Easy Ways To Deal with Realme Narzo 60x 5G Unresponsive Screen | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/the-easiest-methods-to-hard-reset-vivo-y56-5g-drfone-by-drfone-reset-android-reset-android/"><u>The Easiest Methods to Hard Reset Vivo Y56 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/inal-chapter-of-your-youtube-content-creation/"><u>The Final Chapter of Your YouTube Content Creation</u></a></li>
+</ul></div>

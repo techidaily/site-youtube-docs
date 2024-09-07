@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Above the Mainstage  Significant YouTube Meetings\""
-date: 2024-07-13T06:59:58.692Z
-updated: 2024-07-14T06:59:58.692Z
+date: 2024-09-06T19:04:58.936Z
+updated: 2024-09-07T19:04:58.936Z
 tags:
   - ai video
   - ai youtube
@@ -14,12 +14,30 @@ keywords: "\"Mainstage Discussions,Key YouTube Conversations,Video Platform Dial
 thumbnail: https://thmb.techidaily.com/45fa216ed9179ff239c54a97ced9b6daebc95dcdcc42950e7937059431f2b557.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Above the Mainstage: Significant YouTube Meetings
 
 # Beyond VidCon - A Guide to the Most Important YouTube Events
 
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Richard Bennett
 
  Dec 30, 2022• Proven solutions
@@ -36,6 +54,18 @@ Want to meet your favorite creators? Or, do you want to become a better creator 
 6. [Amplify Live (Australia)](#amplify)
 7. [Summer in the City (UK)](#sitc)
 
+<!-- affiliate ads begin -->
+<span id="1982461">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **The Most Important YouTube Events**
 
 Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video editing software for all creators.
@@ -80,6 +110,12 @@ You have a two-week window (usually the first half of May) to submit your choice
 
 ![Playlistlive](https://images.wondershare.com/filmora/Playlistlive.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Playlist Live is a YouTube event for creators and their supporters that has a particular focus on music. Where VidCon is advertised using images of sunshine, crowded convention halls, and speakers, Playlist Live is advertised with images of city skylines, concerts, and fireworks.
 
 Playlist Live prides itself on having ‘non-stop interactive activities.’ These include chances to meet your favorite creators on the Saturday and Sunday of the event. Which meetups you get to attend are determined by first-come-first-serve online signup.
@@ -150,6 +186,12 @@ Sydney, Australia: February
 
 ![rtx](https://images.wondershare.com/filmora/rtx.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Brought to you by the creators behind Rooster Teeth, RTX is a celebration of internet culture and gaming. It includes exhibitors, live events, panels, and activities targeting gamers. Partners include Twitch and multiple gaming companies.
 
 **Passes:**
@@ -212,6 +254,12 @@ Have you ever attended an offline YouTube event? Which one, and how did you like
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -237,3 +285,40 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-from-broadcasts-to-bitstreams-online-recording-for-professionals/"><u>[New] 2024 Approved From Broadcasts to Bitstreams Online Recording for Professionals</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/chieve-stellar-clickthrough-rates-via-thumbnail-enlargement-on-youtube/"><u>[New] Achieve Stellar Clickthrough Rates via Thumbnail Enlargement on YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/iscovering-income-monetization-through-youtube-sponsored-videos-for-2024/"><u>[New] Discovering Income Monetization Through YouTube Sponsored Videos for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-easy-iphonesideways-capturing-the-moment-for-2024/"><u>[New] Easy iPhonesideways Capturing the Moment for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/gtv-vs-youtube-differences-and-which-one-should-you-use/"><u>[New] IGTV VS YouTube Differences and Which One Should You Use?</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-building-a-successful-youtube-channel-sidestep-these-8-frequent-faux-pas/"><u>[New] In 2024, Building a Successful YouTube Channel Sidestep These 8 Frequent Faux Pas</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-decoding-ad-revenue-distribution-in-youtubes-economic-model/"><u>[New] In 2024, Decoding Ad Revenue Distribution in YouTube's Economic Model</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-the-essential-enhancements-for-a-superstar-stardew-fan/"><u>[New] In 2024, The Essential Enhancements for a Superstar Stardew Fan</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/aving-parts-of-youtube-a-comprehensive-tutorial-for-2024/"><u>[New] Saving Parts of YouTube A Comprehensive Tutorial for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-the-ultimate-checklist-for-establishing-a-distinctive-online-self/"><u>[Updated] 2024 Approved The Ultimate Checklist for Establishing a Distinctive Online Self</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-building-a-successful-youtube-channel-sidestep-these-8-frequent-faux-pas/"><u>[Updated] Building a Successful YouTube Channel Sidestep These 8 Frequent Faux Pas</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-comprehensive-youtube-etiquette-guide-for-2024/"><u>[Updated] Comprehensive YouTube Etiquette Guide for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-cutting-edge-professional-guide-to-youtube-editing/"><u>[Updated] Cutting Edge Professional Guide to YouTube Editing</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-how-tos-selecting-free-powerful-iphoneipad-edits/"><u>[Updated] How-To's Selecting Free, Powerful iPhone/iPad Edits</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-the-great-livestream-debate-facebook-vs-youtube-live-and-twitter-periscope/"><u>[Updated] In 2024, The Great Livestream Debate FACEbook Vs. YOUTube Live & Twitter Periscope</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-shaping-viewers-attention-employing-jump-cuts-in-video-editing/"><u>[Updated] Shaping Viewers’ Attention Employing Jump Cuts in Video Editing</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-step-by-step-to-stellar-custom-shorts-thumbnails/"><u>[Updated] Step-by-Step to Stellar Custom Shorts Thumbnails</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-strategies-for-selective-success-in-the-youtube-realm-for-2024/"><u>[Updated] Strategies for Selective Success in the YouTube Realm for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-masterful-edits-highest-rated-video-tools-for-youtube/"><u>2024 Approved Masterful Edits Highest Rated Video Tools For YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-top-8-youtube-rank-tracker-tools-unveiled/"><u>2024 Approved Top 8 YouTube Rank Tracker Tools Unveiled</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/live-recording-gadgets-for-youtube-content-creators-for-2024/"><u>Best Live Recording Gadgets for YouTube Content Creators for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ng-edge-royalty-free-music-platforms-for-content-makers-for-2024/"><u>Cutting-Edge Royalty-Free Music Platforms for Content Makers for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ing-youtube-premium-complete-information-inside/"><u>Decoding YouTube Premium Complete Information Inside</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/effortlessly-update-your-asrock-ab350-pro4-free-driver-packs-and-install-steps-for-windows-pcs/"><u>Effortlessly Update Your ASRock AB350 Pro4: Free Driver Packs and Install Steps for Windows PCs</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/te-audience-engagement-top-hashtag-strategies-revealed/"><u>Elevate Audience Engagement Top Hashtag Strategies Revealed</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/exploring-wi-fi-mesh-connectivity-alternatives/"><u>Exploring Wi-Fi Mesh Connectivity Alternatives</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-the-fundamentals-of-income-for-t-series-on-youtube/"><u>In 2024, The Fundamentals of Income for T-Series on YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-unveiling-excellent-video-keywords-on-youtube/"><u>In 2024, Unveiling Excellent Video Keywords on YouTube</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/master-snapchat-essential-strategies-for-snappy-snaps-for-2024/"><u>Master Snapchat Essential Strategies for Snappy Snaps for 2024</u></a></li>
+<li><a href="https://media-tips.techidaily.com/quick-guide-speedy-conversion-of-videos-to-galaxy-tablet-format/"><u>Quick Guide: Speedy Conversion of Videos to Galaxy Tablet Format</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ing-social-media-platforms-an-in-depth-look-at-igtv-and-youtube-for-2024/"><u>Tackling Social Media Platforms An In-Depth Look at IGTV and YouTube for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/the-pros-and-cons-of-using-the-lenovo-tab-p11-pro-our-detailed-review/"><u>The Pros and Cons of Using the Lenovo Tab P11 Pro - Our Detailed Review</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unlock-fast-video-trimming-in-windows-11-apps-for-2024/"><u>Unlock Fast Video Trimming in Windows 11 Apps for 2024</u></a></li>
+</ul></div>

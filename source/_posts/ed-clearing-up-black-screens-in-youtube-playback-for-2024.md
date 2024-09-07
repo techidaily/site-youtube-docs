@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Clearing Up Black Screens in YouTube Playback for 2024"
-date: 2024-07-13T07:00:15.407Z
-updated: 2024-07-14T07:00:15.407Z
+date: 2024-09-06T19:05:18.881Z
+updated: 2024-09-07T19:05:18.881Z
 tags:
   - ai video
   - ai youtube
@@ -14,6 +14,18 @@ keywords: "\"Resolve Black Screen,Fix YT Buffering,Clear Video Glitches,End YT F
 thumbnail: https://thmb.techidaily.com/f4c650853e8507f493dd5a4da625f53ce5ecb8f26fcbb71888c8a6af3708b00c.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Clearing Up Black Screens in YouTube Playback
 
 There might be some instances where when you try to play a clip on one of the most popular streaming video sites, you are displayed with a **YouTube black screen**. There could be several reasons behind this.
@@ -32,6 +44,12 @@ Create stunning effects with simple clicks.
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1: What Causes a YouTube Black Screen Error?
 
 As mentioned earlier, although there could be any reason for **videos black on YouTube**, some of the most common ones are listed below:
@@ -88,6 +106,12 @@ After launching the web browser (Google Chrome is used here for example), go to 
 
 ![clear google chrome cache](https://images.wondershare.com/filmora/article-images/clear-google-chrome-cache.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Switch between the **Basic** and **Advanced** tabs on the **Clear browsing data** box to choose the records that you want to delete, and then choose your preferred duration of the records from the **Time range** drop-down list.
 
 ![clear google chrome browsing data](https://images.wondershare.com/filmora/article-images/clear-browsing-data-chrome.jpg)
@@ -104,6 +128,12 @@ Turn off the switch for each of the installed extensions to check if the issue i
 
 ![disable google chrome extension](https://images.wondershare.com/filmora/article-images/disable-google-chrome-extensions.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Note:** If this solution works, you can try enabling the extensions one at a time, and check turning on which one causes **YouTube video black screen**. Once the culprit extension is found, you can click **Remove** to get rid of it altogether.
 
 **Solution 6: Reinstall the Browser**
@@ -118,6 +148,18 @@ If the video is visible on a different web browser, probably the default one tha
 
 • Follow the on-screen instructions from there to remove the web browser from your PC. Next, use Microsoft Edge (or any other browser) to download and install a fresh copy of Google Chrome and see if the issue is fixed
 
+<!-- affiliate ads begin -->
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. ISP or Internet Speed Solution(s)
 
 If you are experiencing a slow Internet connection, the issue might be either from your Internet Service Provider’s (ISP’s) side, or on your part. In any case, you can try the following solutions to fix the issue:
@@ -156,6 +198,18 @@ Expand the **Display adapters** tree on the **Device Manager** snap-in, and righ
 
 ![upgrade graphic card to fix YouTube black screen](https://images.wondershare.com/filmora/article-images/upgrade-graphic-card-to-fix-youtube-video-black-screen.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982508">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Click **Search automatically for drivers** from the next screen that appears and follow the on-screen instructions from there to update the graphic card driver.
 
 **Note:** If your PC has multiple graphic cards installed in it, you will have to follow this procedure for each of them individually.
@@ -174,6 +228,12 @@ Tap it and then select **Clear data and Clear cache**. Relaunch YouTube and see 
 
 ![fix YouTube black screen on Android](https://images.wondershare.com/filmora/article-images/fix-youtube-video-black-screen-android.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123466/16836" target="_top" id="2123466">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123466" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123466/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### How to Troubleshoot YouTube Black Screen On iOS
 
 **Delete and Reinstall the App**
@@ -182,6 +242,12 @@ Long-tap the YouTube app on your iOS device, and then tap **Remove App**, and th
 
 ![fix YouTube black screen on iPhone](https://images.wondershare.com/filmora/article-images/delete-youtube-from-iphone.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120866/26400?prodsku=mars" target="_top" id="2120866">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120866/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Go to **App Store** and download and install a fresh copy of YouTube, and see if the problem is resolved.
 
 **Conclusion**
@@ -207,3 +273,61 @@ There could be several reasons for **YouTube black screen**, and depending on th
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-15-must-have-openers-for-maximum-youtube-engagement/"><u>[New] 2024 Approved 15 Must-Have Openers for Maximum YouTube Engagement</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-unveiling-my-lost-followers-insta-unfollow-check/"><u>[New] 2024 Approved Unveiling My Lost Followers Insta Unfollow Check</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-broadcasting-strategies-for-youtube-facebook-twitch-and-others-for-2024/"><u>[New] Broadcasting Strategies for YouTube, Facebook, Twitch, and Others for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-elite-group-16-youtube-entries-boosting-views-for-2024/"><u>[New] Elite Group 16 YouTube Entries Boosting Views for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/xpert-video-making-opt-for-studio-versus-beta-version/"><u>[New] Expert Video Making Opt for Studio Versus Beta Version</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-beyond-clickbait-whats-real-about-instagram-reels/"><u>[New] In 2024, Beyond Clickbait What's Real About Instagram Reels?</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-proven-asmr-techniques-and-the-best-microphone-options/"><u>[New] In 2024, Proven ASMR Techniques and the Best Microphone Options</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/avigating-youtubes-revenue-mechanisms/"><u>[New] Navigating YouTube's Revenue Mechanisms</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/artner-up-strategies-optimal-selection-for-youtube-teams-for-2024/"><u>[New] Partner Up Strategies Optimal Selection for YouTube Teams for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/tep-by-step-validating-your-online-identity-on-youtube/"><u>[New] Step by Step Validating Your Online Identity on YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ystematic-guide-unearthing-youtubes-concealed-content/"><u>[New] Systematic Guide Unearthing YouTube's Concealed Content</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/he-creators-guide-to-the-top-9-affordable-video-editing-apps/"><u>[New] The Creator's Guide to the Top 9 Affordable Video Editing Apps</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/he-growth-odyssey-of-ajey-nagar-on-youtube/"><u>[New] The Growth Odyssey of Ajey Nagar on YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/he-ultimate-creator-toolkit-commanding-video-kingdoms/"><u>[New] The Ultimate Creator Toolkit Commanding Video Kingdoms</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-captivating-clicks-the-top-8-yt-thumbnails-to-use/"><u>[Updated] 2024 Approved Captivating Clicks The Top 8 YT Thumbnails to Use</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-capture-stillness-on-the-go-without-tripods/"><u>[Updated] 2024 Approved Capture Stillness on the Go without Tripods</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-choosing-your-best-gif-creator-a-comparative-analysis/"><u>[Updated] 2024 Approved Choosing Your Best GIF Creator A Comparative Analysis</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-gaming-heaven-a-treasure-trove-of-superb-offline-ios-game-titles/"><u>[Updated] 2024 Approved Gaming Heaven A Treasure Trove of Superb Offline iOS Game Titles</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-mastering-iphones-simple-recording-features-quickly/"><u>[Updated] 2024 Approved Mastering iPhone's Simple Recording Features Quickly</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-unlock-your-youtube-potential-expert-tips-on-writing-video-outlines/"><u>[Updated] 2024 Approved Unlock Your YouTube Potential Expert Tips on Writing Video Outlines</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/58334076-updated-2024-approved-your-treasure-trove-of-free-marketing-50plus-youtube-ads-ready-to-go/"><u>[Updated] 2024 Approved Your Treasure Trove of Free Marketing 50+ YouTube Ads Ready to Go!</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-5-key-aspects-to-consider-when-sizing-your-youtube-thumbnail/"><u>[Updated] 5 Key Aspects to Consider When Sizing Your YouTube Thumbnail</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-a-teachers-guide-to-enhancing-learning-through-youtube-videos-for-2024/"><u>[Updated] A Teacher's Guide to Enhancing Learning Through YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-dismantle-that-dominating-green-distortion-in-mac-based-videos/"><u>[Updated] Dismantle That Dominating Green Distortion in Mac-Based Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-duration-decoded-a-guide-to-editing-youtube-videos-for-2024/"><u>[Updated] Duration Decoded A Guide to Editing YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-elevate-your-youtube-presence-strategic-tagging-and-titling-techniques-for-2024/"><u>[Updated] Elevate Your YouTube Presence Strategic Tagging and Titling Techniques for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-from-streams-to-statements-decoding-the-3-step-process-for-calculating-youtube-earnings/"><u>[Updated] From Streams to Statements Decoding the 3-Step Process for Calculating YouTube Earnings</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-game-masters-and-youtube-earning-strategies-for-2024/"><u>[Updated] Game Masters & YouTube Earning Strategies for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-enriching-storytelling-the-magic-of-adding-music-to-reels/"><u>[Updated] In 2024, Enriching Storytelling The Magic of Adding Music to Reels</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-skyrocket-your-brands-visibility-with-these-top-video-marketing-approaches/"><u>[Updated] In 2024, Skyrocket Your Brand's Visibility with These Top Video Marketing Approaches</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-skyrocket-your-channel-to-over-a-million-subscribers/"><u>[Updated] In 2024, Skyrocket Your Channel to Over a Million Subscribers</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-mastering-tv-saves-win-friendly-options-available-for-2024/"><u>[Updated] Mastering TV Saves Win-Friendly Options Available for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-prime-guidelines-youtube-respect-and-usage-for-2024/"><u>[Updated] Prime Guidelines YouTube Respect & Usage for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-skyrocketing-earnings-through-video-affiliates/"><u>[Updated] Skyrocketing Earnings Through Video Affiliates</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-streamline-your-youtube-experience-shareable-playlists/"><u>[Updated] Streamline Your YouTube Experience Shareable Playlists</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-worlds-highest-paying-streamer-for-2024/"><u>[Updated] World's Highest Paying Streamer for 2024</u></a></li>
+<li><a href="https://solve-luxury.techidaily.com/1-how-to-read-books-on-e-readers-amazon-kindle-kobo-vox-and-more/"><u>1. How to Read Books on E-Readers: Amazon Kindle, Kobo Vox, and More</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-professional-video-tweaks-with-these-top-8-free-editing-apps/"><u>2024 Approved Professional Video Tweaks with These Top 8 Free Editing Apps</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/complete-premiere-pro-full-screen-insight-for-2024/"><u>Complete Premiere Pro Full Screen Insight for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/elevate-your-skills-discover-the-best-5-elearning-platforms-for-ai-prompt-creation/"><u>Elevate Your Skills - Discover the Best 5 eLearning Platforms for AI Prompt Creation</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ce-visibility-with-any-channel-title-through-free-makers-for-2024/"><u>Enhance Visibility With Any Channel Title Through Free Makers for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ning-youtubes-highlighted-comment-mechanics/"><u>Examining YouTube's Highlighted Comment Mechanics</u></a></li>
+<li><a href="https://fox-http.techidaily.com/hitting-a-pixel-snag-a6400s-video-problems-for-2024/"><u>Hitting a Pixel Snag A6400's Video Problems for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/how-to-resolve-microsoft-edges-exe-error-and-improve-performance-on-your-pc/"><u>How to Resolve Microsoft Edge's .exe Error and Improve Performance on Your PC</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-spy-on-text-messages-from-computer-and-honor-play-8t-drfone-by-drfone-virtual-android/"><u>How to Spy on Text Messages from Computer & Honor Play 8T | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-disabled-apple-iphone-13-miniipad-without-computer-drfone-by-drfone-ios/"><u>How to Unlock Disabled Apple iPhone 13 mini/iPad Without Computer | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-efficiently-implementing-youtube-end-screens/"><u>In 2024, Efficiently Implementing Youtube End Screens</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-facebook-vids-to-mp4-download-made-easy/"><u>In 2024, Facebook Vids to MP4 - Download Made Easy</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-react-and-relate-harness-the-power-of-alternate-perspectives-for-compelling-youtube-vids-2-pov-method/"><u>In 2024, React and Relate - Harness the Power of Alternate Perspectives for Compelling YouTube Vids (2 POV Method)</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-tips-for-itunes-podcast-enrollment/"><u>In 2024, Tips for iTunes Podcast Enrollment</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/optimizing-content-editing-youtube-descriptions-and-titles-for-growth-for-2024/"><u>Optimizing Content Editing YouTube Descriptions & Titles for Growth for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ct-your-presence-with-solo-video-setups-and-techniques-for-2024/"><u>Perfect Your Presence with Solo Video Setups and Techniques for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nk-your-classic-movies-best-swaps-7-for-2024/"><u>Rethink Your Classic Movies - Best Swaps #7 for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ful-tactics-elevating-culinary-channel-monikers-for-2024/"><u>Tasteful Tactics Elevating Culinary Channel Monikers for 2024</u></a></li>
+</ul></div>
