@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Streamlining Your Filming Setup  The Beginner's Companion\""
-date: 2024-07-13T06:54:10.583Z
-updated: 2024-07-14T06:54:10.583Z
+date: 2024-09-11T13:44:42.664Z
+updated: 2024-09-12T13:44:42.664Z
 tags:
   - ai video
   - ai youtube
@@ -32,6 +32,13 @@ thumbnail: https://thmb.techidaily.com/4d82cc5d4830160f77be1be23b3b0d5c8cbc630ac
 
  The process of creating a video can be divided into three different stages, the pre-production, production, and post-production. Each stage has its own tools, without which completing a video would be impossible. In this article, we will be covering the equipment that will make the production stage of the process much smoother, and it will also help you to go through post-production much faster.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Equipment 1: Camera
 
  You can't shoot a video without a camera, but which camera you're going to use depends on the type of the video you want to produce. Sometimes the camera that offers the most shooting options is not the best choice, and different factors like size or the weight of the camera can be much more important than the sheer quality of the footage.
@@ -43,6 +50,13 @@ thumbnail: https://thmb.techidaily.com/4d82cc5d4830160f77be1be23b3b0d5c8cbc630ac
  You can also [make YouTube videos with just your phone](https://tools.techidaily.com/wondershare/filmora/download/), check this video for more details.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115941/19272" target="_top" id="2115941">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115941" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115941/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 2. Action Cameras
 
@@ -68,6 +82,13 @@ thumbnail: https://thmb.techidaily.com/4d82cc5d4830160f77be1be23b3b0d5c8cbc630ac
 
  With a DSLR camera, you can also use it a webcam for recording your face and your desktop screen at the same time, check [how to use a DSLR camera as a webcam](https://filmora.wondershare.com/webcam-recording/use-dslr-camera-as-webcam.html).
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Equipment 2: Microphones
 
  Moving images are less effective without sound, which is the reason why you should pay close attention to this aspect of the video making process. All cameras have built-in microphones, but the audio quality they produce is often not good enough to actually use it in a YouTube video. That's why recording sound with an external microphone is a common practice among the most successful YouTubers.
@@ -78,6 +99,13 @@ thumbnail: https://thmb.techidaily.com/4d82cc5d4830160f77be1be23b3b0d5c8cbc630ac
 
  Check: [best microphones for YouTube vloggers.](https://filmora.wondershare.com/vlogger/best-microphone-for-youtuber-videos.html)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Equipment 3: Video Stabilization Equipment
 
  Holding a camera in your hand while shooting a video is often not the best idea, because even breathing may cause the camera to move and produce camera shakes. That's where [tripods](https://tools.techidaily.com/wondershare/filmora/download/), steadicams, [gimbals](https://tools.techidaily.com/wondershare/filmora/download/), rigs and other video stabilization equipment comes in. As a matter of fact, you should only shoot handheld videos when you want to achieve this effect, while all another camera movement should be avoided without the use of appropriate equipment.
@@ -85,6 +113,13 @@ thumbnail: https://thmb.techidaily.com/4d82cc5d4830160f77be1be23b3b0d5c8cbc630ac
  Shaky videos are not very pleasant to watch and they can reduce your chances of attracting more followers on YouTube. The video stabilization equipment offers a great solution, and you can get a professional tripod or gimbal at a very reasonable price. However, which video stabilization equipment you are going to use depends on the camera you have and the type of shot you want to get.
 
  Check our list of [best camera stabilizer for YouTubers in 2018](https://filmora.wondershare.com/vlogger/best-camera-stabilizers-for-youtube.html).
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Equipment 4: Lighting Equipment
 
@@ -100,20 +135,24 @@ thumbnail: https://thmb.techidaily.com/4d82cc5d4830160f77be1be23b3b0d5c8cbc630ac
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115942/19272" target="_top" id="2115942">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115942" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115942/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -122,6 +161,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-essential-guide-to-twitter-videos-and-aspect-ratios-for-2024/"><u>[New] Essential Guide to Twitter Videos and Aspect Ratios for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-an-easy-to-follow-guide-to-applying-cc-license-types/"><u>[New] In 2024, An Easy-to-Follow Guide to Applying CC License Types</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-top-10-volume-surge-controllers-for-windowsmacos/"><u>[New] In 2024, Top 10 Volume Surge Controllers for Windows/MacOS</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-the-most-economical-tools-for-youtube-audio-conversion/"><u>[Updated] 2024 Approved The Most Economical Tools for YouTube Audio Conversion</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-unleash-views-the-most-effective-30-freefire-tags-for-gamers/"><u>[Updated] 2024 Approved Unleash Views The Most Effective 30 FreeFire Tags for Gamers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-quick-and-clean-video-extraction-for-all-screens-for-2024/"><u>[Updated] Quick and Clean Video Extraction for All Screens for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-the-ultimate-tutorial-for-adding-gifs-and-emojis-in-instagram-stories/"><u>[Updated] The Ultimate Tutorial for Adding GIFs & Emojis in Instagram Stories</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-youtube-live-pro-tips-outfitting-with-excellent-webcams/"><u>[Updated] YouTube Live Pro Tips Outfitting with Excellent Webcams</u></a></li>
+<li><a href="https://blog-min.techidaily.com/6-encoding-made-fast/"><u>6 Encoding Made Fast</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ing-the-perfect-gaming-channel-header-for-2024/"><u>Crafting the Perfect Gaming Channel Header for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-ispoofer-on-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Realme 12 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-did-your-iphone-13-passcode-change-itself-unlock-it-now-drfone-by-drfone-ios/"><u>In 2024, Did Your iPhone 13 Passcode Change Itself? Unlock It Now | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/sharpen-your-footage-the-essentials-of-video-enhance-22-for-2024/"><u>Sharpen Your Footage The Essentials of Video Enhance 2.2 for 2024</u></a></li>
+</ul></div>
 

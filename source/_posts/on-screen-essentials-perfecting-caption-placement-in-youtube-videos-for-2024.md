@@ -1,7 +1,7 @@
 ---
 title: "\"Text on Screen Essentials  Perfecting Caption Placement in YouTube Videos for 2024\""
-date: 2024-07-13T06:57:16.366Z
-updated: 2024-07-14T06:57:16.366Z
+date: 2024-09-11T13:42:36.912Z
+updated: 2024-09-12T13:42:36.912Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,13 @@ There are plenty of Text effects built in Filmora, you can apply motions and ani
 
 ![Add Text to Video](https://images.wondershare.com/filmora/article-images/filmora-advanced-text-edit-interface.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Open up Filmora and drag a clip into your timeline. Then, go to   **Text/Credit.**
 * Find a style that you like and drag it into your timeline where you want your text to appear. Make sure your text is selected in your timeline and click the   **Advanced Text Editing** icon, which looks like a pen and paper.
 * Insert your own words and drag your text to where you want it on the screen. Adjust the size by dragging the blue squares which surround your text.
@@ -55,6 +62,13 @@ There are plenty of Text effects built in Filmora, you can apply motions and ani
 As a simple video editing software, Windows Movie Maker also allows you to add text to videos. It provides 3 different options for you to add Title, Caption and Credits to the YouTube videos. You can follow the steps below to add text to the video in WMM.
 
 ![add text in WMM](https://images.wondershare.com/filmora/article-images/add-text-in-wmm.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * To start, launch the Windows Movie Maker.
 * After, select import video to insert the video that you want to add text with.
@@ -86,6 +100,13 @@ For professionals who are looking for a professional way to adding text to video
 * You can also edit your text using the commands that are provided in the Title Menu.
 * Save the text that you have made by clicking the file menu then choose Save As.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Add Text to video in YouTube after uploading
 
 Sometimes, we have uploaded a video to YouTube and then want to add subtitles/cc to the video later. The good news is that YouTube is not only a site for videos but is also the place where you can edit your videos in an instant. As you have read, adding text and captions to the uploaded YouTube videos is just a breeze.
@@ -104,6 +125,13 @@ If there is no auto-subtitles, you can choose from 3 ways to add subtitles and c
 
 ![Add Text to Video](https://images.wondershare.com/filmora/article-images/3-ways-to-add-youtube-subtitles.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Upload a file:** upload a text transcript or timed subtitles file.
 
 **Transcribe and auto-sync:** Type or paste in a full transcript of the video and subtitle timings will be set automatically.
@@ -119,6 +147,19 @@ If you already have a caption file which contains both text and time codes, just
 When you make use of this editor, you cannot shorten the clips for music. Moreover, since it is an online editor, you need to refresh the page in order to do the changes. Aside from YouTube Video Editor, you can use Adobe Premier Pro, MAGIX Vegas Pro, OpenShot and Avidemux.
 
 From 20th September 2017 users will no longer be able to use the complementary editing suite. Check the best [YouTube video editor alternatives](https://tools.techidaily.com/wondershare/filmora/download/) from this complete guide to find out more YouTube video editor alternatives if you want to add text to video with more features and customization.
+
+<!-- affiliate ads begin -->
+<span id="2135471">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Top 3 Tips for Adding Text to YouTube Videos
 
@@ -144,20 +185,30 @@ Try to use text to emphasize only the most important things you say.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -166,6 +217,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-satiresnapshots-jokeframe-world/"><u>[New] SatireSnapshots JokeFrame World</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-going-viral-guide-keyword-strategies-for-cut-to-the-chase-videos-for-2024/"><u>[Updated] Going Viral Guide Keyword Strategies for Cut-to-the-Chase Videos for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-transform-your-youtube-footage-into-cinematic-delight-with-imovie-expertise/"><u>[Updated] In 2024, Transform Your YouTube Footage Into Cinematic Delight with iMovie Expertise</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-raise-the-bar-pivotal-youtube-seo-enhancers-for-2024/"><u>[Updated] Raise the Bar Pivotal YouTube SEO Enhancers for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-cool-climates-with-a-warm-twist-selecting-video-bgs/"><u>2024 Approved Cool Climates with a Warm Twist Selecting Video Bg's</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-creating-impressive-podcast-identities-with-logos/"><u>2024 Approved Creating Impressive Podcast Identities with Logos</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-unveiling-hidden-functionalities-of-instagrams-question-marker/"><u>2024 Approved Unveiling Hidden Functionalities of Instagram’s Question Marker</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/tless-youtube-video-to-text-conversion-at-no-cost/"><u>Effortless YouTube Video to Text Conversion at No Cost!</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-conquering-video-design-challenges-with-filmora-tips/"><u>In 2024, Conquering Video Design Challenges with Filmora Tips</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-googles-efficient-route-to-instantaneous-visual-masterpieces/"><u>In 2024, Google's Efficient Route to Instantaneous Visual Masterpieces</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/mlined-conversion-at-your-fingertips-top-6-free-apps-for-youtube-and-mp3-for-2024/"><u>Streamlined Conversion at Your Fingertips Top 6 Free Apps for YouTube & MP3 for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-itel-s23plus-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Itel S23+ | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/timely-team-setups-adjusting-backdrop-beforeafter-calls/"><u>Timely Team Setups Adjusting Backdrop Before/After Calls</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-asus-rog-phone-8-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Asus ROG Phone 8 | Dr.fone</u></a></li>
+</ul></div>
 

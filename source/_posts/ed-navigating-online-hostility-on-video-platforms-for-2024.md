@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Navigating Online Hostility on Video Platforms for 2024"
-date: 2024-07-13T06:55:20.617Z
-updated: 2024-07-14T06:55:20.617Z
+date: 2024-09-11T13:44:10.783Z
+updated: 2024-09-12T13:44:10.783Z
 tags:
   - ai video
   - ai youtube
@@ -25,6 +25,13 @@ thumbnail: https://thmb.techidaily.com/4813724d53b5cad6b133b133522844cf1838d9743
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118304/7443" target="_top" id="2118304">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118304" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118304/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -54,20 +61,30 @@ thumbnail: https://thmb.techidaily.com/4813724d53b5cad6b133b133522844cf1838d9743
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -76,6 +93,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/hannel-success-strategy-joining-ytp2024-now/"><u>[New] Channel Success Strategy - Joining YTP2024 Now!</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-explore-best-15-cost-free-photo-editors/"><u>[New] Explore Best 15 Cost-Free Photo Editors</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-unleash-the-power-of-your-devices-for-effective-fb-streaming/"><u>[New] In 2024, Unleash the Power of Your Devices for Effective FB Streaming</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/astering-online-income-from-youtubes-adsense-to-direct-payments/"><u>[New] Mastering Online Income From YouTube's AdSense to Direct Payments</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-dissecting-the-emerging-trends-in-facebook-short-videos/"><u>[Updated] 2024 Approved Dissecting the Emerging Trends in Facebook Short Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-best-student-friendly-history-vid-hubs-1-10-for-2024/"><u>[Updated] Best Student-Friendly History Vid Hubs (#1-10) for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-essential-youtube-end-screen-templates-for-content-makers/"><u>[Updated] Essential YouTube End Screen Templates for Content Makers</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-dynamic-decibels-the-best-background-sounds-for-yt-shorts/"><u>[Updated] In 2024, Dynamic Decibels The Best Background Sounds for YT Shorts</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-effortlessly-embedding-visual-media-in-free-content-creation/"><u>2024 Approved Effortlessly Embedding Visual Media in Free Content Creation</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/adding-accurate-dates-to-photographic-records-for-2024/"><u>Adding Accurate Dates to Photographic Records for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/efficiently-sharing-multiple-pictures-on-facebook-in-one-go-tips-and-tricks/"><u>Efficiently Sharing Multiple Pictures on Facebook in One Go – Tips & Tricks!</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/heif-vs-jpeg-compared-a-comprehensive-guide-for-photographers/"><u>HEIF Vs. JPEG Compared: A Comprehensive Guide for Photographers</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/this-article-introduce-tips-on-how-to-stream-local-video-to-chromecast-from-windowsmacandroidios-for-2024/"><u>This Article Introduce Tips on How to Stream Local Video to Chromecast From Windows/Mac/Android/iOS for 2024</u></a></li>
+</ul></div>
 

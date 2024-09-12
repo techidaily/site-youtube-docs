@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Ultimate Guide to Professional-Quality Audio without a Microphone\""
-date: 2024-07-13T06:56:21.168Z
-updated: 2024-07-14T06:56:21.168Z
+date: 2024-09-11T13:43:27.343Z
+updated: 2024-09-12T13:43:27.343Z
 tags:
   - ai video
   - ai youtube
@@ -39,6 +39,13 @@ Luckily, there are a lot of easy, free, things you can do to protect the quality
 * [5\. Use a Free Audio App](#app)
 * [6\. Do a Sound Check](#check)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 1\. Keep Your Camera Close (like, really close)
 
 The biggest problem with the mic built into any camera or phone is just that, since it’s with the camera, it’s usually too far away from you. Built-in mics can record decent audio up close, but usually, your camera will be set up farther away from you than an external mic would be.
@@ -47,11 +54,31 @@ For example, your camera’s mic might be just as good as a clip-on LAV, but tha
 
 Moving your camera/smartphone physically closer to you will make it hard to include anything besides your head and shoulders in your shot, but it will get you significantly better audio.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2.Shoot Somewhere Quiet
 
 The best way to limit the amount of background noise you pick up in your sound recording is to shoot somewhere where there’s no background noise. That probably seems really basic, but it’s something a lot of people just don’t do. It’s easy to default to recording in your home office, even though it’s right next to the kitchen where your family is bustling around, or in your bedroom even though there’s a busy street right outside your window.
 
 Sometimes the best thing you can do for your audio is simply to scout out a quiet room in your house where the sound recording conditions are better. Speaking of recording conditions…
+
+<!-- affiliate ads begin -->
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3\. Pick a Good Room
 
@@ -75,9 +102,23 @@ If your built-in mic is on top of your camera you can get something called a ‘
 
 ![Record better audio from wind with micromuff](https://images.wondershare.com/filmora/article-images/record-better-audio-from-wind.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 _You use the adhesive backing to attach the base velcro to your camera. The other side of the velcro has your fluff attached to the back._
 
 The only thing about a micromuff is that it costs about $30, and if you’re going to spend $30 on audio equipment then you could just buy yourself an inexpensive LAV mic. I only bring up the micromuff because it’s a very simple design you can probably DIY – you just need velcro with adhesive backing and any of the fluff-sources we just discussed.
+
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5\. Use a Free Audio App
 
@@ -101,6 +142,13 @@ As one of the most widely used video editing software in YouTube video editing, 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -109,14 +157,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -125,6 +170,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-elevating-your-content-game-strategic-use-of-igtv-hashtags/"><u>[New] 2024 Approved Elevating Your Content Game Strategic Use of IGTV Hashtags</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-the-minimum-view-count-for-youtube-success-stories/"><u>[New] 2024 Approved The Minimum View Count for YouTube Success Stories</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-channel-king-and-queen-academy-youtube-excellence/"><u>[New] In 2024, Channel King & Queen Academy YouTube Excellence</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-indulge-in-9-holiday-blockbusters-free-online-christmas-viewing/"><u>[New] In 2024, Indulge in 9 Holiday Blockbusters Free Online Christmas Viewing</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-transitioning-playlists-from-spotify-to-a-tailored-youtube-music-list/"><u>[New] In 2024, Transitioning Playlists From Spotify to a Tailored YouTube Music List</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/evolutionizing-video-views-conquering-youtube-millions/"><u>[New] Revolutionizing Video Views, Conquering YouTube Millions</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/tepwise-strategies-to-perfect-youtube-trailers-by-filmora-for-2024/"><u>[New] Stepwise Strategies to Perfect YouTube Trailers by Filmora for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nlock-content-insights-7-premier-free-tag-extraction-tools-for-2024/"><u>[New] Unlock Content Insights 7 Premier Free Tag Extraction Tools for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-expand-your-horizons-with-these-elite-science-yts/"><u>[Updated] In 2024, Expand Your Horizons with These Elite Science YTs</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-5-good-book-trailer-examples/"><u>2024 Approved 5 Good Book Trailer Examples</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/captivating-first-impressions-how-to-choose-impactful-backgrounds-for-thumbnails/"><u>Captivating First Impressions How to Choose Impactful Backgrounds for Thumbnails</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/helldivers-2-steam-launch-failure-effective-fixes-for-gamers/"><u>Helldivers 2 Steam Launch Failure: Effective Fixes for Gamers</u></a></li>
+<li><a href="https://techidaily.com/how-to-update-or-downgrade-apple-iphone-12-pro-without-losing-anything-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Update or Downgrade Apple iPhone 12 Pro Without Losing Anything? | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-your-roadmap-to-sourcing-videos-on-social-media-fb-edition/"><u>In 2024, Your Roadmap to Sourcing Videos on Social Media (FB Edition)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-lamicall-s-tablet-holder-designed-for-convenience-and-utility/"><u>In-Depth Analysis of Lamicall S Tablet Holder: Designed For Convenience and Utility</u></a></li>
+</ul></div>
 

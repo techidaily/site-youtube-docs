@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Brighten Up  Techniques for Improving Video Lighting on YouTube\""
-date: 2024-07-13T06:56:30.897Z
-updated: 2024-07-14T06:56:30.897Z
+date: 2024-09-11T13:43:38.609Z
+updated: 2024-09-12T13:43:38.609Z
 tags:
   - ai video
   - ai youtube
@@ -39,6 +39,13 @@ Below, I’ll go into detail on how you can set up your lighting equipment to ma
 
 Most beginner YouTubers light their videos with what they already have. That’s what I did to start as well. In the past, my video recording space consisted of natural sunlight coming from my window and ceiling light for times when the sunlight wasn’t strong enough.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1.  Window Lighting
 
 The best thing about window lighting is that it’s free. The worst thing about it is that it’s uncontrollable. The amount of light you get in your video can vary with all the changes in the weather.
@@ -46,6 +53,13 @@ The best thing about window lighting is that it’s free. The worst thing about 
 Window lighting for me was especially difficult to work with because I live in a very rainy and cloudy city, Vancouver, Canada, where we pretty much just get three months of good sun.
 
 ![YouTube Video Lighting](https://images.wondershare.com/filmora/article-images/window-lighting-comparison.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
 
@@ -61,6 +75,13 @@ Most home lighting is warmer in its color temperature. If you want to use your h
 
 Ceiling lights are also typically situated in the center of a room in order to light an entire room evenly. This is not likely to be the best location for your filming video. Since the ceiling light was directly above the face in the above example, you can see harder shadows beneath his cheeks.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Home Studio Lighting
 
 If you rather not deal with all the window and home lighting challenges, you can set up studio lighting in your home.
@@ -69,11 +90,25 @@ If you rather not deal with all the window and home lighting challenges, you can
 
 The first thing you’ll want to do to set up studio lighting in your home is to pick a room to film in and eliminate as much external lighting as you can. Use blinds, curtains, towels, or any thick fabric to block sunlight from shining into your room.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2. 3-Point Lighting
 
 The most common setup for studio lighting is 3-point lighting. For this kind of lighting you’ll need three lights: a key light, a fill light, and a back light (also called a hair light).
 
 ![3-Point Lighting](https://images.wondershare.com/filmora/article-images/youtube-lighting-3-point-lighting.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Out of the three lights, the key light should be the brightest. When it is positioned to the left of you (as shown in the diagram above) your right side will have shadows.
 
@@ -95,6 +130,13 @@ For more information on lighting equipment, check out my [Top 17 Video Lighting 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -103,14 +145,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,6 +158,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/oost-views-with-your-own-youtube-thumbnail-design/"><u>[New] Boost Views with Your Own YouTube Thumbnail Design</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-effortless-and-effective-embedding-youtube-in-gslides/"><u>[New] In 2024, Effortless and Effective - Embedding YouTube in GSlides</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-optimizing-your-videography-journey-using-adobe-connects-tools-for-2024/"><u>[New] Optimizing Your Videography Journey Using Adobe Connect's Tools for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/vercoming-black-screens-in-youtube-content-for-2024/"><u>[New] Overcoming Black Screens in YouTube Content for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-designing-an-editorial-epilogue/"><u>[Updated] 2024 Approved Designing an Editorial Epilogue</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-captioning-techniques-for-professional-youtube-content-for-2024/"><u>[Updated] Captioning Techniques for Professional YouTube Content for 2024</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/2024-approved-top-5-ai-voice-generators-online-supports-all-browsers/"><u>2024 Approved Top 5 AI Voice Generators Online (Supports All Browsers)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579989099-4-popular-ways-to-say-youre-welcome-in-french/"><u>4 Popular Ways to Say You’re Welcome in French</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-10-fake-gps-location-apps-on-android-of-your-sony-xperia-1-v-drfone-by-drfone-virtual/"><u>In 2024, 10 Fake GPS Location Apps on Android Of your Sony Xperia 1 V | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-profitability-probe-dailymovement-versus-youtubes-financial-edge/"><u>In 2024, Profitability Probe DailyMovement Versus YouTube's Financial Edge</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-streamlined-video-logitechs-background-editing-guide/"><u>In 2024, Streamlined Video - Logitech's Background Editing Guide</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/pixelpeek-presenters-paper-for-2024/"><u>PixelPeek Presenter's Paper for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/reimagining-your-video-presentation-update-facebook-covers-today/"><u>Reimagining Your Video Presentation Update Facebook Covers Today</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/rt-of-creating-compelling-youtube-video-outlines-for-2024/"><u>The Art of Creating Compelling YouTube Video Outlines for 2024</u></a></li>
+</ul></div>
 

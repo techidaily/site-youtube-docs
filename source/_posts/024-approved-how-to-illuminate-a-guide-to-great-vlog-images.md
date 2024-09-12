@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  How to Illuminate  A Guide to Great Vlog Images\""
-date: 2024-07-13T06:57:27.982Z
-updated: 2024-07-14T06:57:27.982Z
+date: 2024-09-11T13:40:56.022Z
+updated: 2024-09-12T13:40:56.022Z
 tags:
   - ai video
   - ai youtube
@@ -28,9 +28,23 @@ One of the best things you can do for your video quality is to ensure you have g
 
 Going outside and using natural light is the cheapest way to get a lot of light for your videos. If your vlog is not suited to the great outdoors then you need to get more strategic. You can turn on all the lights in your living room and still end up with a dark, grainy, video.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118318/7443" target="_top" id="2118318">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118318" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118318/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Video Lighting Basics: Three Point Lighting
 
 ![Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
@@ -44,7 +58,27 @@ The **fill light** is less bright than the primary source of light and it is pla
 
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Watch Video! Top Lighting Tips for Vlogging
+
+<!-- affiliate ads begin -->
+<span id="1982485">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
 
@@ -78,11 +112,25 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
 
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -90,14 +138,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -106,6 +151,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-videos.techidaily.com/new-fusion-feats-mixing-genres-in-the-worlds-most-engaging-tiktoks-for-2024/"><u>[New] Fusion Feats Mixing Genres in the World's Most Engaging TikToks for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-the-ultimate-list-of-serene-smartphone-games/"><u>[New] The Ultimate List of Serene Smartphone Games</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-your-ultimate-cheat-sheet-for-seamlessly-looping-videos-on-youtube/"><u>[New] Your Ultimate Cheat Sheet for Seamlessly Looping Videos on YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-boosting-your-channel-strategies-for-skyrocketing-view-counts/"><u>[Updated] Boosting Your Channel Strategies for Skyrocketing View Counts</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-building-your-digital-identity-start-a-youtube-channel-today/"><u>[Updated] Building Your Digital Identity Start a YouTube Channel Today</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-earn-big-on-youtube-shorts-tips-for-profitable-content-creation-for-2024/"><u>[Updated] Earn Big on YouTube Shorts Tips for Profitable Content Creation for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-trailblazer-in-multimedia-craftsmanship/"><u>[Updated] In 2024, Trailblazer in Multimedia Craftsmanship</u></a></li>
+<li><a href="https://change-location.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-samsung-galaxy-f54-5g-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Samsung Galaxy F54 5G | Dr.fone</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/empower-your-site-with-cutting-edge-tracking-technology-backed-by-cookiebot/"><u>Empower Your Site with Cutting-Edge Tracking Technology - Backed by Cookiebot</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-a-infinix-smart-8-plus-phone-that-is-locked-by-drfone-android/"><u>In 2024, How to Reset a Infinix Smart 8 Plus Phone that is Locked?</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-top-fifa-matches-visualized-data-highlights/"><u>In 2024, Top FIFA Matches Visualized Data Highlights</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/navigating-potential-twitch-downtime-identifying-global-outages-vs-personal-connectivity-challenges/"><u>Navigating Potential Twitch Downtime: Identifying Global Outages vs Personal Connectivity Challenges</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ating-the-art-of-youtube-thumbnails-for-2024/"><u>Navigating the Art of YouTube Thumbnails for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-visionarys-list-the-finest-26-video-to-text-converters-available-for-2024/"><u>The Visionary’s List The Finest 26 Video-to-Text Converters Available for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/forming-viewers-into-revenue-youtube-money-secrets-unveiled-for-2024/"><u>Transforming Viewers Into Revenue YouTube Money Secrets Unveiled for 2024</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/ultimate-selection-of-the-7-premier-mp4-fusion-tools-to-unite-your-videos-in-one-clip/"><u>Ultimate Selection of the 7 Premier MP4 Fusion Tools to Unite Your Videos in One Clip</u></a></li>
+</ul></div>
 
