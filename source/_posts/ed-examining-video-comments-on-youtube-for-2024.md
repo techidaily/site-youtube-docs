@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Examining Video Comments on YouTube for 2024"
-date: 2024-07-13T06:47:56.513Z
-updated: 2024-07-14T06:47:56.513Z
+date: 2024-09-14T23:47:56.340Z
+updated: 2024-09-17T21:11:32.962Z
 tags:
   - ai video
   - ai youtube
@@ -99,6 +99,13 @@ This mode allows you to enter special commands to carry out an advanced search. 
 2. ‘:all’ to see all comments
 3. ‘:creator’ to get comments made by the creator
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4: How Do You Search Comments You Have Posted on YouTube?
 
 Did you post a comment on your favorite celebrity’s video? Do you think it may be embarrassing and want to delete it now but cannot find it now amidst so many comments? It is where you can make use of YouTube’s Comment History feature.
@@ -140,20 +147,24 @@ Find feedback or questions. Report offensive comments. If you are a regular YouT
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -162,6 +173,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/ree-thumbnail-extract-from-youtube-videos-today-in-2024/"><u>[New] Free Thumbnail Extract From YouTube Videos Today, In 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-peeking-into-instagram-stories-what-viewers-dont-know-for-2024/"><u>[New] Peeking Into Instagram Stories What Viewers Don’t Know for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-decoding-the-secret-of-highest-quality-youtube-mp3s/"><u>[Updated] 2024 Approved Decoding the Secret of Highest Quality YouTube MP3s</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-expert-recommended-5-ps1-game-simulators-on-your-pc/"><u>[Updated] In 2024, Expert-Recommended 5 PS1 Game Simulators on Your PC</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-innovative-design-crafting-youtubes-efficient-subscribe-page/"><u>[Updated] In 2024, Innovative Design Crafting YouTube's Efficient Subscribe Page</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-navigating-filmoras-fcc-initiative-a-guide/"><u>[Updated] In 2024, Navigating Filmora's FCC Initiative A Guide</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-a-stepwise-approach-to-planning-online-collaborative-meets/"><u>2024 Approved A Stepwise Approach to Planning Online Collaborative Meets</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-the-ultimate-free-guide-to-accessing-youtube-video-texts/"><u>In 2024, The Ultimate FREE Guide to Accessing YouTube Video Texts</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/in-depth-evaluation-of-the-pixio-px277-maximum-gaming-display-an-unlikely-gem/"><u>In-Depth Evaluation of the Pixio PX277 Maximum Gaming Display: An Unlikely Gem</u></a></li>
+<li><a href="https://win-forum.techidaily.com/mastering-the-command-prompt-removing-files-and-directories-on-windows-11/"><u>Mastering the Command Prompt: Removing Files and Directories on Windows 11</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/network-knights-guide-to-overcoming-obs-studios-windows-hiccup-7-ways/"><u>Network Knights' Guide to Overcoming OBS Studio's Windows Hiccup (7 Ways)</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/r-made-viewing-pace-on-youtube-at-your-fingertips/"><u>Tailor-Made Viewing Pace on YouTube at Your Fingertips</u></a></li>
+<li><a href="https://games-able.techidaily.com/1719169210540-the-role-of-technology-in-modern-map-making-eg-gis-systems-digital-cartography/"><u>The Role of Technology in Modern Map-Making (E.g., GIS Systems, Digital Cartography)</u></a></li>
+</ul></div>
 

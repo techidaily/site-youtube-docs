@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Prevent Thumbnail Absence in Shorts Uploads for 2024"
-date: 2024-07-13T06:53:08.362Z
-updated: 2024-07-14T06:53:08.362Z
+date: 2024-09-15T22:40:51.733Z
+updated: 2024-09-17T21:29:02.430Z
 tags:
   - ai video
   - ai youtube
@@ -121,6 +121,13 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![watching a shorts video on mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-1.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Like the Shorts video.
 
 ![liked a shorts video on mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-2.JPG)
@@ -128,6 +135,13 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 * Tap "Library"
 
 ![library tab on youtube mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-3.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Scroll down to find "Liked Videos." Click on it.
 
@@ -159,6 +173,19 @@ Luckily, that's going to change. Starting this year, Shorts will be a part of th
 
 YouTube also adjusted the requirements to qualify for the YPP. They made it easier for Shorts content creators to get into the program.
 
+<!-- affiliate ads begin -->
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Q7\. How Do You Make YouTube Shorts Play Normal?
 
 You can watch Shorts like normal YouTube videos where you can rewind when you want to. Follow these steps.
@@ -176,6 +203,13 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 * Click "Library" on the left panel.
 
 ![library tab on the youtube website](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-3.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Select the Shorts you just watched. It should be on the top and first on the list.
 
@@ -203,6 +237,13 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![watching shorts like normal video mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-5.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Unfortunately, custom thumbnails not showing on Shorts does not have a fix yet. So to attract viewers, you must leverage the things in your control. You must title your videos in a way that will make users click the video. Also, adding effects and filters on the video using an editor like Wondershare Filmora can help.
@@ -221,8 +262,6 @@ Users can subscribe to Shorts channels. And if they see that your videos are wel
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -230,6 +269,19 @@ Users can subscribe to Shorts channels. And if they see that your videos are wel
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-channeling-success-navigating-the-new-youtube-membership-model-for-2024/"><u>[New] Channeling Success Navigating the New YouTube Membership Model for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-erasing-extra-borders-for-smooth-youtube-playback/"><u>[New] Erasing Extra Borders for Smooth YouTube Playback</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-embark-on-your-video-vision-start-your-youtube-channel/"><u>[New] In 2024, Embark on Your Video Vision Start Your YouTube Channel</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-break-even-on-youtube-monetizing-with-a-minimum-of-500-viewers/"><u>[Updated] Break Even on Youtube Monetizing with a Minimum of 500 Viewers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-powerpoint-mastery-integrating-external-video-urls/"><u>[Updated] In 2024, PowerPoint Mastery Integrating External Video URLs</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-master-the-art-of-youtube-thumbnails-in-minutes/"><u>[Updated] Master the Art of YouTube Thumbnails in Minutes</u></a></li>
+<li><a href="https://extra-information.techidaily.com/enhancing-focus-with-bigger-youtube-videos/"><u>Enhancing Focus with Bigger YouTube Videos</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/free-methods-to-bypass-blu-ray-regional-lockout-across-various-players/"><u>Free Methods to Bypass Blu-Ray Regional Lockout Across Various Players</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-how-to-get-more-subscribers-on-youtube/"><u>In 2024, How to Get More Subscribers on YouTube</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-apps-and-online-tools-to-track-infinix-hot-40i-phone-withwithout-imei-number-by-drfone-android/"><u>In 2024, Top Apps and Online Tools To Track Infinix Hot 40i Phone With/Without IMEI Number</u></a></li>
+<li><a href="https://extra-support.techidaily.com/scouting-for-subtle-sophisticated-and-spare-tiktok-screenshots-for-2024/"><u>Scouting for Subtle, Sophisticated, and Spare TikTok Screenshots for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/tiny-thesis-for-film-storyline/"><u>Tiny Thesis for Film Storyline</u></a></li>
+</ul></div>
 

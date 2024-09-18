@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Million Visioners  Dissecting the Money Behind the Numbers\""
-date: 2024-07-13T06:48:09.010Z
-updated: 2024-07-14T06:48:09.010Z
+date: 2024-09-13T22:30:53.043Z
+updated: 2024-09-17T22:26:36.860Z
 tags:
   - ai video
   - ai youtube
@@ -68,6 +68,13 @@ For example, gaming is the most prominent genre on YouTube, and there are many g
 
 CPC means ‘cost per click.’ A CPC ad interprets an ‘ad impression’ as a click on an ad rather than a viewer merely seeing it. Most YouTube ads are CPC ads, but skippable video ads are CPV (cost per view), and impressions are based on viewers watching the ad instead of skipping it.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Changes on YouTube and How You Can Earn More
 
 Changes that have affected the way that revenue is calculated are the ability to skip ads and the lower click rates on advertising through YouTube. A huge portion of viewers uses ad blockers, which eliminates them as potential sources of revenue.
@@ -115,6 +122,13 @@ As of February 2018, to qualify for ad revenue, the YouTube channel must have:
 2\. You will need to have accumulated 4,000 hours of watch time over the last 12 months.
 
 The AdSense revenue that you earn through YouTube will vary depending on a large number of factors related to the specific ads running and what type of content you produce.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Understanding CPM and CPCs
 
@@ -180,6 +194,13 @@ The AdSense revenue that you earn through YouTube will vary depending on a large
 
 ## Understanding CPM and CPCs
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### What is CPM?
 
 CPM stands as the ‘cost per mille’ or ‘cost per thousand.’
@@ -191,6 +212,13 @@ For example, gaming is the most prominent genre on YouTube, and there are many g
 ### What is CPC?
 
 CPC means ‘cost per click.’ A CPC ad interprets an ‘ad impression’ as a click on an ad rather than a viewer merely seeing it. Most YouTube ads are CPC ads, but skippable video ads are CPV (cost per view), and impressions are based on viewers watching the ad instead of skipping it.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Changes on YouTube and How You Can Earn More
 
@@ -239,6 +267,13 @@ As of February 2018, to qualify for ad revenue, the YouTube channel must have:
 2\. You will need to have accumulated 4,000 hours of watch time over the last 12 months.
 
 The AdSense revenue that you earn through YouTube will vary depending on a large number of factors related to the specific ads running and what type of content you produce.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Understanding CPM and CPCs
 
@@ -285,8 +320,6 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -295,6 +328,22 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-7-comedy-youtube-video-ideas-that-funny-people-can-try-for-2024/"><u>[New] 7 Comedy YouTube Video Ideas That Funny People Can Try for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-evaluating-brightness-in-hdr-quality-assessment-complete-in-2024/"><u>[New] Evaluating Brightness in HDR Quality Assessment Complete, In 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-perfecting-pics-with-practicality-top-5-pc-snipping-tools/"><u>[New] Perfecting Pics with Practicality - Top 5 PC Snipping Tools</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/he-ultimate-guide-to-free-multimedia-content-creation/"><u>[New] The Ultimate Guide to Free Multimedia Content Creation</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-harmonizing-visuals-and-soundtracks-with-youtubes-video-editor/"><u>[Updated] 2024 Approved Harmonizing Visuals & Soundtracks with YouTube's Video Editor</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-teach-with-technology-effective-use-of-youtube-in-education-for-2024/"><u>[Updated] Teach with Technology Effective Use of YouTube in Education for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-visionary-voices-triumph-online/"><u>2024 Approved Visionary Voices Triumph Online</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ing-buzz-and-views-masterful-strategies-for-youtube-success-for-2024/"><u>Boosting Buzz & Views Masterful Strategies for YouTube Success for 2024</u></a></li>
+<li><a href="https://os-tips.techidaily.com/cant-find-your-songs-on-the-iphone-here-are-7-ways-to-bring-back-your-tunes/"><u>Can't Find Your Songs on the iPhone? Here Are 7 Ways to Bring Back Your Tunes</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-play-hevc-h-265-video-on-civi-3-disney-100th-anniversary-edition-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>How to play HEVC H.265 video on Civi 3 Disney 100th Anniversary Edition?</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/in-2024-broadcasting-without-rts-video-tweeting-simplified/"><u>In 2024, Broadcasting Without RTs Video Tweeting Simplified</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-taking-a-step-back-inverting-image-queries-in-instagram/"><u>In 2024, Taking a Step Back Inverting Image Queries in Instagram</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/mastering-lock-screen-settings-how-to-enable-and-disable-on-vivo-s17-pro-by-drfone-android/"><u>Mastering Lock Screen Settings How to Enable and Disable on Vivo S17 Pro</u></a></li>
+<li><a href="https://media-tips.techidaily.com/the-disney-max-streaming-package-a-fresh-take-on-cable-tv-for-modern-viewers/"><u>The Disney MAX Streaming Package: A Fresh Take on Cable TV for Modern Viewers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/rugal-filmmakers-choice-best-cameras-at-low-costs-for-2024/"><u>The Frugal Filmmaker's Choice Best Cameras at Low Costs for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] From Camera to Chrome  YouTube Shorts Video Upload Guide\""
-date: 2024-09-11T14:12:20.617Z
-updated: 2024-09-12T14:12:20.617Z
+date: 2024-09-11T18:55:21.315Z
+updated: 2024-09-17T23:41:52.913Z
 tags:
   - ai video
   - ai youtube
@@ -34,13 +34,6 @@ With that said, the following sections explain the step-by-step process on **how
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 1: How to Upload Short Video on YouTube from PC?
 
@@ -80,25 +73,11 @@ For Win 7 or later (64-bit)
 
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115934/19272" target="_top" id="2115934">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115934" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115934/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
 For macOS 10.12 or later
 
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ---
 
@@ -116,31 +95,11 @@ The process of **uploading YouTube Shorts** from the mobile app is fairly simple
 
 ![Select a Video to Upload as Shorts](https://images.wondershare.com/filmora/article-images/select-shorts-videos-to-upload-on-youtube.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 On your Android or iOS smartphone, launch the YouTube app, tap the **+** (**Create**) icon from the bottom, tap **Create a Short** from the **Create** box that pops up from the bottom, tap **Upload** from the bottom-right corner of the next screen, and select and upload a short, 60 seconds video recorded in portrait orientation from your device’s storage to the app.
 
 #### Step 2: Add Details
 
 ![add details to Shorts video](https://images.wondershare.com/filmora/article-images/add-details-to-youtube-shrots-video.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the bottom-left corner to add a background music and caption to the video respectively, and tap **NEXT** from the top-right corner. On the next screen, enter a name for the video in the **Title** field along with the **#Shorts** tag, and tap **Select audience** to choose your preferred audience.
 
@@ -159,10 +118,10 @@ Please note you will not see the **Create a Short** option if you are outsides o
 ![ Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 In the YouTube app, tap the **+** (**Add**) button and select **Create** **a Short**. Please note you will not see the **Create a Short** option if you are outsides of India.
@@ -181,33 +140,20 @@ On the **Add details** window, enter a name for the video along with the **#Shor
 
 **[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)**
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115914/19272" target="_top" id="2115914">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115914" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115914/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Conclusion**
 
 Learning the process of **how to post short videos on YouTube** is fairly simple as long as you have the video recorded in the portrait orientation, it is up to 60 seconds long, and contains the ‘#Shorts’ tag (without quotes) in the title or description. The good thing is, if you don’t have access to the YouTube app on your smartphone, the method for **how to upload short video on YouTube** explained in the first section can be followed while using your desktop computer.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
 <!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118324/7443" target="_top" id="2118324">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118324" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118324/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -230,18 +176,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-premier-5-minute-longshot-recorder-for-2024/"><u>[New] Premier 5-Minute Longshot Recorder for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/he-filmmakers-toolkit-essential-tips-for-youtube-creators-with-smartphones-for-2024/"><u>[New] The Filmmaker's Toolkit Essential Tips for YouTube Creators with Smartphones for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ltimate-a-list-viewing-channel-guide-for-films-for-2024/"><u>[New] Ultimate A-List Viewing Channel Guide for Films for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-essential-guide-to-youtube-video-resolutions-and-aspects/"><u>[Updated] In 2024, Essential Guide to YouTube Video Resolutions & Aspects</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-fixed-easily-accessible-shorts-on-youtube/"><u>[Updated] In 2024, Fixed Easily Accessible Shorts on YouTube</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-game-masters-top-ten-female-gaming-influencers/"><u>[Updated] In 2024, Game Masters Top Ten Female Gaming Influencers</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-prospects-picks-the-highest-livestream-sites/"><u>[Updated] In 2024, Prospects' Picks The Highest Livestream Sites</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-sound-sanitization-cleaning-up-your-online-footage/"><u>[Updated] In 2024, Sound Sanitization Cleaning Up Your Online Footage</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-seamless-sound-shift-ultimate-guide-to-video-to-audio-tools/"><u>[Updated] Seamless Sound Shift Ultimate Guide to Video-to-Audio Tools</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-in-pursuit-of-clarity-with-benq-sw320s-4k-screen/"><u>2024 Approved In Pursuit of Clarity with BenQ SW320's 4K Screen</u></a></li>
-<li><a href="https://program-issues.techidaily.com/how-to-prevent-and-solve-black-desert-online-from-crashing-windows-1011/"><u>How to Prevent and Solve Black Desert Online From Crashing Windows 10/11</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-11-exceptional-free-music-recording-programs-for-beginners-and-pros-for-2024/"><u>New 11 Exceptional Free Music Recording Programs for Beginners and Pros for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/troubleshooting-guide-resolving-persistent-freezing-in-blender-for-pc-users/"><u>Troubleshooting Guide: Resolving Persistent Freezing in Blender for PC Users</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-enhancing-content-visibility-slug-line-tactics/"><u>[New] 2024 Approved Enhancing Content Visibility Slug Line Tactics</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-dispelling-darkness-enhancing-youtube-views/"><u>[New] In 2024, Dispelling Darkness, Enhancing Youtube Views</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-youtube-snippets-overview-explained/"><u>[New] In 2024, YouTube Snippets Overview Explained</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-rush-release-channeling-playlist-hits-online/"><u>[Updated] 2024 Approved Rush Release Channeling Playlist Hits Online</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-crafting-engaging-haul-vids-a-step-by-step-guide/"><u>2024 Approved Crafting Engaging Haul Vids A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/fying-video-clarity-on-youtube/"><u>Amplifying Video Clarity on YouTube</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-rootjunky-apk-to-bypass-google-frp-lock-for-oppo-a78-by-drfone-android/"><u>In 2024, Rootjunky APK To Bypass Google FRP Lock For Oppo A78</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ispoofer-is-not-working-on-honor-magic5-ultimate-fixed-drfone-by-drfone-virtual-android/"><u>iSpoofer is not working On Honor Magic5 Ultimate? Fixed | Dr.fone</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/mpeg-file-recovery-tool-how-to-repair-and-revitalize-damaged-video-content/"><u>MPEG File Recovery Tool: How to Repair and Revitalize Damaged Video Content</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/perfecting-highlight-covers-an-in-depth-insta-photography-guide/"><u>Perfecting Highlight Covers An In-Depth Insta Photography Guide</u></a></li>
 </ul></div>
 

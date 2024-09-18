@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Perfect Shots Start With The Right Camera & Lens Selection"
-date: 2024-07-13T06:46:16.877Z
-updated: 2024-07-14T06:46:16.877Z
+date: 2024-09-14T19:15:27.288Z
+updated: 2024-09-17T19:33:16.696Z
 tags:
   - ai video
   - ai youtube
@@ -101,13 +101,34 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 100mm      | 63mm  | 50mm      |
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Aperture
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123478/16836" target="_top" id="2123478">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123478" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123478/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118304/7443" target="_top" id="2118304">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118304" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118304/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
 
@@ -149,14 +170,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -165,6 +183,16 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-pulse-of-the-party-free-impeccable-dj-template-videos/"><u>[Updated] 2024 Approved Pulse of the Party Free, Impeccable DJ Template Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-time-travel-for-video-views-youtube-upside-down-guide/"><u>[Updated] 2024 Approved Time Travel for Video Views YouTube Upside-Down Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-empowering-learning-through-educational-videos-on-youtube/"><u>[Updated] Empowering Learning Through Educational Videos on YouTube</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-breaking-down-advanced-photographic-modes-for-enhanced-results/"><u>2024 Approved Breaking Down Advanced Photographic Modes for Enhanced Results</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/s-of-perspective-youtubes-path-to-dynamic-video-editing/"><u>Angles of Perspective YouTube's Path to Dynamic Video Editing</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-the-latest-nvidia-geforce-rtx-1080-drivers-for-windows-11-users-download-guide/"><u>Get the Latest Nvidia GeForce RTX 1080 Drivers for Windows 11 Users – Download Guide</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/no-more-troubles-mastering-ipad-video-captures-now-for-2024/"><u>No More Troubles? Mastering iPad Video Captures Now for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/overview-of-the-best-oppo-a18-screen-mirroring-app-drfone-by-drfone-android/"><u>Overview of the Best Oppo A18 Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-bring-your-ideas-to-life-the-top-8-animation-software-for-mac-and-windows/"><u>Updated Bring Your Ideas to Life The Top 8 Animation Software for Mac and Windows</u></a></li>
+</ul></div>
 

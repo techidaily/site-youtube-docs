@@ -1,7 +1,7 @@
 ---
 title: "In 2024, YouTube Producers' Favorite Cameras & Lenses"
-date: 2024-07-13T06:52:31.119Z
-updated: 2024-07-14T06:52:31.119Z
+date: 2024-09-11T16:45:37.786Z
+updated: 2024-09-17T16:38:58.031Z
 tags:
   - ai video
   - ai youtube
@@ -101,6 +101,19 @@ Canon released this lens in 2014 and shortly after it has gained the reputation 
 
 ![camera lens](https://images.wondershare.com/filmora/article-images/camera-lens-rec01.JPG)
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="864" height="1296" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The EF 50mm is a fixed lens with an f-stop of 1.8, which means it is great for blurring your background and performs well even in poorer lighting conditions. This is a really great lens for an opinion or beauty vlog, where you do not need to move around. You can stay put right where the focus is sharpest and stand out by blurring everything behind you. If you tend to reuse the same sets then you do not really need a zoom feature. If your shooting conditions rarely change then it is just as easy to use a reliable fixed lens like the EF 50mm since you will not need to be rethinking your set up and adjusting.
 
 If you are looking for an inexpensive prime lens that lets you create sharp videos with shallow depth of field, you should look no further. This model is one of three Canon's 50mm prime lenses, although the [50mm f/1.4 USM](https://www.amazon.com/Canon-Standard-Medium-Telephoto-Cameras/dp/B00009XVCZ/ref=as%5Fli%5Fss%5Ftl?ie=UTF8&qid=1438974280&sr=8-3&keywords=Canon+50+mm&linkCode=sl1&tag=omnideals-20&linkId=11bff1019e73f0462c30a04e98d4874f&linkCode=w61&imprToken=ZJIXM-O6nkoYz.LvcTe) and [50mm f/1.2 'L' USM](https://www.amazon.com/Canon-50mm-Lens-Digital-Cameras/dp/B000I1YIDQ/ref=as%5Fli%5Fss%5Ftl?ie=UTF8&qid=1438974280&sr=8-4&keywords=Canon+50+mm&linkCode=sl1&tag=omnideals-20&linkId=d77bb813550f12e8aa72c8738dfaad81&linkCode=w61&imprToken=ZJIXM-O6nkoYz.LvcTeAiw&slot) models are much more expensive. You can use it to record a lot of different types of YouTube videos, like product reviews or makeup tutorials. The 50 mm f/1.8 STM lens doesn't have image stabilization technology so you should try to be as still as you can possibly be when shooting handheld videos in order to avoid recording footage that has a lot of camera shakes.
@@ -112,6 +125,13 @@ Recording **moving objects** from a distance requires you to have a lens that al
 #### 5. Tamron SP AF 17-50mm f/2.8 XR Di II LD Aspherical (IF) Lens
 
 ![camera lens rec02](https://images.wondershare.com/filmora/article-images/camera-lens-rec02.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115917/19272" target="_top" id="2115917">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115917" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115917/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The Tamron's standard zoom lens offers good value at a very reasonable price. The maximum aperture is f/2.8, while the minimum aperture value this lens supports is f/32, which means that its users can easily experiment with different **depths of field.** The lens is **compatible with most Canon cameras** so if you have a camera from another manufacturer you may have to use the lens adapter in order to mount it onto your camera. Like most standard zoom lenses, Tamron SP AF model is **highly versatile** and you can use it to record **a wide range of different scenes**.
 
@@ -131,14 +151,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -147,6 +164,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-paving-the-way-the-trailblazing-ladies-of-online-video-content/"><u>[New] In 2024, Paving the Way The Trailblazing Ladies of Online Video Content</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-sonys-pursuit-of-perfection-the-4k-smartphone-experience/"><u>[New] Sony's Pursuit of Perfection The 4K Smartphone Experience</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-artful-approaches-to-elevating-your-fb-ad-reach/"><u>[Updated] 2024 Approved Artful Approaches to Elevating Your FB Ad Reach</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-profit-pioneering-transforming-youtube-views-into-vast-revenue-on-mobile/"><u>[Updated] 2024 Approved Profit Pioneering Transforming YouTube Views Into Vast Revenue on Mobile</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-mirroring-mastery-the-craft-of-comical-mocks/"><u>[Updated] Mirroring Mastery The Craft of Comical Mocks</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-pros-picks-top-10-shaky-free-cameras-for-action/"><u>[Updated] Pro's Picks Top 10 Shaky-Free Cameras for Action</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-softening-edges-strategic-lighting-for-content-creators/"><u>[Updated] Softening Edges Strategic Lighting for Content Creators</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-the-dynamics-of-gopros-burst-capture-capabilities/"><u>[Updated] The Dynamics of GoPro's Burst Capture Capabilities</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-vintage-video-production-techniques-for-timelessness/"><u>[Updated] Vintage Video Production Techniques for Timelessness</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ting-content-id-blocks-on-youtube-with-knowledge/"><u>Combating Content ID Blocks on YouTube with Knowledge</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-unfortunately-settings-has-stopped-on-tecno-phantom-v-fold-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Unfortunately Settings Has Stopped on Tecno Phantom V Fold Quickly | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-realme-note-50withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Realme Note 50with/without a PC</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-videos-from-oppo-find-x6-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Videos from Oppo Find X6 to iPad | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-can-i-use-a-fake-gps-without-mock-location-on-realme-note-50-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Use a Fake GPS Without Mock Location On Realme Note 50? | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/standing-and-crafting-youtube-live-thumbnails/"><u>Understanding and Crafting YouTube Live Thumbnails</u></a></li>
+</ul></div>
 

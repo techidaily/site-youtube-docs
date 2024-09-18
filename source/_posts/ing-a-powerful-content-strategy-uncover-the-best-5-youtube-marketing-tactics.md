@@ -1,7 +1,7 @@
 ---
 title: "\"Crafting a Powerful Content Strategy  Uncover the Best 5 YouTube Marketing Tactics\""
-date: 2024-07-13T06:46:21.840Z
-updated: 2024-07-14T06:46:21.840Z
+date: 2024-09-14T23:32:32.466Z
+updated: 2024-09-17T22:39:20.114Z
 tags:
   - ai video
   - ai youtube
@@ -96,6 +96,13 @@ In this window, you can see the different sources that led viewers to your video
 
 Analyzing YouTube videos will help you structure your future videos in a way that it is more susceptible to being clicked.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Tip #5: Track the effectiveness of your videos**
 
 You must have an eye on the metrics that your videos garner over the days. While the number of views, likes, and dislikes are great indicators in determining the popularity of the videos, but there are many more factors at play.
@@ -129,6 +136,13 @@ Creating attractive videos is a key to make success in Youtube video marketing. 
 To know more about Filmora Video Editor, visit its page: <https://filmora.wondershare.com/video-editor/>
 
 ![filmora](https://images.wondershare.com/filmora/guide/panel-layout-01.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -254,6 +268,19 @@ From June 23rd to June 27th, 2018, Unbox therapy had gained 12,583 subscribers. 
 
 We do not advise you to try this out when you are just starting your YouTube career. Only venture out to such investments when you are stable when it comes to earnings.
 
+<!-- affiliate ads begin -->
+<span id="1983575">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Tip#3: Ask your audience for Feedback**
 
 All your videos must be created with the audience in mind. However, sometimes what you may think would work might not fit well with the audience. Hence, it is imperative that you understand their likes and dislikes.
@@ -267,6 +294,19 @@ There is also another facet to incorporating audience feedback as it projects yo
 YouTube has made it easier for you to track the sources from which your videos are getting the views. Sign in to YouTube Studio Beta and the click Reach from the Analytics menu provided on the left panel. Now click on Traffic source types.
 
 ![YouTube Analytics](https://images.wondershare.com/filmora/article-images/youtube-analytics.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1743243">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 In this window, you can see the different sources that led viewers to your video. Generally, it can be a mix of websites, YouTube recommendation’s, YouTube search, etc. Metrics like Watch Time gives you an idea of how long viewers watch your videos and Audience Retention shows how consistent they are at watching them. These are just two of the many metrics you can use to your advantage.
 
@@ -341,6 +381,13 @@ And the result of the announcement was evident in the subscribers count.
 From June 23rd to June 27th, 2018, Unbox therapy had gained 12,583 subscribers. However, from the announcement date that is June 27th to June 30th, 2018, the channel saw an increase of a whopping [52,173 subscribers](https://www.trackalytics.com/youtube/user/unboxtherapy/)! Till date, the video has over 14 million views
 
 We do not advise you to try this out when you are just starting your YouTube career. Only venture out to such investments when you are stable when it comes to earnings.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135476/26400" target="_top" id="2135476">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135476/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Tip#3: Ask your audience for Feedback**
 
@@ -411,8 +458,6 @@ The greatest takeaway from this guide should be that you must be patient and hav
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -421,6 +466,23 @@ The greatest takeaway from this guide should be that you must be patient and hav
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/etailed-guide-crafting-powerful-video-thumbnails-for-content-marketing/"><u>[New] Detailed Guide Crafting Powerful Video Thumbnails for Content Marketing</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ow-to-edit-youtube-videos-by-the-youtube-video-editor/"><u>[New] How to Edit Youtube Videos by the YouTube Video Editor</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-step-by-step-on-streaming-google-meet-directly-to-youtube-channel/"><u>[New] In 2024, Step by Step on Streaming Google Meet Directly to YouTube Channel</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-starting-off-with-zoom-meetings-your-first-steps-guide/"><u>[New] Starting Off with Zoom Meetings Your First Steps Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/he-essential-youtube-beauty-guides-you-cant-miss-for-2024/"><u>[New] The Essential YouTube Beauty Guides You Can't Miss for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-expert-tips-for-dealing-with-youtube-copyright-notifications/"><u>[Updated] Expert Tips for Dealing With YouTube Copyright Notifications</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-adopting-nature-positive-policies-in-urban-governance/"><u>[Updated] In 2024, Adopting Nature-Positive Policies in Urban Governance</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-step-by-step-instagram-videos-that-wow-viewers-for-2024/"><u>[Updated] Step-by-Step Instagram Videos that Wow Viewers for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-youtube-profits-demystified-from-clicks-to-credit/"><u>[Updated] YouTube Profits Demystified From Clicks to Credit</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/100-safe-sources-for-legitimate-tiktok-growth/"><u>100% Safe Sources for Legitimate TikTok Growth</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/comparison-of-mkv-and-mp4-formats-which-one-offers-superior-quality/"><u>Comparison of MKV & MP4 Formats: Which One Offers Superior Quality?</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-step-by-step-guide-to-incorporating-yt-clips-into-presentations/"><u>In 2024, Step-by-Step Guide to Incorporating YT Clips Into Presentations</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/sky-cameras-battle-dji-pro-versus-gopro-fury-for-2024/"><u>Sky Cameras Battle DJI Pro Versus GoPro Fury for 2024</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/supplementary-data-handling-amendment-enhancing-information-management/"><u>Supplementary Data Handling Amendment: Enhancing Information Management</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/shing-youtube-potential-the-best-shortcuts-to-higher-views/"><u>Unleashing YouTube Potential The Best Shortcuts to Higher Views</u></a></li>
+<li><a href="https://techtrends.techidaily.com/whats-new-with-google-pixel-speculations-on-price-release-timeline-and-tech-specs-revealed/"><u>What's New with Google Pixel? Speculations on Price, Release Timeline, and Tech Specs Revealed</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Design Revolutionaries  Discovering 6 Icon & Logo Banks Online\""
-date: 2024-09-11T14:11:35.050Z
-updated: 2024-09-12T14:11:35.050Z
+date: 2024-09-12T19:37:09.890Z
+updated: 2024-09-17T21:24:53.706Z
 tags:
   - ai video
   - ai youtube
@@ -44,13 +44,6 @@ You might also want to check out these YouTube channels offering free [profile p
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 1\. [Flaticon.com](https://www.flaticon.com/)
 
 **Key Points:**
@@ -82,23 +75,9 @@ After clicking on a format you will also be prompted to choose a size for your i
 
 ![ download Logo Icon on Flaticon](https://images.wondershare.com/filmora/article-images/download-icons-logos-on-flaticon.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Flaticon has a great selection, it’s free, and they make it really easy to edit your creations. I would strongly recommend this site to anyone in the market for an icon or logo.
 
 Flaticon asks that you include an “Icon made by \[author link\] from <www.flaticon.com> ” somewhere (i.e. video description, channel ‘about’ section) when you use their icons for free.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 2\. [Freepik.com](https://www.freepik.com/)
 
@@ -135,13 +114,6 @@ I searched for YouTube – you never know when you might need the YouTube logo.
 
 Although the site does not advertise PNG in the list of formats on their front page, downloads do include PNG versions (which is useful if you need transparency and don’t have a program which can edit vector files, like .eps).
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 4\. [IconArchive.com](http://www.iconarchive.com/)
 
 **Key Points:**
@@ -159,13 +131,6 @@ My favorite thing about IconArchive is its search features. It allows you to fil
 
 ![ YouTube Logo Icon on IconArchive Editing](https://images.wondershare.com/filmora/article-images/edit-icons-logos-on-iconarchive.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Color is under ‘Display’, meaning that it won’t filter out results that have different colors it’ll just list the color you select first.
 
 The ‘Category’ filter is useful because there are some genres you probably recognize there, like ‘Lifestyle’. However, you should be careful not to over-filter. This site is pretty literal in how it categorizes. For example – there are no ‘flower’ images under ‘Lifestyle’.
@@ -175,10 +140,10 @@ Downloads are available in different sizes and formats including PNG. PNG is alw
 Note that all of your different download buttons will be located underneath your image. They favor those ads that look like ‘download’ or ‘start now’ buttons, and the ads sit right next to the images on the right, so it’s easy to get confused and click on the ad.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5\. [Logaster.com](https://www.logaster.com/)
@@ -200,10 +165,16 @@ In Step 1 it’ll ask for your company name and an activity type. You just need 
 ![ YouTube Logo Icon on Logaster Start Window](https://images.wondershare.com/filmora/article-images/branding-icons-logos-on-logaster.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 My heart burns with the secret desire to be YouTube’s Neil Degrasse Tyson (it doesn’t really, but he is super cool) so I tried ‘Katie Does Science’ and ‘Science, Studies, Education’. Here’s what it came up with:
@@ -234,6 +205,13 @@ To get started on Icons8, type something into the search bar on the home page th
 
 ![ Gaming Logo Icon on Icons8](https://images.wondershare.com/filmora/article-images/gaming-icons-logos-on-icons8.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 _Lower down in the results there were different kinds of sports balls, hand-held gaming systems, playing cards, joy sticks, baseball caps and more._
 
 After you find an icon you like, click on it and it will appear on the right side of your screen where you’ll be able to make a few changes (an editing screen will pop up once you start clicking on things). You can edit your colors, overlay small decals, add text, and add a border, change your background and adjust your size. Here’s the editing screen:
@@ -244,22 +222,15 @@ You can give your icon a pretty different look from its default. Check this out:
 
 ![ Change Gaming Logo Icon background on Icons8](https://images.wondershare.com/filmora/article-images/change-gaming-icons-logos-background-on-icons8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 You cannot download your icon from the editing screen. You need to click Save, and then download it from the main display screen here:
 
 ![ Donwload Gaming Logo Icon  on Icons8](https://images.wondershare.com/filmora/article-images/download-gaming-icons-logos-on-icons8.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123473/16836" target="_top" id="2123473">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123473" border="0" alt="https://techidaily.com" width="254" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123473/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 You can change the size with that drop down menu, but you’ll be limited in your options if you don’t want to pay.
@@ -273,10 +244,10 @@ However, the preview is larger than the actual profile picture. Once I set it, i
 ![ Preview Gaming Logo Icon made with icons8 to YouTube](https://images.wondershare.com/filmora/article-images/preview-gaming-icons-logos-made-with-icons8.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Looking for somewhere you can build your own icon/logo from scratch? Check out this [list of logo makers](https://www.filmora.io/community-blog/top-9-free-youtube-logo-makers-304.html).
@@ -286,13 +257,6 @@ After downloading the icons or logos, it is time to add them to your YouTube vid
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123470/16836" target="_top" id="2123470">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123470" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123470/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -315,13 +279,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-thriving-online-finding-compatible-co-stars-for-youtube/"><u>[New] In 2024, Thriving Online Finding Compatible Co-Stars for YouTube</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-watch-deleted-youtube-secrets-to-accessing-lost-content/"><u>[New] In 2024, Watch Deleted YouTube Secrets to Accessing Lost Content</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-how-to-make-reels-on-instagram-like-a-ninja/"><u>[Updated] 2024 Approved How to Make Reels on Instagram Like a Ninja</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-expert-techniques-for-deciphering-meaning-in-youtube-snippets/"><u>[Updated] Expert Techniques for Deciphering Meaning in YouTube Snippets</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-building-awesome-channel-art-for-your-youtube-presence/"><u>[Updated] In 2024, Building Awesome Channel Art for Your YouTube Presence</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-going-viral-guide-keyword-strategies-for-cut-to-the-chase-videos/"><u>[Updated] In 2024, Going Viral Guide Keyword Strategies for Cut-to-the-Chase Videos</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-navigating-famebit-pathways-to-secure-youtube-partnerships-for-2024/"><u>[Updated] Navigating FameBit Pathways to Secure YouTube Partnerships for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/step-by-step-instructions-to-force-restart-in-windows-11-safely/"><u>Step-by-Step Instructions to Force Restart in Windows 11 Safely</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/elightful-yuletide-cinema-on-youtube-savor-nine-whole-film-gems/"><u>[New] Delightful Yuletide Cinema on YouTube Savor Nine Whole-Film Gems</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-facebook-film-fans-choosing-the-best-extensions-and-downloader-plugins-on-firefox-for-2024/"><u>[New] Facebook Film Fans Choosing the Best Extensions and Downloader Plugins on Firefox for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-affordable-minecraft-video-graphics/"><u>[New] In 2024, Affordable Minecraft Video Graphics</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-avoiding-pitfalls-understanding-youtube-standards/"><u>[New] In 2024, Avoiding Pitfalls Understanding YouTube Standards</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-navigating-firefoxs-picture-in-picture-capabilities/"><u>[New] In 2024, Navigating Firefox's Picture-in-Picture Capabilities</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-boost-popularity-quickly-top-30-hashtags-every-gamer-needs/"><u>[Updated] Boost Popularity Quickly Top 30 Hashtags Every Gamer Needs</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-mastering-instagram-videos-for-marketing-top-10-strategic-plans/"><u>[Updated] Mastering Instagram Videos for Marketing Top 10 Strategic Plans</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-pushing-the-boundaries-in-depth-review-of-benq-sw320s-4k-display-for-2024/"><u>[Updated] Pushing the Boundaries In-Depth Review of BenQ SW320's 4K Display for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/cyberpower-cp685avrg-analysis-simplistic-design-meets-core-protection-needs-for-critical-devices/"><u>Cyberpower CP685AVRG Analysis: Simplistic Design Meets Core Protection Needs for Critical Devices</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/fix-mobile-device-errors-fb-vids-not-loading/"><u>Fix Mobile Device Errors FB Vids Not Loading</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/novice-to-pro-your-step-by-step-guide-to-youtube-live-images/"><u>From Novice to Pro Your Step-by-Step Guide to YouTube Live Images</u></a></li>
+<li><a href="https://blog-min.techidaily.com/in-2024-how-to-use-life360-on-windows-pc-for-oppo-a1-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Life360 on Windows PC For Oppo A1 5G? | Dr.fone</u></a></li>
 </ul></div>
 

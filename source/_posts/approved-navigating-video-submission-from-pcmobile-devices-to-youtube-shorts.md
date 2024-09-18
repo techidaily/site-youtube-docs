@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Navigating Video Submission  From PC/Mobile Devices to YouTube Shorts\""
-date: 2024-07-13T06:52:37.653Z
-updated: 2024-07-14T06:52:37.653Z
+date: 2024-09-15T20:14:33.878Z
+updated: 2024-09-17T16:07:20.321Z
 tags:
   - ai video
   - ai youtube
@@ -128,11 +128,25 @@ On the **Add details** window, enter a name for the video along with the **#Shor
 
 **[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)**
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Conclusion**
 
 Learning the process of **how to post short videos on YouTube** is fairly simple as long as you have the video recorded in the portrait orientation, it is up to 60 seconds long, and contains the ‘#Shorts’ tag (without quotes) in the title or description. The good thing is, if you don’t have access to the YouTube app on your smartphone, the method for **how to upload short video on YouTube** explained in the first section can be followed while using your desktop computer.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -142,14 +156,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -158,6 +169,16 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/ackward-glance-decoding-youtube-video-reversals-for-2024/"><u>[New] Backward Glance Decoding YouTube Video Reversals for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-the-ultimate-trifecta-for-instagram-video-borders/"><u>[New] The Ultimate Trifecta for Instagram Video Borders</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-how-to-innovate-transforming-raw-footage-into-youtube-thumbnails-via-smartphones-for-2024/"><u>[Updated] How to Innovate Transforming Raw Footage Into YouTube Thumbnails via Smartphones for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-key-factors-for-long-term-profitability-with-youtube-shorts-for-2024/"><u>[Updated] Key Factors for Long-Term Profitability with YouTube Shorts for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-mastering-instagram-stardom-in-just-nine-easy-tips/"><u>[Updated] Mastering Instagram Stardom in Just Nine Easy Tips</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-crafting-worldly-stories-startup-guide-for-future-travel-vloggers/"><u>2024 Approved Crafting Worldly Stories Startup Guide for Future Travel Vloggers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-premier-e-learning-platforms-for-coding/"><u>Exploring the Premier E-Learning Platforms for Coding</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-in-2024-audio-engineering-simplified-utilizing-dynamic-ducking-techniques-in-final-cut-pro-x-for-professional-results/"><u>New In 2024, Audio Engineering Simplified Utilizing Dynamic Ducking Techniques in Final Cut Pro X for Professional Results</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/why-your-old-phone-wont-pair-with-android-auto-understanding-the-latest-restrictions/"><u>Why Your Old Phone Won't Pair with Android Auto – Understanding the Latest Restrictions</u></a></li>
+</ul></div>
 

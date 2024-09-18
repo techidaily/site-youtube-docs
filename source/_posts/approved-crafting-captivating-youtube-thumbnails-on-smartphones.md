@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Crafting Captivating YouTube Thumbnails on Smartphones\""
-date: 2024-07-13T06:48:28.640Z
-updated: 2024-07-14T06:48:28.640Z
+date: 2024-09-16T00:12:34.068Z
+updated: 2024-09-17T17:07:41.040Z
 tags:
   - ai video
   - ai youtube
@@ -142,6 +142,19 @@ Step5 Tap Save in the top right corner to upload the thumbnail to your video.
 
 That's it! Your new thumbnail will now be displayed on your YouTube video, helping it stand out and attract more views. You can repeat this process for other videos if you want to add a custom thumbnail.
 
+<!-- affiliate ads begin -->
+<span id="1160850">
+					<video width="576" height="324" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## It May Interest You – Make YouTube Thumbnails on Windows/Mac
 
 While it's convenient to create YouTube thumbnails on your mobile device, there may be times when you need to create a thumbnail on your Windows or Mac computer.
@@ -161,6 +174,13 @@ To create a thumbnail using Filmora on your Windows or Mac computer, follow thes
 Step1 Launch Filmora, add the picture to the timeline and **select** the AI Portrait option in the Effects panel to cut out the subject from the background.
 
 ![filmora interface](https://images.wondershare.com/filmora/article-images/filmora-interface.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step2 Scale up and reposition the photo.
 
@@ -229,6 +249,13 @@ Step1 Open the Play Store and **search** for PixelLab. **Install** the app.
 Step2 Tap the **"+"** icon to **add** an image from your gallery.
 
 ![pixellab add image](https://images.wondershare.com/filmora/article-images/pixellab-add-image.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step3 Edit the image using the available tools, such as cropping, rotating, and adjusting the color and lighting.
 
@@ -311,6 +338,13 @@ Step2 Scale up and reposition the photo.
 
 ![filmora import image](https://images.wondershare.com/filmora/article-images/filmora-import-image.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120864/26400?prodsku=Mercury" target="_top" id="2120864">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120864/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Add a new background to the track below the picture. **Use** the other editing tools in Filmora to customize the image as desired, such as adding text, graphics, and special effects.
 
 ![filmora editing options](https://images.wondershare.com/filmora/article-images/filmora-editing-options.JPG)
@@ -318,6 +352,13 @@ Step3 Add a new background to the track below the picture. **Use** the other edi
 Step4 When you are done editing the thumbnail, take a **snapshot** by clicking the camera icon.
 
 ![filmora take a snapshot](https://images.wondershare.com/filmora/article-images/filmora-take-screenshot.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step5 Locate the thumbnail in your local drive.
 
@@ -369,8 +410,6 @@ Whether you create your thumbnails on your mobile device or your computer, use a
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -378,6 +417,18 @@ Whether you create your thumbnails on your mobile device or your computer, use a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/oost-your-content-access-free-vocal-sfx-in-2024/"><u>[New] Boost Your Content Access Free Vocal SFX, In 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-how-to-download-and-use-ifunny-meme-app/"><u>[New] How to Download and Use iFunny Meme App</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-embark-on-your-video-vision-start-your-youtube-channel/"><u>[New] In 2024, Embark on Your Video Vision Start Your YouTube Channel</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-top-ranked-5-game-chat-systems-for-vloggers/"><u>[New] In 2024, Top-Ranked 5 Game Chat Systems for Vloggers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-master-the-art-of-youtube-thumbnails-in-minutes/"><u>[Updated] Master the Art of YouTube Thumbnails in Minutes</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-streamlining-your-powerpoint-to-video-journey/"><u>2024 Approved Streamlining Your PowerPoint to Video Journey</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/facebooks-premier-evolution-the-five-must-know-features/"><u>Facebook's Premier Evolution The Five Must-Know Features</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/rical-deep-dives-from-youtubes-most-impactful-creators-for-2024/"><u>Historical Deep Dives From YouTube's Most Impactful Creators for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-excel-2013-files-on-mac-complete-guide-by-stellar-guide/"><u>How to Recover Deleted Excel 2013 Files on Mac Complete Guide</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-apple-iphone-15-plus-to-pc-via-usb-drfone-by-drfone-ios/"><u>In 2024, How to Mirror Apple iPhone 15 Plus to PC via USB? | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-step-by-step-guide-changing-voices-in-instagram-features/"><u>In 2024, Step-by-Step Guide Changing Voices in Instagram Features</u></a></li>
+</ul></div>
 

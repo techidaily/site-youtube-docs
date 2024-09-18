@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Perfecting Vlog Shots  How to Use a Tripod Like a Pro\""
-date: 2024-09-11T14:13:13.072Z
-updated: 2024-09-12T14:13:13.072Z
+date: 2024-09-15T16:17:19.391Z
+updated: 2024-09-17T21:55:05.792Z
 tags:
   - ai video
   - ai youtube
@@ -33,13 +33,6 @@ thumbnail: https://thmb.techidaily.com/3e134df3d1e30ff21305cf90a72d9a508b70a320e
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 1: How To Set a Tripod for Vlogging
 
 #### 1\. Setting Up Your Tripod
@@ -64,13 +57,6 @@ thumbnail: https://thmb.techidaily.com/3e134df3d1e30ff21305cf90a72d9a508b70a320e
 
  On the go videos, are recorded at exterior locations, and a lot of YouTubers choose to shoot these types of videos handheld, but this approach makes it difficult to maintain the same shot composition for long. A Monopod, Gorillapod or just a simple selfie stick can make your job much easier because they stabilize the camera. In addition, shooting smooth panning shots without a tripod is as difficult as it sounds.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3: A Few Things You'll Need to Consider Before You Buy a Tripod
 
  There are thousands of different tripod models you can use for vlogging, but which model you're going to choose depends mostly on the type of vlog you want to make. If you are planning on shooting all of your videos in the studio-like conditions, then portability isn't such an important feature, while quite the opposite is true if you intend on filming all of your footage on outdoor locations.
@@ -86,13 +72,6 @@ thumbnail: https://thmb.techidaily.com/3e134df3d1e30ff21305cf90a72d9a508b70a320e
 **Photo or Video Tripods:** Do you want to take beautiful panning shots? If the answer is yes then you should get a video tripod that enables you to move the camera smoothly in any direction. Photo tripods are a great option for static shots that don't involve a lot of camera movement.
 
  **Mobility:** The heavier a tripod is, the more stability it can provide, but carrying a tripod that weighs over 10 pounds to shoot sports or adventure vlogs can be a tiring endeavor. Although portability is a factor, it shouldn't prevent you from buying a high-quality tripod that will ensure your footage is perfectly smooth and stable.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4: 4 Types of Tripods
 
@@ -114,13 +93,6 @@ thumbnail: https://thmb.techidaily.com/3e134df3d1e30ff21305cf90a72d9a508b70a320e
 
 ![ YouTube Vlogger Tripod ](https://images.wondershare.com/filmora/article-images/camrah-smartphone-tripod.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115935/19272" target="_top" id="2115935">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115935" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115935/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  An increasing number of Smartphones features powerful cameras that can record videos at high resolutions. Unfortunately, most iPhones and Android devices are lightweight, which makes it difficult to hold them perfectly still while shooting a video. CamRah Smartphone Tripod offers a perfect solution to this problem because it is easy to pack and you can carry it wherever you go, without needing the extra space.
 
  It weighs just 0.6lbs and it is 10.8 inches tall. The tripod has a maximum load of 11lbs which means that besides Smartphones, you can also mount action cameras, webcams, or even smaller DSLR cameras onto it. The flexible legs made from high-density foam offer stability even when the CamRah Tripod is placed on an uneven surface.
@@ -141,13 +113,6 @@ thumbnail: https://thmb.techidaily.com/3e134df3d1e30ff21305cf90a72d9a508b70a320e
 **Price:** $34.99
 
 ![ YouTube Vlogger Tripod ](https://images.wondershare.com/filmora/article-images/manfrotto-mini-tripod.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Yet another great option for shooting vlogs with a Smartphone. The Manfrotto Mini Travel Tripod kit is also an excellent choice for all vloggers who shoot their videos with compact cameras. The tripod weighs just 0.51lbs and it is 5.31 inches tall, which makes it a perfect travel companion. However, it can't support cameras heavier than 2.2lbs, so you have to carefully choose the camera you want to put on this tripod.
 
@@ -171,10 +136,10 @@ thumbnail: https://thmb.techidaily.com/3e134df3d1e30ff21305cf90a72d9a508b70a320e
 ![ YouTube Vlogger Tripod ](https://images.wondershare.com/filmora/article-images/joby-gorilla-pod.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  This tripod is a superstar in the vlogging community because it is flexible, easy to set up and it fits into a pocket. Joby Gorilla Pod's legs are segmented, so you can freely choose an angle from which you want to shoot, without having to worry about the camera's stability. You can use this tripod on flat and uneven surfaces equally effectively.
@@ -232,6 +197,13 @@ thumbnail: https://thmb.techidaily.com/3e134df3d1e30ff21305cf90a72d9a508b70a320e
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -253,16 +225,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/picurean-education-recipe-film-making-for-2024/"><u>[New] Epicurean Education Recipe Film-Making for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-elite-online-collection-of-video-downloader-tools/"><u>[New] In 2024, Elite Online Collection of Video Downloader Tools</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-optimize-live-feed-select-from-the-best-9-filters/"><u>[New] Optimize Live Feed Select From the Best 9 Filters</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/he-roadmap-for-joining-a-youtube-media-company-mcn-for-2024/"><u>[New] The Roadmap for Joining a YouTube Media Company (MCN) for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-mobile-mastery-recording-your-snapchat-stories/"><u>[Updated] 2024 Approved Mobile Mastery Recording Your Snapchat Stories</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/youtube-streams-to-local-files-audio-guide-for-2024/"><u>From YouTube Streams to Local Files Audio Guide for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-music-files-from-infinix-note-30-vip-racing-edition-by-fonelab-android-recover-music/"><u>How To Restore Missing Music Files from Infinix Note 30 VIP Racing Edition</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/nd-android-youtube-autoplay-tricks-for-2024/"><u>IOS & Android YouTube AutoPlay Tricks for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/top-free-hd-video-players-with-h265-hevc-codec-support-for-windows-10-and-mac-in-2020/"><u>Top Free HD Video Players with H.265 HEVC Codec Support for Windows 10 & Mac in 2020</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-rated-apple-airpods-pro-gear-and-supplies/"><u>Top-Rated Apple AirPods Pro Gear & Supplies</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/understanding-the-rules-running-multiple-channels-on-youtube/"><u>Understanding the Rules: Running Multiple Channels on YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/iscover-times-tales-top-10-historical-channels-to-study-with/"><u>[New] Discover Time's Tales Top 10 Historical Channels to Study With</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-framecraft-videocutter/"><u>[Updated] 2024 Approved FrameCraft VideoCutter</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-vsi-vidrecorder-verdicts-in-depth-overview/"><u>[Updated] 2024 Approved VSI VidRecorder Verdicts In-Depth Overview</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-remove-the-two-factor-authentication-from-iphone-8-plus-by-drfone-ios/"><u>How To Remove the Two Factor Authentication From iPhone 8 Plus</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-apple-iphone-15-with-a-mask-on-drfone-by-drfone-ios/"><u>How to Unlock Apple iPhone 15 with a Mask On | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-saving-window-views-on-pcs-from-winxp-to-11/"><u>In 2024, Saving Window Views on PCs From WinXP to 11</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/livestream-giants-rivalry-facebook-vs-youtube-vs-periscope-for-2024/"><u>Livestream Giants' Rivalry Facebook Vs. YouTube Vs. Periscope for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/al-recording-tool-for-high-definition-youtube-videos-for-2024/"><u>Optimal Recording Tool For High-Definition YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/t-potential-earning-from-your-youtube-mobile-subscribers/"><u>Profit Potential Earning From Your YouTube Mobile Subscribers</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Can You Legally Capture Video From YouTube?"
-date: 2024-07-13T06:49:56.185Z
-updated: 2024-07-14T06:49:56.185Z
+date: 2024-09-14T19:52:13.250Z
+updated: 2024-09-17T23:35:12.434Z
 tags:
   - ai video
   - ai youtube
@@ -147,6 +147,13 @@ For macOS 10.12 or later
 
 ![record games filmora](https://images.wondershare.com/filmora/guide/recording-01.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Now that you have installed this software, launch the Wondershare Filmora program and the main interface of the Filmora application will pop up to get you to the recording options. This interface has about four options; Audio reframe, Audio Best Sync, PC screen, and AI portrait. All these are set to make your work easier when recording videos and audio. Click on the new project from the welcome screen.
 
 **Step 3: Click on the record PC screen option.**
@@ -190,6 +197,19 @@ The Wondershare Filmora screen editor has appropriate features to help you add a
 **Step 4: Save and Export**
 
 ![export or save videos filmora](https://images.wondershare.com/filmora/guide/overview-export-win-2.png)
+
+<!-- affiliate ads begin -->
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 After adding all the special effects, you are almost at the final stage. The next important thing to do is to choose the format of saving your video file. After making sure that your video format is set, and then you can export your video file.
 
@@ -259,6 +279,13 @@ At this point, you can rotate the video at any angle, or direction and you can a
 
 ![add text effects filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Now that you have edited your different video shots into a single video, you can now take the step of adding some more effects to your video. At this point, you can add different staff such as music, texts, and different other effects that you would prefer your viewers to see in your video. Some may think this is difficult to do if they have not tried it before.
 
 The Wondershare Filmora screen editor has appropriate features to help you add all the effect you need without wasting time at all. This program will guide you through how to add effects to your YouTube videos. This is an important step in answering the question asked by many; **is it illegal to record music from YouTube**? If you adhere to YouTube rules and policy, you can incorporate music and other effects into your YouTube videos without fear.
@@ -305,9 +332,23 @@ Now that you have installed this software, launch the Wondershare Filmora progra
 
 ![filmora recording options](https://images.wondershare.com/filmora/guide/recording-04.png)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 You can customize your recording options to suit your interest and then open your browser and open the YouTube video you want to record. After this is done, click on the red button to start recording the screen. Now you are aware of the steps you need to take when you want to **record a YouTube video with audio**.
 
 ![record games filmora](https://images.wondershare.com/filmora/article-images/start-recording-screen.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Edit Recorded YouTube Video
 
@@ -368,8 +409,6 @@ Now you know what to do and what not to do when it comes to recording and editin
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -378,6 +417,17 @@ Now you know what to do and what not to do when it comes to recording and editin
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-top-10-must-have-features-in-drone-gimbals/"><u>[New] 2024 Approved Top 10 Must-Have Features in Drone Gimbals</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/72187869-new-2024-approved-ultimate-guide-to-calculate-your-youtube-views-and-money/"><u>[New] 2024 Approved Ultimate Guide to Calculate Your YouTube Views and Money.</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-maximize-view-count-best-yt-thumbnail-sizes/"><u>[New] In 2024, Maximize View Count Best YT Thumbnail Sizes</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-ultimate-tips-to-upgrade-your-rl-recording-equipment/"><u>[New] In 2024, Ultimate Tips to Upgrade Your RL Recording Equipment</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-unveiling-secrets-the-best-dronescopic-stabilizers-reviewed/"><u>[New] Unveiling Secrets The Best Dronescopic Stabilizers Reviewed</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-youtubes-prime-moments-celebrations-beyond-vidcon/"><u>2024 Approved Youtube's Prime Moments Celebrations Beyond VidCon</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/contrast-in-colors-crafting-cinematic-moods-for-2024/"><u>Contrast in Colors Crafting Cinematic Moods for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-cant-take-screenshot-due-to-security-policy-on-honor-x9a-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Cant Take Screenshot Due to Security Policy on Honor X9a | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-activation-lock-on-the-apple-iphone-14-without-previous-owner-by-drfone-ios/"><u>In 2024, How to Remove Activation Lock On the Apple iPhone 14 Without Previous Owner?</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-the-ultimate-ios-screenshoting-hack/"><u>In 2024, The Ultimate iOS Screenshoting Hack</u></a></li>
+</ul></div>
 

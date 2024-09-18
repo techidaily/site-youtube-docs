@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  From Dull to Delightful  Text that Tumbles and Twirls\""
-date: 2024-09-11T14:13:23.402Z
-updated: 2024-09-12T14:13:23.402Z
+date: 2024-09-10T17:15:17.506Z
+updated: 2024-09-17T19:47:32.578Z
 tags:
   - ai video
   - ai youtube
@@ -51,61 +51,21 @@ In the timeline, double-click the title you just added, use the upper-left secti
 
 ![Create Bouncing Text video Filmora9](https://images.wondershare.com/filmora/article-images/add-up-down-animation-to-bounce.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135475/26400" target="_top" id="2135475">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135475/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3: Add Shake Filters**
 
 Go to **Effects** from the standard toolbar, expand the **Filters** category from the left pane, and click **Shake**. From the Library window, click and drag your preferred shake filter to the timeline. Here, I will choose Mild.
 
 ![Shake filters in Filmora9](https://images.wondershare.com/filmora/article-images/shake-filter.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 You can customize the default effect by double-clicking the shake filter in the timeline, using the sliders in the upper-left area of the interface to make necessary adjustments, and then clicking **OK** to save the changes and to get back to the previous interface.
 
 ![Mild Shake filters adjust](https://images.wondershare.com/filmora/article-images/mild-shake-filter-adjust.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1328679">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 4: Export the Final Output**
 
 Click **EXPORT** from the top of the interface, go to the **Local** tab in the **Export** box, choose your preferred output format from the list in the left, make required customizations from the right pane, and click **EXPORT** from the bottom-right corner to export the video.
 
 ![Filmora9 Export Options](https://images.wondershare.com/filmora/article-images/export-filmora9-video.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1983551">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Now, you can add the bouncing text video and the background video to the timeline, and then place the bouncing text video above the background video track.
 
@@ -114,13 +74,6 @@ Double click the text track, go to the **Chroma Key** effect, select the **Color
 As explained before, Wondeshare Filmora makes the entire process of creating and adding **bounce text** effect pretty simple. With all the pre-build templates, and the versatility of the options that can be used to customize those presets, you can come up with the effects that are usually obtained when you start generating them from the scratch.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Method 2: Generate Animated Bouncing Texts Online
 
@@ -174,19 +127,6 @@ Generating **bounce text** effect is much simpler when you use Wondershare Filmo
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -208,20 +148,23 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-creating-impact-with-high-converting-youtube-advertising-banners/"><u>[New] 2024 Approved Creating Impact with High-Converting YouTube Advertising Banners</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ccelerate-follower-count-key-strategies-unlocked-for-2024/"><u>[New] Accelerate Follower Count Key Strategies Unlocked for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/rafting-captivating-cinematic-experiences-in-youtube-videos/"><u>[New] Crafting Captivating Cinematic Experiences in YouTube Videos</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/iscover-inspirational-hiring-vids-1-10-for-2024/"><u>[New] Discover Inspirational Hiring Vids #1-10 for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-automating-meeting-times-a-google-meet-essential/"><u>[New] In 2024, Automating Meeting Times A Google Meet Essential</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/avigating-the-world-of-video-editing-for-youtube-creators/"><u>[New] Navigating the World of Video Editing for YouTube Creators</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-master-your-channel-identity-with-smart-naming/"><u>[Updated] 2024 Approved Master Your Channel Identity with Smart Naming</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-streaming-to-the-next-level-the-top-5-game-cameras-reviewed/"><u>[Updated] 2024 Approved Streaming to the Next Level The Top 5 Game Cameras Reviewed</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-crafting-impactful-youtube-channel-logo-tips-for-2024/"><u>[Updated] Crafting Impactful YouTube Channel Logo Tips for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-business-mastery-through-youtubes-top-ten-channels/"><u>[Updated] In 2024, Business Mastery Through YouTube's Top Ten Channels</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-the-backward-playbook-youtubes-video-flip/"><u>[Updated] In 2024, The Backward Playbook YouTube's Video Flip</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-unlock-the-potential-of-your-online-social-presence/"><u>[Updated] In 2024, Unlock the Potential of Your Online Social Presence</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-grasping-virtual-realitys-revolutionary-gear/"><u>In 2024, Grasping Virtual Reality's Revolutionary Gear</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-apps-from-zte-blade-a73-5g-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Apps from ZTE Blade A73 5G to Another | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ssentials-of-earning-on-youtube-latest-changes-for-2024/"><u>The Essentials of Earning on YouTube Latest Changes for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-the-definitive-guide-to-professional-level-youtube-video-edits/"><u>[New] In 2024, The Definitive Guide to Professional-Level YouTube Video Edits</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-the-blueprint-for-social-success-six-proven-steps-toward-verification-and-growth/"><u>[New] The Blueprint for Social Success Six Proven Steps Toward Verification and Growth</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-capturing-and-crafting-your-essential-guide-to-gopro-4k-edits/"><u>[Updated] Capturing and Crafting Your Essential Guide to GoPro 4K Edits</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-excellent-video-and-picture-capture-for-iphones-and-androids-here-in-2024/"><u>[Updated] Excellent Video & Picture Capture for iPhones & Androids Here, In 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-exhaustive-explanation-unveiling-the-google-podcasts-app/"><u>[Updated] Exhaustive Explanation Unveiling the Google Podcasts App</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-explore-new-movie-landscapes-top-7-alternates/"><u>[Updated] Explore New Movie Landscapes - Top 7 Alternates</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-cyberspace-enhancer-facebook-story-backup-tool/"><u>[Updated] In 2024, Cyberspace Enhancer Facebook Story Backup Tool</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-incorporating-melodies-into-youtube-repertoire/"><u>2024 Approved Incorporating Melodies Into Youtube Repertoire</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-premium-photographic-archives/"><u>2024 Approved Premium Photographic Archives</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/drone-trailblazers-the-most-attentive-models-for-2024/"><u>Drone Trailblazers The Most Attentive Models for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/experience-next-level-overclocking-with-hypertherm-x2-pro-the-revolutionary-2-in-1-aio-cooler/"><u>Experience Next-Level Overclocking with HyperTherm X2-Pro, the Revolutionary 2-in-1 AIO Cooler</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

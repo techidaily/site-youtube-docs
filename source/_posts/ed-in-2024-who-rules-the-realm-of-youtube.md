@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Who Rules the Realm of YouTube?"
-date: 2024-07-13T06:49:38.798Z
-updated: 2024-07-14T06:49:38.798Z
+date: 2024-09-15T18:18:51.106Z
+updated: 2024-09-17T22:37:59.808Z
 tags:
   - ai video
   - ai youtube
@@ -88,6 +88,13 @@ In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube c
 
 ![Fernanfloo](https://images.wondershare.com/filmora/article-images/fernan-floo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Yet another enormously popular YouTuber that comes from a Spanish speaking country whose channel attracted millions of subscribers. A 24-year-old Salvadoran named Luis Fernando Flores Alvarado is the man behind one of the most subscribed YouTube channels of all time. The Fernanfloo channel was created in 2011, and in February 2014 it had only 100,000 subscribers. By August 2014, Alvarado's channel reached 1 million subscribers, making him one of YouTube's biggest success stories. The videos featured on Feranfloo channel mostly cover gaming topics, but with a touch of comedy which makes Alvarado's videos unique.
 
 At the end of 2015, Alvarado launched the Fenanfloo mobile app that had 2.3 million downloads in the first week. His videos are mostly in Spanish which somewhat limits his audience, but it is safe to say the Fernanfloo channel is among the most popular channels in the Latin American countries since most of his audience comes from Bolivia, Peru, and Ecuador.
@@ -96,11 +103,25 @@ At the end of 2015, Alvarado launched the Fenanfloo mobile app that had 2.3 mill
 
 Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wondershare/filmora/download/)?
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Edit YouTube Videos with Full-Featured Video Editing Software
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -108,14 +129,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -124,6 +142,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/iscovering-the-unique-benefits-of-youtube-tv/"><u>[New] Discovering the Unique Benefits of YouTube TV</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/oes-paying-regularly-for-youtube-premium-give-you-more-than-just-an-ad-free-view/"><u>[New] Does Paying Regularly For YouTube Premium Give You More Than Just An Ad-Free View?</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/et-unlimited-echoes-for-online-content-makers/"><u>[New] Get Unlimited Echoes for Online Content Makers!</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-navigating-notes-an-introduction-to-youtube-list-making/"><u>[New] Navigating Notes An Introduction to YouTube List Making</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-from-youtube-streams-to-local-files-audio-guide-for-2024/"><u>[Updated] From YouTube Streams to Local Files Audio Guide for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/easy-guide-getting-started-with-kyocera-printers-on-windows-systems/"><u>Easy Guide: Getting Started with KYOCERA Printers on Windows Systems</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-your-xiaomi-redmi-13c-location-on-twitter-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change your Xiaomi Redmi 13C Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-pause-life360-location-sharing-for-samsung-galaxy-a24-drfone-by-drfone-virtual-android/"><u>In 2024, How To Pause Life360 Location Sharing For Samsung Galaxy A24 | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-top-educational-science-channels-for-knowledge-boost/"><u>In 2024, Top Educational Science Channels for Knowledge Boost</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ntly-professional-masterful-thumbnails-created-fast/"><u>Instantly Professional Masterful Thumbnails Created Fast!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigating-the-gray-zone-smith-vs-jones-dispute-sheds-light-on-environmental-and-ownership-rights-dilemma-through-historical-precedents/"><u>Navigating the Gray Zone: Smith Vs. Jones Dispute Sheds Light on Environmental and Ownership Rights Dilemma Through Historical Precedents</u></a></li>
+<li><a href="https://games-able.techidaily.com/retro-play-simulating-historic-pokemon-games/"><u>Retro Play: Simulating Historic Pokémon Games</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/step-by-step-guide-activating-your-account-on-microsofts-bing-with-ai-technology/"><u>Step-by-Step Guide: Activating Your Account on Microsoft's Bing with AI Technology</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/unleash-creativity-with-these-14-exceptional-text-animations/"><u>Unleash Creativity with These 14 Exceptional Text Animations</u></a></li>
+</ul></div>
 

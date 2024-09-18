@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Independent Creator’s Playbook  Earning Big Without Ads on YouTube for 2024\""
-date: 2024-09-11T14:10:21.148Z
-updated: 2024-09-12T14:10:21.148Z
+date: 2024-09-10T22:37:39.099Z
+updated: 2024-09-17T21:22:59.707Z
 tags:
   - ai video
   - ai youtube
@@ -74,10 +74,10 @@ For new YouTubers, it is getting harder and harder to get to that point where th
 That is why it is essential to have alternative ways to make money on YouTube, and not rely on the ads shown on your videos. So, without further ado, here are 4 other ways to make money on YouTube:
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **1\. Sell Your Product or Service:**
@@ -101,10 +101,16 @@ Here are some examples of products and services you can offer:
  ![YouTuber Jake Paul ](https://images.wondershare.com/filmora/article-images/jack-paul1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983552">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 _YouTuber, Jake Paul uses eCommerce platform_ [_Fanjoy_](https://fanjoy.co/collections/)_to sell his merch._
@@ -121,6 +127,19 @@ _YouTuber, Jake Paul uses eCommerce platform_ [_Fanjoy_](https://fanjoy.co/colle
 
  ![YouTuber Sunny Lenarduzzi](https://images.wondershare.com/filmora/article-images/sunny-lenarduzzi2.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1484963">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 _YouTuber and entrepreneur, Sunny Lenarduzzi uses YouTube as a platform to get clients for her consulting business._
 
 #### **How to Sell a Product or Service on YouTube**
@@ -134,19 +153,6 @@ Here is how you should go about selling your product or service on YouTube:
 If you are selling a meditation eBook and guided meditation services, type in some possible keywords in the YouTube search bar. What appears will be some popular searches:
 
 ![meditation](https://images.wondershare.com/filmora/article-images/meditation3.png)
-
-<!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 From there, take your possible keywords and put them into a tool such as [Ubersuggest](https://neilpatel.com/ubersuggest/)to find other related keywords. This will help you create discoverable content that will catch the interest of those who will buy what you are selling.
 
@@ -164,13 +170,6 @@ The video is over 9 minutes long and not once does he tell his audience to buy a
 
 ![link in the description box](https://images.wondershare.com/filmora/article-images/link-in-description-box4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **The YouTube Card:**
 
 ![youtube card tutorial](https://images.wondershare.com/filmora/article-images/youtube-card-tutorial5.jpg)
@@ -182,13 +181,6 @@ You can add one or multiple cards to direct viewers to your website or to anothe
  **Call to action button:**
 
 **![call to action button](https://images.wondershare.com/filmora/article-images/call-to-action-button7.jpg)**
-
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114264/17093" target="_top" id="2114264">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114264" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114264/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Once the viewer is on your website, make sure the path is apparent as well. Have a clear call to action somewhere on your website. This is where your viewers become customers.
 
@@ -213,13 +205,6 @@ As a YouTuber, you can share your thoughts on products or services, and if there
 The average affiliate commission rate is between 5% to 30%, with a lot of variables. Some low price range items will have a higher commission, while higher-priced items will have lower commissions.
 
 ![affiliate links](https://images.wondershare.com/filmora/article-images/affiliat-link8.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 _Travel YouTuber,_ [_Sorelle Amore_](https://www.youtube.com/user/SorelleIAm)_’s affiliate links to her vlogging gears._
 
@@ -260,10 +245,10 @@ Here is the list of 4 popular affiliate marketing networks:
 You can also partner with brands directly as many of them, such as [Sephora](https://www.sephora.com/affiliates)and [Canon](https://shop.usa.canon.com/shop/en/catalog/affiliate-program), will have their own affiliate program.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115943/19272" target="_top" id="2115943">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115943" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **3\. Brand Deal or Sponsorships:**
@@ -286,13 +271,6 @@ If you want to get a brand deal and become an influencer on YouTube, then you wi
 
 ![famebit brand](https://images.wondershare.com/filmora/article-images/famebit-brand10.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118321/7443" target="_top" id="2118321">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118321" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118321/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### **How Influencer Marketing Platforms Like Famebit Works**
 
 When you sign up for Famebit or other influencer marketing platforms you have an opportunity to get in front of brands who are seeking influencers to share their product or service.
@@ -308,14 +286,14 @@ Steps to getting a brand deal:
 
  Unlike celebrity marketing, YouTube creators have shown brands over the years that they are inventive and clever with how they can present the brand to the audience to drive the best results. This type of independence is what makes YouTube influencer marketing special.
 
-##  
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+##  
 
 ## **4\. Crowdfunding:**
 
@@ -351,13 +329,6 @@ If you have a pie in the sky goal, you aren’t going to fully leverage the mess
 
 When it comes to crowdfunding for YouTubers, [Patreon](https://www.patreon.com/)is the platform of choice. While other platforms such as Kickstarter or GoFundMe are focused on entrepreneurial pursuits, large projects, or charitable causes, Patreon is designed to support creatives and reward and incentivize donors.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115939/19272" target="_top" id="2115939">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115939" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115939/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Key Takeaways:**
 
 There are many ways to make money off of YouTube, I encourage you to try a few of these different strategies and see how they perform and which one suits your channel and your audience the best.
@@ -392,18 +363,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-8-best-free-video-editing-software-for-youtube/"><u>[New] In 2024, 8 Best Free Video Editing Software for YouTube</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-easy-steps-for-ipad-video-capture/"><u>[New] In 2024, Easy Steps for iPad Video Capture</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-fostering-engagement-creating-budget-friendly-youtube-intros/"><u>[Updated] 2024 Approved Fostering Engagement Creating Budget-Friendly YouTube Intros</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-how-to-add-logo-or-watermark-to-youtube-video/"><u>[Updated] 2024 Approved How to Add Logo or Watermark to YouTube Video</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-accelerate-your-channel-growth-affordable-subscribers-available-for-2024/"><u>[Updated] Accelerate Your Channel Growth - Affordable Subscribers Available for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-method-for-removing-downloaded-youtube-videos/"><u>[Updated] Method for Removing Downloaded YouTube Videos</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-the-ultimate-gameplay-journey-top-10-adventures-in-gaming-for-2024/"><u>[Updated] The Ultimate Gameplay Journey Top 10 Adventures in Gaming for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-automated-opener-your-srt-files-windows-and-mac/"><u>2024 Approved Automated Opener Your SRT Files, Windows & Mac</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-understanding-the-legality-of-online-video-recordings/"><u>2024 Approved Understanding the Legality of Online Video Recordings</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/e-a-youtube-earning-expert-universal-device-strategies/"><u>Become a YouTube Earning Expert Universal Device Strategies</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-top-professional-camera-choices-complete-360-guide-2023/"><u>In 2024, Top Professional Camera Choices - Complete 360 Guide 2023</u></a></li>
-<li><a href="https://win-forum.techidaily.com/lockdowns-and-stay-at-home-orders/"><u>Lockdowns and Stay-at-Home Orders</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/u-turn-on-gemini-ai-giant-forgoes-google-assistant-substitute/"><u>U-Turn on Gemini: AI Giant Forgoes Google Assistant Substitute</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-channel-charisma-techniques-for-amplifying-youtube-visibility-for-2024/"><u>[New] Channel Charisma Techniques for Amplifying YouTube Visibility for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/aximize-engagement-top-8-youtube-ranking-applications-for-2024/"><u>[New] Maximize Engagement - Top 8 YouTube Ranking Applications for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-professional-edge-in-instagram-videos-with-green-screen-tech-for-2024/"><u>[New] Professional Edge in Instagram Videos with Green Screen Tech for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/he-ultimate-reference-to-youtube-video-aspect-ratios/"><u>[New] The Ultimate Reference to YouTube Video Aspect Ratios</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-unveiling-the-quintessential-five-strategic-moves-for-youtube-marketing-success/"><u>[Updated] 2024 Approved Unveiling the Quintessential Five Strategic Moves for YouTube Marketing Success</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-tripping-up-heres-how-to-avoid-it/"><u>[Updated] In 2024, Tripping Up? Here's How to Avoid It</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-sonic-bliss-on-a-budget-paww-series-3-reviewed/"><u>Exploring Sonic Bliss on a Budget: Paww Series 3 Reviewed</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/free-pc-screen-capture-tools-a-comprehensively-assessed-list/"><u>Free PC Screen Capture Tools - A Comprehensively Assessed List</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-the-newest-realtek-device-driver-software-for-windows-11-systems/"><u>Get the Newest Realtek Device Driver Software for Windows 11 Systems</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-apple-iphone-12-pro-to-factory-settings-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Reset Apple iPhone 12 Pro to Factory Settings? | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/initiating-playback-how-to-start-windows-media-player/"><u>Initiating Playback - How to Start Windows Media Player</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/integrating-apple-earbuds-and-an-hp-laptop-a-simple-how-to/"><u>Integrating Apple Earbuds and an HP Laptop – A Simple How-To</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/tweet-to-facebook-a-step-by-step-guide-for-2024/"><u>Tweet to Facebook A Step-by-Step Guide for 2024</u></a></li>
 </ul></div>
 

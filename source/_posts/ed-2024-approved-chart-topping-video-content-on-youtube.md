@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Chart-Topping Video Content on YouTube\""
-date: 2024-07-13T06:46:01.645Z
-updated: 2024-07-14T06:46:01.645Z
+date: 2024-09-15T18:09:42.183Z
+updated: 2024-09-17T19:47:20.431Z
 tags:
   - ai video
   - ai youtube
@@ -78,6 +78,13 @@ Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countrie
 
 ![Smosh](https://images.wondershare.com/filmora/article-images/smosh.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123482/16836" target="_top" id="2123482">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123482/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Originally, Smosh was a channel run by sketch comedy duo Ian Andrew Hecox and Anthony Padilla. They started the Smosh YouTube channel in 2005 and since then they have grown their team to include more creators, and their content to include animation and gaming. Smosh has become much more than two funny guys on YouTube – it is a wildly successful content company.
 
 Most channels that have one viral video do not go on to have sustained success on YouTube, but Smosh is an exception to this rule. Their ‘Pokemon Theme Music Video’, released in 2005, became the most viewed video of all time (as of that year). This video kick-started the growth of their channel.
@@ -87,6 +94,13 @@ In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube c
 ### 5\.  Fernanfloo
 
 ![Fernanfloo](https://images.wondershare.com/filmora/article-images/fernan-floo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Yet another enormously popular YouTuber that comes from a Spanish speaking country whose channel attracted millions of subscribers. A 24-year-old Salvadoran named Luis Fernando Flores Alvarado is the man behind one of the most subscribed YouTube channels of all time. The Fernanfloo channel was created in 2011, and in February 2014 it had only 100,000 subscribers. By August 2014, Alvarado's channel reached 1 million subscribers, making him one of YouTube's biggest success stories. The videos featured on Feranfloo channel mostly cover gaming topics, but with a touch of comedy which makes Alvarado's videos unique.
 
@@ -102,20 +116,24 @@ Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wonde
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -124,6 +142,16 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-how-to-reverse-youtube-video-in-creative-ways/"><u>[New] In 2024, How to Reverse YouTube Video in Creative Ways</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-from-screens-to-gifs-the-art-of-converting-vimeo-footage/"><u>[Updated] 2024 Approved From Screens to Gifs The Art of Converting Vimeo Footage</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-integrating-twitter-feed-into-your-whatsapp-conversations/"><u>[Updated] 2024 Approved Integrating Twitter Feed Into Your WhatsApp Conversations</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-making-text-dance-2-creative-animation-strategies-for-2024/"><u>[Updated] Making Text Dance 2 Creative Animation Strategies for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-instagram-saves-free-and-without-end/"><u>In 2024, Instagram Saves Free and Without End</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-transform-memories-into-movies-best-dvd-creation-software-for-2024/"><u>New Transform Memories Into Movies Best DVD Creation Software for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/hanging-tide-of-youtube-earnings/"><u>The Changing Tide of YouTube Earnings</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/understanding-video-formats-which-is-more-effective-av1-or-vp9-for-2024/"><u>Understanding Video Formats Which Is More Effective, AV1 or VP9 for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-best-animation-software-for-pros-mac-and-windows-compatible/"><u>Updated 2024 Approved Best Animation Software for Pros Mac and Windows Compatible</u></a></li>
+</ul></div>
 

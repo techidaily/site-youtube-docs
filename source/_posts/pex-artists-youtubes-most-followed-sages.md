@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Apex Artists  YouTube's Most-Followed Sages\""
-date: 2024-07-13T06:50:45.922Z
-updated: 2024-07-14T06:50:45.922Z
+date: 2024-09-15T21:49:32.874Z
+updated: 2024-09-17T21:42:17.310Z
 tags:
   - ai video
   - ai youtube
@@ -78,6 +78,13 @@ Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countrie
 
 ![Smosh](https://images.wondershare.com/filmora/article-images/smosh.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Originally, Smosh was a channel run by sketch comedy duo Ian Andrew Hecox and Anthony Padilla. They started the Smosh YouTube channel in 2005 and since then they have grown their team to include more creators, and their content to include animation and gaming. Smosh has become much more than two funny guys on YouTube – it is a wildly successful content company.
 
 Most channels that have one viral video do not go on to have sustained success on YouTube, but Smosh is an exception to this rule. Their ‘Pokemon Theme Music Video’, released in 2005, became the most viewed video of all time (as of that year). This video kick-started the growth of their channel.
@@ -96,11 +103,25 @@ At the end of 2015, Alvarado launched the Fenanfloo mobile app that had 2.3 mill
 
 Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wondershare/filmora/download/)?
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Edit YouTube Videos with Full-Featured Video Editing Software
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123475/16836" target="_top" id="2123475">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123475" border="0" alt="https://techidaily.com" width="300" height="75"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123475/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -108,14 +129,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -124,6 +142,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/mov-saving-strategies-the-six-must-know-tactics-for-windows-11-users/"><u>.MOV Saving Strategies - The Six Must-Know Tactics for Windows 11 Users</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nteractive-elements-crafting-effective-youtube-annotations/"><u>[New] Interactive Elements Crafting Effective YouTube Annotations</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/eading-audio-to-text-online-solutions-for-2024/"><u>[New] Leading Audio-to-Text Online Solutions for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-swiftrecordingtool-with-narrator-functionality/"><u>[New] SwiftRecordingTool with Narrator Functionality</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-elevate-your-online-presence-choosing-the-right-webcam/"><u>[Updated] Elevate Your Online Presence Choosing the Right Webcam</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-ideal-camera-and-recording-apps-for-iphone-and-android-smartphones/"><u>[Updated] In 2024, Ideal Camera and Recording Apps for iPhone and Android Smartphones</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-innovative-methods-for-shuffling-yt-playlists/"><u>[Updated] In 2024, Innovative Methods for Shuffling YT Playlists</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-exceptional-online-tv-services-featuring-community-broadcasts/"><u>2024 Approved Exceptional Online TV Services Featuring Community Broadcasts</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-mastering-video-conversions-moving-from-basic-sdr-to-vivid-hdr/"><u>2024 Approved Mastering Video Conversions Moving From Basic SDR to Vivid HDR</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-facebook-post-schedule-ideas/"><u>Best Facebook Post Schedule Ideas</u></a></li>
+<li><a href="https://os-tips.techidaily.com/discovering-local-air-purity-a-comprehensive-guide-on-monitoring-atmospheres-health/"><u>Discovering Local Air Purity: A Comprehensive Guide on Monitoring Atmosphere's Health</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/t-speaker-change-devices-for-youtube-gurus/"><u>Expert Speaker Change Devices for YouTube Gurus</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/game-changing-ai-for-the-diy-industry-gpt-4-is-coming/"><u>Game-Changing AI for the DIY Industry: GPT-4 Is Coming</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-uncovering-the-dynamics-of-youtubes-post-upload-system/"><u>In 2024, Uncovering the Dynamics of YouTube's Post-Upload System</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/most-effective-techniques-to-restore-audio-on-your-desktoplaptop-speakers/"><u>Most Effective Techniques to Restore Audio on Your Desktop/Laptop Speakers</u></a></li>
+</ul></div>
 

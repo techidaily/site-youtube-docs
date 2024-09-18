@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Youth Inspiration  Tales of Overcoming Challenges\""
-date: 2024-07-13T06:50:29.090Z
-updated: 2024-07-14T06:50:29.090Z
+date: 2024-09-11T21:44:47.927Z
+updated: 2024-09-17T22:14:31.823Z
 tags:
   - ai video
   - ai youtube
@@ -61,9 +61,23 @@ Who isn’t on Snapchat, Instagram, or both these days? Over the past year, I’
 
 Who hasn’t played the “Never Have I Ever” game?! Playing this game as a Q & A is a great way for viewers to get to know you better with some juicy and shocking details about yourself they otherwise wouldn’t know. It’s also a great way to play and collaborate with another YouTuber. Often, the questions will be split and you have to watch both YouTubers’ videos to find out all the details. Highly popular beauty YouTuber Desi Perkins does a great example of this while playing the game with her sister in law.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 6\.  Get Ready With Me Q & A
 
 Get ready with me Q & As are some of my favorite videos to watch because it’s nice to see YouTubers strip-down bare-faced to do their makeup and answer popular questions. It often feels like two old friends sitting down to chat. Jenn, I'm doing a great example of this when she took to twitter asking viewers to ask her questions she would answer on her channel. Not only did she answer the questions but she gave a detailed makeup tutorial and explanation of the products she used as a 2 for 1\. Even if your channel has nothing to do with makeup or fashion, some viewers can still be intrigued to learn more about your fashion and makeup style.
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 7\.  My Depression/Anxiety or Mental Health Story
 
@@ -81,9 +95,35 @@ This is probably one of the easiest ways to share things about yourself when sta
 
 YouTube live videos are probably the best ways to interact and share your story with viewers. Viewers can ask questions on the spot. YouTuber Roberto Blake shares great live videos on how to improve your videos and things he’s learned through personal experience.
 
+<!-- affiliate ads begin -->
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Custom Your Video with Excellent Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<span id="1160850">
+					<video width="576" height="324" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -93,14 +133,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -109,6 +146,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-endless-eradication-guide-bypassing-youtubes-snappy-content-for-2024/"><u>[New] Endless Eradication Guide Bypassing YouTube's Snappy Content for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-exclusive-access-prime-video-downloader-picks/"><u>[New] In 2024, Exclusive Access Prime Video Downloader Picks</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/treamline-your-creation-process-with-this-youtube-shorts-guide/"><u>[New] Streamline Your Creation Process with This YouTube Shorts Guide</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-the-ultimate-guide-to-planning-and-recording-meetings-in-slack-plus-filmora-for-2024/"><u>[New] The Ultimate Guide to Planning & Recording Meetings in Slack + Filmora for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-from-free-to-focused-financial-goals-the-journey-of-ajays-youtube-success/"><u>[Updated] 2024 Approved From Free to Focused Financial Goals The Journey of Ajay’s Youtube Success</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-the-comprehensive-guide-to-enhancing-your-video-gaming-channels/"><u>[Updated] In 2024, The Comprehensive Guide to Enhancing Your Video Gaming Channels</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-quick-captivating-content-learn-with-our-youtube-shorts-guide-for-2024/"><u>[Updated] Quick, Captivating Content? Learn with Our YouTube Shorts Guide for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-video-sharing-titans-ranking-vimeo-youtube-and-dailymotion-for-2024/"><u>[Updated] Video-Sharing Titans Ranking Vimeo, YouTube & Dailymotion for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-understanding-cropping-settings-in-digital-editors/"><u>2024 Approved Understanding Cropping Settings in Digital Editors</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/how-to-meet-twitters-video-standards-aspect-ratio-matters-for-2024/"><u>How to Meet Twitter's Video Standards Aspect Ratio Matters for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-tactical-transformations-in-small-business-videography/"><u>In 2024, Tactical Transformations in Small Business Videography</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-top-6-ways-to-transfer-text-messages-from-nokia-c12-plus-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 6 Ways to Transfer Text Messages from Nokia C12 Plus to Other Android Devices | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/no-stress-homemade-motherboards-perfect-for-a-smooth-computer-building-experience/"><u>No-Stress Homemade Motherboards: Perfect for a Smooth Computer Building Experience</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/o-setup-starters-top-17-lights-and-more/"><u>Studio Setup Starters - Top 17 Lights & More</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unlocking-the-power-of-quiet-the-soundcore-life-q30-anc-headphones-study/"><u>Unlocking the Power of Quiet: The Soundcore Life Q30 ANC Headphones Study</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/what-financial-gain-stems-from-one-million-youtube-eyeballs-for-2024/"><u>What Financial Gain Stems From One Million YouTube Eyeballs for 2024</u></a></li>
+</ul></div>
 
