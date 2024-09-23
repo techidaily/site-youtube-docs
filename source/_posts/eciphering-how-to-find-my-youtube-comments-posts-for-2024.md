@@ -1,7 +1,7 @@
 ---
 title: "[New] Deciphering How To Find My YouTube Comments Posts for 2024"
-date: 2024-07-13T06:45:18.566Z
-updated: 2024-07-14T06:45:18.566Z
+date: 2024-09-21T21:30:21.827Z
+updated: 2024-09-22T23:53:31.280Z
 tags:
   - ai video
   - ai youtube
@@ -101,6 +101,13 @@ Once you are signed in to your account, tap the **Menu** icon from the top-left 
 
 If you own a YouTube channel and have posted several videos there, it is likely that you also have received a decent number of comments. Usually, these remarks are pretty helpful as they tell you how to improve your production quality, and what your audience prefers to watch in the future. Therefore, it is imperative to learn how to find all the comments that your YouTube channel has received, and the process given below explains exactly that:
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Find Your Channel’s YouTube Comments on a Desktop or Laptop Computer
 
 You can use your favorite web browser on a PC to easily find all the comments that the videos on your YouTube channel have received as long as you are signed in to your Google account. The step-by-step instructions on how this can be done are given below:
@@ -117,11 +124,25 @@ Make sure that the **Uploads** tab is selected on the **Channel content** window
 
 ![Find  YouTube Comments List](https://images.wondershare.com/filmora/article-images/find-youtube-video-comments-list.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3: Hide or Hold a Comment for Approval**
 
 Click the **More** icon from the right of the comment you want to moderate, and click **Hide user from channel** or **Always approve comments from this user** to hide the comments from the selected user or keep their comments on hold until you review and approve them respectively.
 
 ![Find  YouTube Comments List](https://images.wondershare.com/filmora/article-images/set-up-specific-user-comment-moderation.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Note: To view all comments received on your YouTube channel, go to the Comments tab under YouTube Studio, and you will find all Channel comments & mentions.
 
@@ -161,6 +182,13 @@ Go to your or any other’s YouTube video, and click **Load All** from the top-r
 
 ![Find  YouTube Comments mobile](https://images.wondershare.com/filmora/article-images/load-all-comments-with-youtube-comment-search-extension.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3: Search Comments from a Particular User**
 
 Choose **Comments** from the search type drop-down list, enter the name of the user in question in the **Search** box, and click **Search** to fetch all their comments on the video.
@@ -180,6 +208,13 @@ Use any of the methods explained above to locate your YouTube comment that you w
 Locate the comment that you want to reply to, click **REPLY** from under the comment, type your text in the available field, and click **REPLY**.
 
 ![Reply  YouTube Comments](https://images.wondershare.com/filmora/article-images/reply-youtube-comments.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 5: How to Moderate YouTube Comments?
 
@@ -227,14 +262,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -243,6 +275,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/raft-your-online-identity-with-customized-youtube-urls/"><u>[New] Craft Your Online Identity with Customized YouTube URLs</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-podcast-perfection-elite-webcam-selection-guide-for-2024/"><u>[New] Podcast Perfection Elite Webcam Selection Guide for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ecalibrating-youtube-rearranging-with-ease-and-speed/"><u>[New] Recalibrating YouTube Rearranging with Ease and Speed</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-unleash-your-potential-with-instagram-tv-upload/"><u>[New] Unleash Your Potential with Instagram TV Upload</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-game-masters-youtube-money-hacks/"><u>[Updated] 2024 Approved Game Masters YouTube Money Hacks</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-effortless-transformation-of-your-youtube-content-into-webm/"><u>[Updated] In 2024, Effortless Transformation of Your YouTube Content Into WebM</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-enhance-video-visibility-using-creator-studio-wisdom/"><u>[Updated] In 2024, Enhance Video Visibility Using Creator Studio Wisdom</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-hacking-youtube-success-peak-audience-engagement-timing/"><u>2024 Approved Hacking YouTube Success Peak Audience Engagement Timing</u></a></li>
+<li><a href="https://howto.techidaily.com/authentication-error-occurred-on-realme-note-50-here-are-10-proven-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Authentication Error Occurred on Realme Note 50? Here Are 10 Proven Fixes | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/building-rapport-an-interviewers-toolkit-for-2024/"><u>Building Rapport An Interviewer's Toolkit for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/ultimate-guide-to-the-most-effective-h265-converters-of-202n-find-your-perfect-match-for-pc-and-mac/"><u>Ultimate Guide to the Most Effective H.265 Converters of 202N: Find Your Perfect Match for PC & Mac</u></a></li>
+</ul></div>
 

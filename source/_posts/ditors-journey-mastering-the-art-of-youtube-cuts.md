@@ -1,7 +1,7 @@
 ---
 title: "\"The Editor's Journey  Mastering the Art of Youtube Cuts\""
-date: 2024-09-11T21:39:29.981Z
-updated: 2024-09-17T18:34:16.282Z
+date: 2024-09-15T18:02:42.755Z
+updated: 2024-09-22T21:18:16.115Z
 tags:
   - ai video
   - ai youtube
@@ -96,16 +96,10 @@ To cut or split your video, hover over the target clip and hit the scissor icon 
 ![youtube video editor](https://images.wondershare.com/topic/video-editing/youtube-video-editor-split.png "youtube video editor trim video")
 
 <!-- affiliate ads begin -->
-<span id="1983474">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### #2 Change video settings
@@ -116,24 +110,18 @@ You can just double click the video to enter the "Quick fixes" tab and easily ch
 
 ![youtube video editor](https://images.wondershare.com/topic/video-editing/youtube-video-editor-fix.png "youtube video editor")
 
-<!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### #3 Add filters
 
 You can also add stunning video filters provided by this editor. To get access this function, double click the video and switch to the "Filter" tab.
 
 ![youtube video editor](https://images.wondershare.com/topic/video-editing/youtube-video-editor-filters.png "youtube video editor")
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### #4 Add text to video
 
@@ -158,16 +146,10 @@ If several video clips have been added to the timeline, you need transition to m
 ![how to use youtube video editor](https://images.wondershare.com/images/multimedia/video-editor/add-transition-youtube.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1993651">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 YouTube Video Editor is really easy to use, but it only provides some basic video editing functions and is really easy to crash when dealing with large file. If you want to make your video more professional, try [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
@@ -181,10 +163,10 @@ Download it now to have a try!
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -208,16 +190,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-digital-dollars-earn-from-youtubers-in-8-ways-for-2024/"><u>[New] Digital Dollars Earn From YouTubers in 8 Ways for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-youtubes-landscape-decoded-creating-your-signature-style-and-voice/"><u>[New] In 2024, YouTube's Landscape Decoded Creating Your Signature Style and Voice</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-inside-look-how-youtube-funds-are-transforming-content-creation/"><u>[New] Inside Look How YouTube Funds Are Transforming Content Creation</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-effortless-integration-get-started-with-ifunnys-meme-fun/"><u>[Updated] 2024 Approved Effortless Integration Get Started with iFunny’s Meme Fun</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-comprehensive-youtube-video-editing-with-finalcut-pro-skills-for-2024/"><u>[Updated] Comprehensive YouTube Video Editing with FinalCut Pro Skills for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-cross-promotion-mastery-sharing-igtv-to-fb/"><u>[Updated] Cross-Promotion Mastery Sharing IGTV to FB</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-6-cost-free-closers-for-your-youtube-video/"><u>[Updated] In 2024, 6 Cost-Free Closers for Your YouTube Video</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-pinnacle-picture-enhancer-resolution-rise/"><u>[Updated] Pinnacle Picture Enhancer Resolution Rise</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-strengthening-your-presence-networking-techniques-for-youtubers-for-2024/"><u>[Updated] Strengthening Your Presence Networking Techniques for YouTubers for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/chatgpt-why-doesnt-it-accept-modifications-anymore/"><u>ChatGPT: Why Doesn't It Accept Modifications Anymore?</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ing-on-a-personal-social-media-platform-tiktok-or-youtubes-shorts/"><u>Deciding on a Personal Social Media Platform TikTok or YouTubes' Shorts?</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-windows-snapshot-simplified-2-methods/"><u>[New] In 2024, Windows Snapshot Simplified (2 Methods)</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ulti-channel-mastery-coordinated-content-consumption/"><u>[New] Multi-Channel Mastery Coordinated Content Consumption</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/our-shorts-are-here-no-more-waiting-game-for-2024/"><u>[New] Your Shorts Are Here – No More Waiting Game for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-youtubing-101-the-right-devices-for-2024/"><u>[Updated] Youtubing 101 The Right Devices for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-a-comprehensive-guide-to-maximizing-channels-earnings-through-trailers/"><u>2024 Approved A Comprehensive Guide to Maximizing Channels' Earnings Through Trailers</u></a></li>
+<li><a href="https://fox-that.techidaily.com/bypassing-itunes-easy-ways-to-perform-a-fresh-start-on-your-iphone/"><u>Bypassing iTunes: Easy Ways to Perform a Fresh Start on Your iPhone</u></a></li>
+<li><a href="https://games-able.techidaily.com/elevate-your-tech-game-4-key-advantages-of-corsair-icue-link/"><u>Elevate Your Tech Game - 4 Key Advantages of Corsair iCUE Link</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-step-by-step-guide-for-sporty-streamers-on-mac/"><u>In 2024, Step-by-Step Guide for Sporty Streamers on Mac</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/unleash-the-power-of-books-with-these-best-ai-based-reading-platforms/"><u>Unleash the Power of Books with These Best AI-Based Reading Platforms</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-dub-like-a-pro-top-6-video-dubbing-apps-for-comedy-and-creativity/"><u>Updated In 2024, Dub Like a Pro Top 6 Video Dubbing Apps for Comedy & Creativity</u></a></li>
 </ul></div>
 

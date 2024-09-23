@@ -1,7 +1,7 @@
 ---
 title: "\"Snappy Sharing  Uploading and Publishing Short Videos Online\""
-date: 2024-07-13T06:44:57.440Z
-updated: 2024-07-14T06:44:57.440Z
+date: 2024-09-18T22:52:53.038Z
+updated: 2024-09-22T16:14:17.508Z
 tags:
   - ai video
   - ai youtube
@@ -102,6 +102,13 @@ On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the b
 
 Finally tap **UPLOAD** from the top-right corner to upload the short video on YouTube.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
+  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Method 2: Record a Short Video and Upload
 
 **Step 1:** Record Shorts Video
@@ -128,6 +135,13 @@ On the **Add details** window, enter a name for the video along with the **#Shor
 
 **[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)**
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Conclusion**
 
 Learning the process of **how to post short videos on YouTube** is fairly simple as long as you have the video recorded in the portrait orientation, it is up to 60 seconds long, and contains the ‘#Shorts’ tag (without quotes) in the title or description. The good thing is, if you don’t have access to the YouTube app on your smartphone, the method for **how to upload short video on YouTube** explained in the first section can be followed while using your desktop computer.
@@ -142,14 +156,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -158,6 +169,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-explore-top-10-dynamic-picture-background-switchers/"><u>[New] 2024 Approved Explore Top 10 Dynamic Picture-Background Switchers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ction-packed-shoots-creating-dynamic-video-stories-on-youtube/"><u>[New] Action-Packed Shoots Creating Dynamic Video Stories on YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-quick-cover-art-crafting-for-fighting-games/"><u>[Updated] In 2024, Quick Cover Art Crafting for Fighting Games</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-dji-quadcopters-tiers-basic-model-enhanced-version-high-definition-masterclass/"><u>2024 Approved DJI Quadcopters Tiers Basic Model, Enhanced Version, High Definition Masterclass</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-gopro-film-perfection-best-15-lut-list-unveiled/"><u>2024 Approved GoPro Film Perfection Best 15 LUT List Unveiled</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-how-to-promote-your-youtube-channel-with-high-impact-showcase-techniques/"><u>2024 Approved How to Promote Your YouTube Channel with High-Impact Showcase Techniques</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-infinix-note-30-phone-and-remove-locked-screen-by-drfone-android/"><u>Android Unlock Code Sim Unlock Your Infinix Note 30 Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/zero-to-hero-in-the-youtube-world-starting-your-channel-and-earning-money-for-2024/"><u>From Zero to Hero in the Youtube World Starting Your Channel & Earning Money for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-best-voice-transformers-top-7-android-audio-apps/"><u>In 2024, Best Voice Transformers Top 7 Android Audio Apps</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-xiaomi-mix-fold-3-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Xiaomi Mix Fold 3 | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-monetize-mastery-series-behind-the-scenes-with-carminati-ajay/"><u>In 2024, Monetize Mastery Series Behind the Scenes with Carminati (AJay)</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-xiaomi-redmi-note-13-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Xiaomi Redmi Note 13 5G | Dr.fone</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, The Key Steps to Composing Engaging YouTube Video Plans"
-date: 2024-07-13T06:41:19.750Z
-updated: 2024-07-14T06:41:19.750Z
+date: 2024-09-19T18:50:39.502Z
+updated: 2024-09-22T20:46:21.265Z
 tags:
   - ai video
   - ai youtube
@@ -55,9 +55,29 @@ Now that you're ready to sit down and write, here's what you do:
 
 The first step in writing a script is to develop an outline for the story. You might think that it is an unnecessary step, but it’s one of the most important steps to writing a script. The outline serves as a guide that will make the finished product better compared to when you just tried to wing it. One tip on how to write a script for a YouTube video is to have an outline for the beginning, middle, and ending of the video. Once you have all the elements of the story, then you can start with the first draft of the script.
 
+<!-- affiliate ads begin -->
+<span id="1983545">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Set the tone
 
 The tone you pick for the video will depend on your audience. It’s safe to assume that viewers want something that’s unique, informative, and engaging. In some cases, they look for a video that’s personal, and they can relate to it. Humor is also something that you should consider when writing a script.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997657/19272" target="_top" id="1997657">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997657" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997657/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Just keep writing
 
@@ -85,6 +105,13 @@ While you are scripting and focusing on the information you want to deliver, it�
 
 Remember to refer to your audience as ‘you’, not ‘you guys’ (you are speaking to individual viewers, not a collective) and to include moments of engagement throughout your videos. Ask your viewers questions to keep their minds active, this also encourages them to leave comments.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## After Writing your YouTube Video Script
 
 After writing the script, the next step is to invite a trusted friend or family member to look at the script. Ask them for their feedback and if they have any ideas to add. And don’t forget, be open-minded to feedback
@@ -105,14 +132,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -121,6 +145,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-resolving-common-windows-11-photo-app-problems-for-2024/"><u>[New] Resolving Common Windows 11 Photo App Problems for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nleash-music-from-the-cloud-youtube-downloader-tips/"><u>[New] Unleash Music From the Cloud YouTube Downloader Tips</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-visualize-your-vision-embrace-win11s-movie-maker-capabilities/"><u>[New] Visualize Your Vision Embrace Win11's Movie Maker Capabilities</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-maximizing-video-visibility-on-youtube-through-lighting/"><u>[Updated] In 2024, Maximizing Video Visibility on YouTube Through Lighting</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-the-art-of-captivating-valorant-video-thumbnails-on-youtube/"><u>[Updated] In 2024, The Art of Captivating Valorant Video Thumbnails on YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-unveiling-youtubes-mechanism-post-upload/"><u>[Updated] Unveiling YouTube's Mechanism Post-Upload</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/100-safe-driver-downloads-for-sades-headsets-on-windows-trustworthy-and-reliable-source/"><u>100% Safe Driver Downloads for Sades Headsets on Windows – Trustworthy and Reliable Source</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-from-zero-to-hero-navigating-youtubes-growth-journey/"><u>2024 Approved From Zero to Hero Navigating Youtube's Growth Journey</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-preventing-photo-glitches-on-windows-10-a-quick-guide/"><u>2024 Approved Preventing Photo Glitches on Windows 10 A Quick Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-tech-savvy-gamers-hosting-smarter-views/"><u>2024 Approved Tech-Savvy Gamers Hosting Smarter Views</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/al-subtitle-producer-for-2024/"><u>Digital Subtitle Producer for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastery-of-wi-fi-coverage-with-linksys-velop-an-in-depth-review-for-advanced-routers/"><u>Mastery of Wi-Fi Coverage with Linksys Velop - An In-Depth Review for Advanced Routers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/winegard-fl5500a-flatwave-antenna-analysis-good-quality-steep-cost/"><u>Winegard FL5500A FlatWave Antenna Analysis: Good Quality, Steep Cost</u></a></li>
+</ul></div>
 

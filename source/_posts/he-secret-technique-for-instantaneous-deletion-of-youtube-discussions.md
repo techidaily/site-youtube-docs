@@ -1,7 +1,7 @@
 ---
 title: "[New] The Secret Technique for Instantaneous Deletion of Youtube Discussions"
-date: 2024-09-10T17:59:36.926Z
-updated: 2024-09-18T00:02:39.205Z
+date: 2024-09-21T18:22:20.026Z
+updated: 2024-09-22T20:27:11.665Z
 tags:
   - ai video
   - ai youtube
@@ -88,6 +88,19 @@ If it is your video where the comment to be removed is, you can go to My Channel
 1. Once you locate the video, you need to find the comment you want to delete. On the YouTube app, you may need to scroll down for a while to do this.
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
 
+<!-- affiliate ads begin -->
+<span id="1982457">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Delete Other People’s Comments on Others’ Channels
 
 Did you see a hate comment on your favorite creator’s video? Sadly, you cannot delete the comment. But, you can report it, and YouTube will hide or take it down.
@@ -108,13 +121,6 @@ To find your History from your desktop, you need to click on the three horizonta
 
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115915/19272" target="_top" id="2115915">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115915" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115915/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Delete All Your Posted YouTube Comments?
 
 You can also delete all comments you ever posted on any YouTube video by hiding your channel. When you do this, you can hide your video content temporarily. But it will irreversibly erase all your comments throughout YouTube. If you are curious, read on to know how you can do it.
@@ -128,22 +134,15 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
+  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
@@ -153,6 +152,13 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -175,17 +181,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-apex-artists-among-online-video-titans/"><u>[Updated] 2024 Approved Apex Artists Among Online Video Titans</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-the-route-to-revenue-crafting-content-around-consumer-commodities/"><u>[Updated] 2024 Approved The Route to Revenue Crafting Content Around Consumer Commodities</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-earning-strategies-for-successful-youtube-shorts-what-you-need-and-how-much/"><u>[Updated] Earning Strategies for Successful Youtube Shorts What You Need & How Much?</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-crafting-a-youtube-empire-26-successful-techniques/"><u>2024 Approved Crafting a YouTube Empire 26 Successful Techniques</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/e-written-guide-on-incorporating-markup-features-in-youtube-for-2024/"><u>Compre Written Guide on Incorporating Markup Features in YouTube for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/tible-vid-info-quick-start/"><u>Digestible Vid Info Quick Start</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/elite-audio-gear-guide-for-4k-camera-quality-production/"><u>Elite Audio Gear Guide for 4K Camera Quality Production</u></a></li>
-<li><a href="https://techtrends.techidaily.com/guide-setting-up-automated-ios-sms-timers/"><u>Guide: Setting Up Automated iOS SMS Timers</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-delete-icloud-account-from-iphone-14-without-password-by-drfone-ios/"><u>In 2024, How to Delete iCloud Account From iPhone 14 without Password?</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-navigate-the-world-of-tiktok-with-top-7-emoji-expertise/"><u>In 2024, Navigate the World of TikTok with Top 7 Emoji Expertise</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/in-2024-street-saga-best-gaming-matches-to-gta-v/"><u>In 2024, Street Saga Best Gaming Matches to GTA V</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/unpacking-the-battle-between-iphone-15-pro-max-and-s24-ultra-by-samsung/"><u>Unpacking the Battle Between iPhone 15 Pro Max and S24 Ultra by Samsung</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-get-going-on-youtube-video-upload-tutorial-in-premiere/"><u>[Updated] In 2024, Get Going on YouTube Video Upload Tutorial in Premiere</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-mastering-the-art-of-twilight-portraits/"><u>[Updated] In 2024, Mastering the Art of Twilight Portraits</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-perfect-your-strategy-top-rated-techniques-for-video-marketing/"><u>[Updated] In 2024, Perfect Your Strategy Top-Rated Techniques for Video Marketing</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-the-future-of-tv-watching-a-closer-look-at-youtube-tv/"><u>[Updated] In 2024, The Future of TV Watching A Closer Look at YouTube TV</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-transform-your-igtv-visuals-with-updated-covers/"><u>[Updated] In 2024, Transform Your IGTV Visuals with Updated Covers</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/1722890375170-all-you-need-to-know-about-the-upcoming-oxygenos-nothing-phone-3-price-release-and-features/"><u>All You Need to Know About the Upcoming OxygenOS Nothing Phone 3 - Price, Release & Features</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-bypass-frp-on-nokia-c210-by-drfone-android-unlock-remove-google-frp/"><u>How To Bypass FRP on Nokia C210</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/instant-ai-action-agentgpt-in-your-browser/"><u>Instant AI Action: AgentGPT in Your Browser</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/masterclass-in-logo-making-best-of-9-free-software-for-youtubers-for-2024/"><u>Masterclass in Logo-Making Best of 9 Free Software for YouTubers for 2024</u></a></li>
+<li><a href="https://discover-awesome.techidaily.com/step-by-step-guide-smoothing-out-shaky-videos-across-pc-mac-android-and-ios-devices/"><u>Step-by-Step Guide: Smoothing Out Shaky Videos Across PC, Mac, Android & iOS Devices</u></a></li>
 </ul></div>
 

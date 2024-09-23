@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Master Thumbnail Design for Mac Users - YouTube Edition\""
-date: 2024-09-14T16:37:50.406Z
-updated: 2024-09-17T18:34:33.324Z
+date: 2024-09-20T21:36:58.994Z
+updated: 2024-09-22T17:36:10.348Z
 tags:
   - ai video
   - ai youtube
@@ -63,31 +63,31 @@ You can easily choose the frame from the video or use the preview frame button t
 
 ![thumbnails editor](https://images.wondershare.com/filmora/Mac-articles/thumbnails-editor.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2. Add text, shape, and image overlays
 
 Once you’ve chosen the frame for the thumbnail, the next step would be to add text to it to catch the attention of the audience. You can also adjust the thumbnail size as per your requirement, however, the ideal size would be 1280x720 pixels with a minimum width of 640 pixels.
 
 ![add text on thumbnail](https://images.wondershare.com/filmora/Mac-articles/add-text-on-thumbnail.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3. Add effects
 
 FilmoraX has a wide range of effects that you can apply to your videos or pictures to make them look more attractive.
 
 ![filter9](https://images.wondershare.com/filmora/guide/filter-9-mac.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115936/19272" target="_top" id="2115936">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115936" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115936/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4. Save the thumbnail
 
@@ -103,14 +103,14 @@ Hopefully, the above-mentioned steps have given you enough insight and clarity o
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115929/19272" target="_top" id="2115929">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115929" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115929/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
 
@@ -133,13 +133,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-transform-imagination-to-reality-top-10-graphic-designers-on-android/"><u>[New] In 2024, Transform Imagination to Reality Top 10 Graphic Designers on Android</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-decoding-the-secret-of-highest-quality-youtube-mp3s/"><u>[Updated] 2024 Approved Decoding the Secret of Highest Quality YouTube MP3s</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-innovative-design-crafting-youtubes-efficient-subscribe-page/"><u>[Updated] In 2024, Innovative Design Crafting YouTube's Efficient Subscribe Page</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-navigating-filmoras-fcc-initiative-a-guide/"><u>[Updated] In 2024, Navigating Filmora's FCC Initiative A Guide</u></a></li>
-<li><a href="https://dvd-bd.techidaily.com/1725288761501-dvd/"><u>「DVDにデータを記録する際、容量超えの謎解き：原因と回避手段」</u></a></li>
-<li><a href="https://win-blog.techidaily.com/decoding-wsappx-tips-for-managing-surge-in-storage-and-processor-utilization-on-your-device/"><u>Decoding WSAPPX: Tips for Managing Surge in Storage and Processor Utilization on Your Device</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/how-to-obtain-and-improve-performance-with-intel-hd-graphics-driver-5500-update/"><u>How To Obtain & Improve Performance with Intel HD Graphics Driver #5500 Update</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/updated-filmora-13-free-trial-download-unlock-pro-features/"><u>Updated Filmora 13 Free Trial Download Unlock Pro Features</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-top-12-best-tycoon-games-guaranteed-to-hook-you/"><u>[New] 2024 Approved Top 12 Best Tycoon Games Guaranteed to Hook You</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/levate-your-content-with-insightful-channel-descriptions-for-2024/"><u>[New] Elevate Your Content with Insightful Channel Descriptions for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-prime-guidelines-youtube-respect-and-usage/"><u>[New] In 2024, Prime Guidelines YouTube Respect & Usage</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ounding-off-on-channel-titling-tips-from-experienced-filmmakers-for-2024/"><u>[New] Sounding Off on Channel Titling Tips From Experienced Filmmakers for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-unleashing-visual-impact-techniques-for-ai-text-depth-for-2024/"><u>[New] Unleashing Visual Impact Techniques for AI Text Depth for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-filmmaker-tips-youtube-trailers-using-filmora/"><u>[Updated] Filmmaker Tips YouTube Trailers Using Filmora</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-top-11-strategies-for-boosting-your-youtube-videos-seo/"><u>[Updated] In 2024, Top 11 Strategies for Boosting Your YouTube Videos' SEO</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-step-by-step-to-creating-an-unbeatable-biz-youtube-channel/"><u>[Updated] Step-by-Step to Creating an Unbeatable Biz YouTube Channel</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-zoom-chat-how-to-chat-in-zoom-meeting/"><u>2024 Approved Zoom Chat How to Chat in Zoom Meeting?</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-gain-1000-followers-on-youtube-with-agile-strategies/"><u>In 2024, Gain 1,000 Followers on YouTube with Agile Strategies</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-unraveling-the-secrets-to-smooth-vimeo-video-downloads/"><u>In 2024, Unraveling the Secrets to Smooth Vimeo Video Downloads</u></a></li>
+<li><a href="https://some-skills.techidaily.com/strategies-for-structuring-an-efficient-collaborative-office-environment-for-2024/"><u>Strategies for Structuring an Efficient, Collaborative Office Environment for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/athway-to-discover-your-youtube-supporters-for-2024/"><u>The Pathway to Discover Your YouTube Supporters for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/the-ultimate-mi-11-screenshot-and-record-playbook-for-2024/"><u>The Ultimate Mi 11 Screenshot & Record Playbook for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/top-4-android-system-repair-software-for-realme-v30-bricked-devices-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 4 Android System Repair Software for Realme V30 Bricked Devices | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/top-7-must-play-imessage-games/"><u>Top 7 Must-Play iMessage Games</u></a></li>
 </ul></div>
 

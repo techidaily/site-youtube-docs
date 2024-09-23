@@ -1,7 +1,7 @@
 ---
 title: "\"Cutting-Edge Techniques for Excellent Sound, No Mic Included\""
-date: 2024-07-13T06:43:11.578Z
-updated: 2024-07-14T06:43:11.578Z
+date: 2024-09-17T16:02:46.166Z
+updated: 2024-09-22T16:05:18.034Z
 tags:
   - ai video
   - ai youtube
@@ -75,9 +75,23 @@ If your built-in mic is on top of your camera you can get something called a ‘
 
 ![Record better audio from wind with micromuff](https://images.wondershare.com/filmora/article-images/record-better-audio-from-wind.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 _You use the adhesive backing to attach the base velcro to your camera. The other side of the velcro has your fluff attached to the back._
 
 The only thing about a micromuff is that it costs about $30, and if you’re going to spend $30 on audio equipment then you could just buy yourself an inexpensive LAV mic. I only bring up the micromuff because it’s a very simple design you can probably DIY – you just need velcro with adhesive backing and any of the fluff-sources we just discussed.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5\. Use a Free Audio App
 
@@ -86,6 +100,13 @@ If you’re recording on a smartphone, you can download a free app that will let
 Even if you’re not recording video from your smartphone, it might be a good idea to use your phone as your mic and record a separate audio file. You’ll be able to use an app to fine-tune your recording, and you can set your phone up closer to you the way you would an external mic while keeping your camera back a bit farther.
 
 Free audio apps: Hi-Q MP3 Voice Recorder (Android), RecForge II (Android), Smart Voice Recorder (Android), Audio Memos (iOS), and Recorder Plus (iOS).
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 6\. Do a Sound Check
 
@@ -109,14 +130,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -125,6 +143,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/nhance-engagement-top-12-tactics-for-youtube-success-for-2024/"><u>[New] Enhance Engagement Top 12 Tactics for YouTube Success for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-the-ultimate-guide-to-template-infused-yt-descriptions/"><u>[New] In 2024, The Ultimate Guide to Template-Infused YT Descriptions</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-youtubes-virality-secrets-effective-hashtag-strategies/"><u>[New] In 2024, YouTube's Virality Secrets Effective Hashtag Strategies</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-overcoming-obs-fullscreen-issues/"><u>[New] Overcoming OBS Fullscreen Issues</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-a-comprehensive-tutorial-for-youtube-customization-tools/"><u>[Updated] A Comprehensive Tutorial for YouTube Customization Tools</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-beyond-basics-20-underrated-whatsapp-features-you-need-for-2024/"><u>[Updated] Beyond Basics 20 Underrated WhatsApp Features You Need for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-elevate-audience-reach-through-collaborative-youtube-videos/"><u>[Updated] In 2024, Elevate Audience Reach Through Collaborative YouTube Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-gamers-sound-showdown-the-top-5-headset-list/"><u>[Updated] In 2024, Gamers' Sound Showdown The Top 5 Headset List</u></a></li>
+<li><a href="https://android-location.techidaily.com/3-effective-methods-to-fake-gps-location-on-android-for-your-motorola-edge-40-neo-drfone-by-drfone-virtual/"><u>3 Effective Methods to Fake GPS location on Android For your Motorola Edge 40 Neo | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/easy-techniques-to-capture-whats-on-your-pc-screen-a-how-to-guide/"><u>Easy Techniques to Capture What's on Your PC Screen - A How-To Guide</u></a></li>
+<li><a href="https://driver-download.techidaily.com/expert-tips-for-swift-and-simple-windows-driver-updates/"><u>Expert Tips for Swift and Simple Windows Driver Updates</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-youtubes-monetization-a-deep-dive/"><u>In 2024, YouTube's Monetization A Deep Dive</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/isovob/"><u>ISOファイルからVOBへの優れた転送技術: 品質保持を実現</u></a></li>
+<li><a href="https://games-able.techidaily.com/swift-start-silencing-stalled-screens/"><u>Swift Start: Silencing Stalled Screens</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The Ultimate Guide to Finding Unique Video Graphics Online\""
-date: 2024-07-13T06:44:21.764Z
-updated: 2024-07-14T06:44:21.764Z
+date: 2024-09-20T23:39:18.197Z
+updated: 2024-09-22T22:04:46.730Z
 tags:
   - ai video
   - ai youtube
@@ -120,11 +120,25 @@ IconArchive has a huge selection of icons with somewhat of an office/business sl
 
 ![YouTube Logo Icon on IconArchive](https://images.wondershare.com/filmora/article-images/icons-logos-on-iconarchive.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 _Could be cool for a lifestyle video about school or work?_
 
 My favorite thing about IconArchive is its search features. It allows you to filter results by color, size (down to the specific resolution), category, background color, style, and a lot more.
 
 ![YouTube Logo Icon on IconArchive Editing](https://images.wondershare.com/filmora/article-images/edit-icons-logos-on-iconarchive.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Color is under ‘Display’, meaning that it won’t filter out results that have different colors it’ll just list the color you select first.
 
@@ -190,15 +204,42 @@ You can give your icon a pretty different look from its default. Check this out:
 
 ![Change Gaming Logo Icon background on Icons8](https://images.wondershare.com/filmora/article-images/change-gaming-icons-logos-background-on-icons8.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 You cannot download your icon from the editing screen. You need to click Save, and then download it from the main display screen here:
 
 ![Donwload Gaming Logo Icon  on Icons8](https://images.wondershare.com/filmora/article-images/download-gaming-icons-logos-on-icons8.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 You can change the size with that drop down menu, but you’ll be limited in your options if you don’t want to pay.
 
 I downloaded my image and tried to see how it would look as an icon/profile picture. As you can see, it was pretty blurry in the preview:
 
 ![Add Gaming Logo Icon made with icons8 to YouTube](https://images.wondershare.com/filmora/article-images/add-gaming-icons-logos-made-with-icons8.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 However, the preview is larger than the actual profile picture. Once I set it, it looked alright.
 
@@ -218,14 +259,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -234,6 +272,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-5-best-toy-drones/"><u>[New] 2024 Approved 5 Best Toy Drones</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/hannel-your-content-earning-through-evaluative-endeavors-online-for-2024/"><u>[New] Channel Your Content Earning Through Evaluative Endeavors Online for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-youtube-shorts-tutorial-crafting-compact-engaging-videos/"><u>[New] In 2024, YouTube Shorts Tutorial Crafting Compact, Engaging Videos</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-in-game-recording-unveiled/"><u>[Updated] In 2024, In-Game Recording Unveiled</u></a></li>
+<li><a href="https://blog-min.techidaily.com/2-ways-to-transfer-text-messages-from-honor-magic-6-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>2 Ways to Transfer Text Messages from Honor Magic 6 to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-elevate-your-vlogging-game-with-tripod-mastery/"><u>2024 Approved Elevate Your Vlogging Game with Tripod Mastery</u></a></li>
+<li><a href="https://location-fake.techidaily.com/4-methods-to-turn-off-life-360-on-motorola-moto-g73-5g-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>4 Methods to Turn off Life 360 On Motorola Moto G73 5G without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/exploring-truthgpt-insights-and-secrets-revealed-in-depth-analysis-of-a-major-police-sting-on-mullvad-vpn/"><u>Exploring TruthGPT: Insights & Secrets Revealed | In-Depth Analysis of a Major Police Sting on Mullvad VPN</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/o-edit-youtube-videos-in-adobe-premiere/"><u>How to Edit YouTube Videos in Adobe Premiere</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-connecting-twitter-videos-with-facebook-friends/"><u>In 2024, Connecting Twitter Videos with Facebook Friends</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-ultimate-eye-candy-for-digital-performances/"><u>In 2024, Ultimate Eye Candy for Digital Performances</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/professional-insight-lenovo-thinkpad-z16-gen-2-with-amd-power-an-in-depth-evaluation/"><u>Professional Insight: Lenovo ThinkPad Z16 Gen 2 with AMD Power - An In-Depth Evaluation</u></a></li>
+</ul></div>
 

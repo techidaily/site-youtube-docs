@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Digital Footprint  How to Share Your Short Videos on Computers & Phones\""
-date: 2024-09-16T19:35:42.357Z
-updated: 2024-09-17T18:23:20.984Z
+date: 2024-09-18T16:13:20.430Z
+updated: 2024-09-22T22:56:27.506Z
 tags:
   - ai video
   - ai youtube
@@ -117,13 +117,6 @@ Please note you will not see the **Create a Short** option if you are outsides o
 
 ![ Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123479/16836" target="_top" id="2123479">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123479" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123479/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 In the YouTube app, tap the **+** (**Add**) button and select **Create** **a Short**. Please note you will not see the **Create a Short** option if you are outsides of India.
 
 Next, use the **Speed** and **Timer** icons to set the speed of the video and the countdown timer duration before the app starts recording the video when you press the **Record** button respectively.
@@ -147,13 +140,20 @@ Learning the process of **how to post short videos on YouTube** is fairly simple
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123481/16836" target="_top" id="2123481">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123481" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123481/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -176,19 +176,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-cutting-the-cord-of-creation-how-to-setup-a-youtube-channel-from-phone-to-platform/"><u>[New] In 2024, Cutting the Cord of Creation How to Setup a YouTube Channel From Phone to Platform</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-the-ultimate-compendium-chromes-excellence-in-video-grabs-for-2024/"><u>[New] The Ultimate Compendium Chromes' Excellence in Video Grabs for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/nveiling-the-8-leading-no-monetary-cost-video-tools-for-editors/"><u>[New] Unveiling the 8 Leading No-Monetary-Cost Video Tools for Editors</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-download-any-song-on-fb-for-free-for-2024/"><u>[Updated] Download Any Song on FB for Free for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-unveiling-the-full-potential-of-powerdirector-24/"><u>[Updated] In 2024, Unveiling the Full Potential of PowerDirector '24</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-navigating-youtubes-featured-slot-a-detailed-explanimation-for-2024/"><u>[Updated] Navigating YouTube's Featured Slot A Detailed Explanimation for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-streamline-your-vlogs-sound-with-effective-tips-for-2024/"><u>[Updated] Streamline Your Vlog's Sound with Effective Tips for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-ultimate-guide-best-free-mac-screen-recording-tools-for-2024/"><u>[Updated] Ultimate Guide Best Free Mac Screen Recording Tools for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/comprehensive-solution-for-troubleshooting-and-updating-csr8510-a10-drivers-on-windows-machines/"><u>Comprehensive Solution for Troubleshooting and Updating CSR8510 A10 Drivers on Windows Machines</u></a></li>
-<li><a href="https://iphone-location.techidaily.com/find-my-app-troubleshooting-no-location-found-vs-location-not-available-and-how-to-fix-them-on-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>Find My App Troubleshooting No Location Found vs. Location Not Available & How to Fix Them On Apple iPhone 15 Plus | Dr.fone</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/in-2024-3-easy-ways-to-record-overwatch-gameplay/"><u>In 2024, 3 Easy Ways to Record Overwatch Gameplay</u></a></li>
-<li><a href="https://games-able.techidaily.com/the-new-era-of-gamer-vigilance-needed/"><u>The New Era of Gamer Vigilance Needed</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-rankranklopg-pathway-is-crucial-for-osteoclast-differentiation-and-activity-influencing-the-balance-between-bone-resorption-and-formation-in-metastatic-48/"><u>The RANK/RANKL/OPG Pathway Is Crucial for Osteoclast Differentiation and Activity, Influencing the Balance Between Bone Resorption and Formation in Metastatic Disease</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/s-premier-content-creators-ranked-by-subscriber-count/"><u>World's Premier Content Creators Ranked By Subscriber Count</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/xpert-voice-editing-software-for-video-content-makers/"><u>[New] Expert Voice Editing Software for Video Content Makers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-inside-out-the-realities-of-youtubing-earning/"><u>[New] In 2024, Inside Out The Realities of YouTubing Earning</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-master-thumbnail-design-for-mac-users-youtube-edition/"><u>[Updated] 2024 Approved Master Thumbnail Design for Mac Users - YouTube Edition</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-efficient-techniques-for-obtaining-ios-audio-files-for-2024/"><u>[Updated] Efficient Techniques for Obtaining iOS Audio Files for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-exploring-the-best-practices-for-online-cricket-watch/"><u>[Updated] Exploring the Best Practices for Online Cricket Watch</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-effortless-keyword-harvesting-explore-the-best-7-no-fee-tag-extractors/"><u>[Updated] In 2024, Effortless Keyword Harvesting Explore the Best 7 No-Fee Tag Extractors</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-streamline-your-recordings-zooms-leading-transcription-apps-reviewed-for-2024/"><u>[Updated] Streamline Your Recordings Zoom's Leading Transcription Apps Reviewed for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-the-10-finest-yoga-series-to-achieve-zen-and-strength/"><u>[Updated] The 10 Finest Yoga Series to Achieve Zen and Strength</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-turning-viewers-into-cash-a-youtube-advertising-primer-for-2024/"><u>[Updated] Turning Viewers Into Cash A YouTube Advertising Primer for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-mastering-windows-11-with-top-tips/"><u>2024 Approved Mastering Windows 11 with Top Tips</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-pros-and-cons-of-hero-series-vs-polaroids-video-editors/"><u>2024 Approved Pros & Cons of Hero Series Vs. Polaroid's Video Editors</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/daybreaks-dream-10-most-exquisite-websites-for-hd-skies/"><u>Daybreak's Dream 10 Most Exquisite Websites for HD Skies</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-do-you-remove-restricted-mode-on-iphone-11-by-drfone-ios/"><u>In 2024, How Do You Remove Restricted Mode on iPhone 11</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-tripping-up-avoid-common-tripod-mistakes-in-vlogging/"><u>In 2024, Tripping Up? Avoid Common Tripod Mistakes in Vlogging</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/optimize-media-storage-tips-and-tricks-for-mov-on-windows-pcs/"><u>Optimize Media Storage Tips & Tricks for .mov on Windows PCs</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Why Are Your Video Shorts' Thumbnails Not Showing?"
-date: 2024-07-13T06:42:56.592Z
-updated: 2024-07-14T06:42:56.592Z
+date: 2024-09-18T17:55:29.198Z
+updated: 2024-09-22T19:30:30.166Z
 tags:
   - ai video
   - ai youtube
@@ -103,6 +103,13 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![shorts tab on the youtube website](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-1.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Pause the video.
 
 ![paused a shorts video](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-2.JPG)
@@ -129,9 +136,29 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![library tab on youtube mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-3.JPG)
 
+<!-- affiliate ads begin -->
+<span id="1155462">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Scroll down to find "Liked Videos." Click on it.
 
 ![liked videos section on youtube mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-4.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Select the Shorts video you just watched. It should be at the top of the list.
 
@@ -169,6 +196,13 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![shorts tab on the youtube website](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-1.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Pause the video.
 
 ![paused a shorts video](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-2.JPG)
@@ -203,6 +237,13 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![watching shorts like normal video mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-5.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Unfortunately, custom thumbnails not showing on Shorts does not have a fix yet. So to attract viewers, you must leverage the things in your control. You must title your videos in a way that will make users click the video. Also, adding effects and filters on the video using an editor like Wondershare Filmora can help.
@@ -221,8 +262,6 @@ Users can subscribe to Shorts channels. And if they see that your videos are wel
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -230,6 +269,23 @@ Users can subscribe to Shorts channels. And if they see that your videos are wel
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-enriching-meta-descriptions-a-template-transformation-journey/"><u>[New] In 2024, Enriching Meta Descriptions A Template Transformation Journey</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-expert-tips-for-efficient-internet-use-the-7-finest-android-apps/"><u>[New] In 2024, Expert Tips for Efficient Internet Use The 7 Finest Android Apps</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-youtubes-next-gen-streaming-made-easy-with-obs-tutorial/"><u>[New] In 2024, Youtube's Next Gen Streaming Made Easy with OBS Tutorial</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-depth-look-at-ipad-display-logging/"><u>[New] In-Depth Look at iPad Display Logging</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nnovations-to-enhance-your-short-video-experience/"><u>[New] Innovations to Enhance Your Short Video Experience</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-audiovisual-experts-choices-the-ultimate-video-editing-gear/"><u>[Updated] Audiovisual Experts' Choices The Ultimate Video Editing Gear</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-monetization-milestone-the-500-subscriber-trick-for-2024/"><u>[Updated] Monetization Milestone The 500-Subscriber Trick for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-the-magic-behind-the-lens-iphone-xs-groundbreayer-camera-tech/"><u>[Updated] The Magic Behind the Lens IPhone X's Groundbreayer Camera Tech</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/chatgpt-and-crypto-strategies-5-essential-tips-for-enhanced-digital-asset-trading/"><u>ChatGPT and Crypto Strategies: 5 Essential Tips for Enhanced Digital Asset Trading</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-oppo-reno-10-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Oppo Reno 10 5G | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-premium-voice-recorder-tools-for-mac-discovering-the-five-top-apps/"><u>In 2024, Premium Voice Recorder Tools for Mac Discovering The Five Top Apps</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-video-editing-power-filmora-for-youtube-trailers/"><u>In 2024, Video Editing Power Filmora for YouTube Trailers</u></a></li>
+<li><a href="https://win-blog.techidaily.com/pathfinder-enthusiasts-rejoice-fixing-gamepad-keyboard-failures-for-wrath-of-the-righteous/"><u>Pathfinder Enthusiasts Rejoice: Fixing Gamepad Keyboard Failures for 'Wrath of the Righteous'</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/resolving-connectivity-issues-with-your-hyperx-cloud-alpha-mic/"><u>Resolving Connectivity Issues with Your HyperX Cloud Alpha Mic</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/rootjunky-apk-to-bypass-google-frp-lock-for-oppo-find-n3-by-drfone-android/"><u>Rootjunky APK To Bypass Google FRP Lock For Oppo Find N3</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-best-online-webm-video-compressors/"><u>Updated 2024 Approved Best Online WebM Video Compressors</u></a></li>
+</ul></div>
 

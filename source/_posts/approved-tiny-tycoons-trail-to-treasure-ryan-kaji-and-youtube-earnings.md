@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Tiny Tycoon’s Trail to Treasure  Ryan Kaji and YouTube Earnings\""
-date: 2024-07-13T06:41:06.575Z
-updated: 2024-07-14T06:41:06.575Z
+date: 2024-09-20T16:27:38.551Z
+updated: 2024-09-22T23:41:11.640Z
 tags:
   - ai video
   - ai youtube
@@ -219,7 +219,21 @@ Before going into this in detail, here is an overall summary of Ryan Kaji and hi
 
 ![ryan kaji in video](https://images.wondershare.com/filmora/article-images/2022/11/ryan-kajis-net-worth-11-year-old-boy-gets-highest-paid-from-youtube-2022-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Now that we know the primary data about Ryan, read on to learn about how he became famous on YouTube and his overall income, in more detail.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2: Ryan Kaji YouTube Earning and Stats
 
@@ -260,15 +274,36 @@ As he grew in age, his content shifted to fit his interests at 6 years of age, w
 
 In 2020, he earned around USD 29.5 million and USD 27 million in 2021\. The **Ryan ToysReview income** further grew to USD 35 million in 2022, and it is expected to increase in the upcoming time, especially with his videos raking in millions of views in recent times.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Popularity across social media
 
 The leading social media platform where Ryan Kaji grew his strength is YouTube, and he currently enjoys a massive fan following. His channel, Ryan’s World, has an overall subscriber base of around 33.3 million YouTube users. These include primarily children as well as other adults, either who enjoy his content or those who watch along with their kids. He also has an Instagram account for his channel with around 159k followers.
 
 ![ryan kaji instagram](https://images.wondershare.com/filmora/article-images/2022/11/ryan-kajis-net-worth-11-year-old-boy-gets-highest-paid-from-youtube-2022-5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Besides that, the total **Ryan’s World earnings** also come from his other YouTube channels, managed under the company his parents established afterward. These include Ryan ToysReview, The Studio Space, Ryan’s Family Review, EK Doodles, and three more.
 
 All of these channels combined get a substantial overall following base, though there are overlaps between all or some of them. Ryan Kaji also has a television series and video game under the brand, increasing his overall popularity. The series name is "Ryan's Mystery Playdate" on Nick Jr.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: Why is Ryan Kaji Trending on YouTube?
 
@@ -370,8 +405,6 @@ But, while starting, your funding will be less. It would help if you handled the
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -379,6 +412,16 @@ But, while starting, your funding will be less. It would help if you handled the
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-from-raw-footage-to-polished-videos-imovies-role-in-youtube-content-creation/"><u>[New] In 2024, From Raw Footage to Polished Videos IMovie's Role in YouTube Content Creation</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-visual-verve-essential-guide-for-iphones-photo-cropping-for-2024/"><u>[New] Visual Verve Essential Guide for iPhone's Photo Cropping for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-unveiling-social-media-puzzles-how-to-use-facebook-insights/"><u>[Updated] 2024 Approved Unveiling Social Media Puzzles How to Use Facebook Insights</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-eliminating-odd-shades-a-step-by-step-guide-to-flawless-greenscreens-for-2024/"><u>[Updated] Eliminating Odd Shades A Step-by-Step Guide to Flawless Greenscreens for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-revolutionize-viewing-experience-the-best-yt-reaction-methods-for-2024/"><u>[Updated] Revolutionize Viewing Experience The Best YT Reaction Methods for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-unleashing-the-power-of-youtube-to-mp3-conversion/"><u>2024 Approved Unleashing the Power of YouTube-to-MP3 Conversion</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/elevate-your-learning-experience-with-these-5-ways-to-leverage-chatgpt-at-school/"><u>Elevate Your Learning Experience with These 5 Ways to Leverage ChatGPT at School</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-a-quick-guide-to-vivo-v27-frp-bypass-instantly-by-drfone-android/"><u>In 2024, A Quick Guide to Vivo V27 FRP Bypass Instantly</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-easy-steps-to-translate-video-on-twitter/"><u>Updated In 2024, Easy Steps to Translate Video on Twitter</u></a></li>
+</ul></div>
 

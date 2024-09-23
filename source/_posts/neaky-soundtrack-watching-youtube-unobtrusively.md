@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Sneaky Soundtrack  Watching YouTube Unobtrusively\""
-date: 2024-07-13T06:39:56.630Z
-updated: 2024-07-14T06:39:56.630Z
+date: 2024-09-20T22:37:14.274Z
+updated: 2024-09-22T21:43:22.517Z
 tags:
   - ai video
   - ai youtube
@@ -72,6 +72,13 @@ Use the regular method to search for the video you want to play in the backgroun
 
 Tap the **All Tabs** icon from the bottom-right corner of the browser, and tap **+** from the bottom-center. Notice how the YouTube video continues to play even when you are on the new tab.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step 3: Play YouTube in Background
 
 Press the **Home** button or swipe up on iPhone X or above to get to the Home screen. You can notice how YouTube still continues to stream. From this point onward, you can either start using your iPhone normally, or turn off the screen and let your device **play YouTube in background**.
@@ -80,11 +87,25 @@ Press the **Home** button or swipe up on iPhone X or above to get to the Home sc
 
 The process to **play YouTube in background** on an Android smartphone is slightly different than what it is on an iPhone if you don’t have a Premium subscription. To get this done on your Android, you must:
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step 1: Switch to Desktop Mode
 
 Launch Google Chrome (default) on your Android phone, and go to [**www.youtube.com**](https://www.youtube.com). Click the **More options** icon (with three vertically aligned dots) from the top-right corner of the browser, and check the **Desktop site** box from the menu that appears.
 
 ![Switch to YouTube desktop site on Android](https://images.wondershare.com/filmora/article-images/switch-to-desktop-site-youtube.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Step 2: Search for and Stream a Video
 
@@ -108,9 +129,23 @@ Being one of the most versatile media playing software, VLC needs no introductio
 
 This app does exactly what its name suggests. The program has a ‘Minimize player’ mode that allows you to stream YouTube videos in a small window that reduces its size and resides at the bottom of the screen, thus letting you use your Android phone for other important tasks simultaneously.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Background player for YouTube Vanced minimizer
 
 Yet another app available on Google Play Store that lets you search for your favorite videos on YouTube, stream them, and then minimize the player to a floating window that goes down to the bottom of the screen. This lets you **play YouTube in background** in order to allow you to use your phone for other tasks.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Best Video Editing Software for YouTube
 
@@ -128,14 +163,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -144,6 +176,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/tream-like-never-before-turning-on-youtubes-av1/"><u>[New] Stream Like Never Before Turning On YouTube's AV1</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-free-youtube-image-saver-compilation/"><u>[Updated] 2024 Approved Free YouTube Image Saver Compilation</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-how-to-stand-out-your-top-10-guide-to-youtubes-best-music-videos/"><u>[Updated] How to Stand Out Your Top 10 Guide to YouTube's Best Music Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-5-amazing-free-youtube-intro-makers-ranked/"><u>[Updated] In 2024, 5 Amazing Free YouTube Intro Makers Ranked</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-investigating-youtube-dialogues/"><u>[Updated] Investigating YouTube Dialogues</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-navigate-the-maze-of-mp4-cutters-for-mac-creators-for-2024/"><u>[Updated] Navigate the Maze of MP4 Cutters for Mac Creators for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-overcoming-video-shadows-youtube-fix-tips-for-2024/"><u>[Updated] Overcoming Video Shadows YouTube Fix Tips for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-subscription-surge-entry-into-monetization-realm-for-2024/"><u>[Updated] Subscription Surge Entry Into Monetization Realm for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-superior-visual-treatment-applying-filters-to-videos/"><u>2024 Approved Superior Visual Treatment Applying Filters to Videos</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/desconectese-para-convertir-archivos-mkv-a-linea-sin-costo-con-movavi/"><u>Desconéctese Para Convertir Archivos MKV a Línea Sin Costo Con Movavi</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-vivo-y200e-5gwithwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Vivo Y200e 5Gwith/without a PC</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/joining-live-shows-a-tiktok-perspective-for-2024/"><u>Joining Live Shows A TikTok Perspective for 2024</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-the-ultimate-guide-to-converting-webm-files-to-mp3/"><u>New 2024 Approved The Ultimate Guide to Converting WebM Files to MP3</u></a></li>
+<li><a href="https://windows11.techidaily.com/steps-to-unlock-windows-credentials-management/"><u>Steps to Unlock Windows Credentials Management</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/windows-video-editing-made-easy-a-guide-to-microsoft-video-editor-for-2024/"><u>Windows Video Editing Made Easy A Guide to Microsoft Video Editor for 2024</u></a></li>
+</ul></div>
 

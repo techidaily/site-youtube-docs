@@ -1,7 +1,7 @@
 ---
 title: "In 2024, The Filmmaker's Guide to Selecting Excellent Lenses"
-date: 2024-07-13T06:41:46.671Z
-updated: 2024-07-14T06:41:46.671Z
+date: 2024-09-20T23:38:34.518Z
+updated: 2024-09-22T23:28:40.874Z
 tags:
   - ai video
   - ai youtube
@@ -113,6 +113,13 @@ Recording **moving objects** from a distance requires you to have a lens that al
 
 ![camera lens rec02](https://images.wondershare.com/filmora/article-images/camera-lens-rec02.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The Tamron's standard zoom lens offers good value at a very reasonable price. The maximum aperture is f/2.8, while the minimum aperture value this lens supports is f/32, which means that its users can easily experiment with different **depths of field.** The lens is **compatible with most Canon cameras** so if you have a camera from another manufacturer you may have to use the lens adapter in order to mount it onto your camera. Like most standard zoom lenses, Tamron SP AF model is **highly versatile** and you can use it to record **a wide range of different scenes**.
 
 A lot of zoom lenses do not have wide enough apertures to create blurred backgrounds, but this Tamron lens is an exception at f/2.8\. This low f-stop also means that it performs better in poor lighting conditions than a lot of other zoom lenses. If your shooting conditions change a lot – if you often change locations, for example – then it will be good to have a sturdy, well-built, zoom lens like the AF 17-mm that can be quickly adapted to new angles and distances.
@@ -125,20 +132,24 @@ If you are using a 4k camera to shoot your YouTube video, check out [best camera
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
+  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -147,6 +158,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-the-essential-playbook-achieving-peak-video-editing-on-youtube-studio/"><u>[Updated] In 2024, The Essential Playbook Achieving Peak Video Editing on YouTube Studio</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-rising-through-the-rankings-adding-highlight-channels-to-youtube/"><u>[Updated] Rising Through the Rankings Adding Highlight Channels to YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-beauty-tutorials-unveiled-creating-a-youtube-channel-from-scratch/"><u>2024 Approved Beauty Tutorials Unveiled Creating a YouTube Channel From Scratch</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/tical-equipment-items-to-start-your-channel-right-for-2024/"><u>5 Critical Equipment Items to Start Your Channel Right for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/challenges-of-driving-evs-in-extreme-temperature-environments/"><u>Challenges of Driving EVs in Extreme Temperature Environments</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-successfully-bypass-icloud-activation-lock-from-apple-iphone-se-2022-by-drfone-ios/"><u>How to Successfully Bypass iCloud Activation Lock from Apple iPhone SE (2022)</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-pro-tips-the-fastest-5-diy-filmmaking-tricks-at-home/"><u>In 2024, Pro Tips The Fastest 5 DIY Filmmaking Tricks at Home</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-the-finishing-touch-journalisms-close-call/"><u>In 2024, The Finishing Touch Journalism's Close Call</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ization-metrics-viewers-contribution-to-earnings-for-2024/"><u>Monetization Metrics Viewers' Contribution to Earnings for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/simplified-image-management-in-google-photos/"><u>Simplified Image Management in Google Photos</u></a></li>
+<li><a href="https://windows11.techidaily.com/swift-synonym-searches-in-windows-11/"><u>Swift Synonym Searches in Windows 11</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/the-tapestry-of-tech-loom-recording-explained/"><u>The Tapestry of Tech Loom Recording Explained</u></a></li>
+<li><a href="https://howto.techidaily.com/troubleshooting-guide-how-to-fix-an-unresponsive-oppo-reno-11f-5g-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Troubleshooting Guide How to Fix an Unresponsive Oppo Reno 11F 5G Screen | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-contacts-from-nokia-c300-by-fonelab-android-recover-contacts/"><u>Undelete lost contacts from Nokia C300.</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Mastering Engagement  A Compendium of the Top 20 YouTube Hacks\""
-date: 2024-07-13T06:42:22.326Z
-updated: 2024-07-14T06:42:22.326Z
+date: 2024-09-19T22:14:14.909Z
+updated: 2024-09-22T17:12:36.065Z
 tags:
   - ai video
   - ai youtube
@@ -60,6 +60,13 @@ If you’re watching videos on YouTube mobile app, you can use double-tap on the
 
 Long press the Video Player and swipe right will navigate the video forward; and long press the video player and wwipe left will navigate the video backward.
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Category 3: Manage Playback Speed
 
 This category contains information on increasing or decreasing the playback speed of a YouTube video:
@@ -80,6 +87,13 @@ This category talks about managing the video captions using the shortcut keys:
 | 'W'                | Enable, increase, and disable the background transparency of the captions (Press multiple times to manage intensity) |
 | '-' (Minus Key)    | Reduce the font size of the captions (Minus key on the Numpad isn't supported)                                       |
 | '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Category 5: Managing the Audio Video
 
@@ -104,6 +118,13 @@ The shortcut keys given in this table enable you to switch between different scr
 Double press F/T/I on the keyboard will exit the full-screen/theater model/independent mode accordingly.
 
 If you are watching video on YouTube mobile app, you can swipe up the video slightly to enter the full screen mode, and swipe down the video slightly to exit the full screen.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043855/7443" target="_top" id="2043855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Category 7: Viewing 360o/VR Videos
 
@@ -145,14 +166,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -161,6 +179,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-clearing-your-name-after-a-youtube-copyright-strike-notice/"><u>[New] In 2024, Clearing Your Name After a YouTube Copyright Strike Notice</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-how-to-edit-youtube-channel-description/"><u>[New] In 2024, How to Edit YouTube Channel Description</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-mastering-negative-space-reverse-video-tricks-for-instagram/"><u>[New] In 2024, Mastering Negative Space Reverse Video Tricks for Instagram</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-the-recorders-eye-a-snapshot-of-best-tools/"><u>[New] In 2024, The Recorder's Eye A Snapshot of Best Tools</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ulti-channel-mastery-coordinated-content-consumption/"><u>[New] Multi-Channel Mastery Coordinated Content Consumption</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/our-shorts-are-here-no-more-waiting-game-for-2024/"><u>[New] Your Shorts Are Here – No More Waiting Game for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-mastering-video-privacy-techniques-for-obscuring-details/"><u>[Updated] Mastering Video Privacy Techniques for Obscuring Details</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-white-label-microphones-at-a-wallet-wise-wage-for-2024/"><u>[Updated] White-Label Microphones at a Wallet-Wise Wage for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-a-comprehensive-guide-to-maximizing-channels-earnings-through-trailers/"><u>2024 Approved A Comprehensive Guide to Maximizing Channels' Earnings Through Trailers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/y-fiddles-short-form-melodic-roles-for-2024/"><u>Flashy Fiddles Short Form Melodic Roles for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-6s-plus-to-others-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 6s Plus to others devices? | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-how-often-should-you-upload-youtube-videos-to-get-more-views/"><u>In 2024, How Often Should You Upload YouTube Videos to Get More Views</u></a></li>
+<li><a href="https://extra-information.techidaily.com/inside-the-secrets-of-quantum-hdr-photography/"><u>Inside the Secrets of Quantum HDR Photography</u></a></li>
+<li><a href="https://windows11.techidaily.com/recovering-a-mute-windows-start-button-issue/"><u>Recovering a Mute Windows Start Button Issue</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/unlock-your-disabled-apple-iphone-11-pro-without-itunes-in-5-ways-drfone-by-drfone-ios/"><u>Unlock Your Disabled Apple iPhone 11 Pro Without iTunes in 5 Ways | Dr.fone</u></a></li>
+</ul></div>
 

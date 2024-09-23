@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Solo Self-Portraits on YouTube  How to Impress Viewers\""
-date: 2024-09-12T20:03:03.802Z
-updated: 2024-09-17T19:34:40.118Z
+date: 2024-09-16T18:04:56.307Z
+updated: 2024-09-22T18:22:26.380Z
 tags:
   - ai video
   - ai youtube
@@ -58,6 +58,13 @@ Objects and people that just make it into the sides of the frame will appear mor
 
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2.  Medium Vlog Set-Up
 
 If you have more space and want to shoot a more professional-looking talking-head shot with more realistic perspectives, a medium vlog set-up may be a better alternative for you.
@@ -81,10 +88,10 @@ If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115950/19272" target="_top" id="2115950">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115950" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115950/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4.  Long Teleprompter Vlog Set-Up
@@ -111,13 +118,6 @@ To make a talking-head video more interesting, you can add some background music
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -139,17 +139,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-the-essential-guide-to-intellectual-property-rights-on-youtube/"><u>[Updated] 2024 Approved The Essential Guide to Intellectual Property Rights on YouTube</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-facebook-flashback-finder/"><u>[Updated] Facebook Flashback Finder</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-jump-to-youtube-affiliate-ranking-with-a-swift-10000-views-for-2024/"><u>[Updated] Jump to YouTube Affiliate Ranking with a Swift 10,000 Views for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-keyiphones-best-podcast-players-ranked/"><u>[Updated] KeyiPhone's Best Podcast Players Ranked</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-unlock-the-power-of-partnerships-youtube-ads-with-a-famebit-edge/"><u>[Updated] Unlock the Power of Partnerships YouTube Ads with a FameBit Edge</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/easy-steps-to-personalize-your-snapchat-pin/"><u>Easy Steps to Personalize Your Snapchat Pin</u></a></li>
-<li><a href="https://win-exceptional.techidaily.com/free-online-conversion-how-to-change-ppm-images-into-jpeg-format-with-ease/"><u>Free Online Conversion: How to Change PPM Images Into JPEG Format with Ease</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-the-updated-review-sonys-blu-ray-and-hd-masterpiece/"><u>In 2024, The Updated Review Sony's Blu-Ray and HD Masterpiece</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ating-to-the-shadows-of-youtube-videos-for-2024/"><u>Navigating to the Shadows of YouTube Videos for 2024</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/nokia-c300-stuck-on-screen-finding-solutions-for-stuck-on-boot-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Nokia C300 Stuck on Screen – Finding Solutions For Stuck on Boot | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ltimate-guide-to-earning-through-youtubing-enabling-monetization-on-mobile-devices/"><u>The Ultimate Guide to Earning Through YouTubing Enabling Monetization on Mobile Devices</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/updated-2024-approved-accessible-vocal-isolation-equipment-for-all-voice-levels/"><u>Updated 2024 Approved Accessible Vocal Isolation Equipment for All Voice Levels</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-essential-video-concepts-fueling-creativity-in-youtube-channels/"><u>[New] In 2024, Essential Video Concepts Fueling Creativity in YouTube Channels</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-premium-7-dslr-picks-for-ultimate-visual-storytelling-online/"><u>[New] In 2024, Premium 7 DSLR Picks For Ultimate Visual Storytelling Online</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-sound-sculpture-shaping-your-youtube-audio-experience-for-2024/"><u>[Updated] Sound Sculpture Shaping Your YouTube Audio Experience for 2024</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/efficace-riduzione-delle-dimensioni-dei-video-mov-tecniche-essenziali-per-migliorare-le-prestazioni-del-dispositivo-e-conservare-lo-spazio/"><u>Efficace Riduzione Delle Dimensioni Dei Video MOV: Tecniche Essenziali per Migliorare Le Prestazioni Del Dispositivo E Conservare Lo Spazio</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/flair-up-your-stories-and-feeds-instagrams-simplified-method-of-sharing-gifs-for-2024/"><u>Flair Up Your Stories & Feeds Instagram's Simplified Method of Sharing GIFs for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-find-ispoofer-pro-activation-key-on-infinix-zero-5g-2023-turbo-drfone-by-drfone-virtual-android/"><u>How to Find iSpoofer Pro Activation Key On Infinix Zero 5G 2023 Turbo? | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-laughter-lab-virtually/"><u>In 2024, Laughter Lab Virtually</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-the-journey-through-creative-commons-a-users-guide/"><u>In 2024, The Journey Through Creative Commons A User's Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/orm-selection-guide-determining-the-best-for-individual-creators-for-2024/"><u>Platform Selection Guide Determining the Best for Individual Creators for 2024</u></a></li>
+<li><a href="https://techidaily.com/samsung-can-t-play-avchd-mts-video-by-aiseesoft-video-converter-play-mts-on-android/"><u>Samsung can’t play AVCHD .mts video</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/the-ultimate-guide-to-unlocking-a-new-vocal-identity-in-free-fire-gaming/"><u>The Ultimate Guide to Unlocking a New Vocal Identity in Free Fire Gaming</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/top-twitter-management-apps-the-ultimate-list-of-best-tools-and-software/"><u>Top Twitter Management Apps: The Ultimate List of Best Tools & Software</u></a></li>
 </ul></div>
 

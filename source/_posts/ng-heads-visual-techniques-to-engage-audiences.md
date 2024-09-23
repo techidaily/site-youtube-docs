@@ -1,7 +1,7 @@
 ---
 title: "\"Talking Heads  Visual Techniques to Engage Audiences\""
-date: 2024-09-13T21:44:27.026Z
-updated: 2024-09-17T23:14:45.969Z
+date: 2024-09-20T20:08:04.095Z
+updated: 2024-09-22T18:15:53.630Z
 tags:
   - ai video
   - ai youtube
@@ -73,10 +73,10 @@ You can see from how even the background and couch looks across the entire camer
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
+  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3.  Two Person Vlog Set-Up
@@ -86,6 +86,13 @@ If your talking-head shot has got to include two people, you can use a similar s
 If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you can see that there’s a lot of space to the left and right of deadmau5\. Now imagine the same shot but with two people.
 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4.  Long Teleprompter Vlog Set-Up
 
@@ -111,13 +118,6 @@ To make a talking-head video more interesting, you can add some background music
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120864/26400?prodsku=Mercury" target="_top" id="2120864">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120864/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -139,16 +139,12 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-exploring-youtubes-functionality-following-uploaded-videos/"><u>[Updated] In 2024, Exploring YouTube’s Functionality Following Uploaded Videos</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-leap-into-broadcasting-effortless-setup-for-your-mobile-youtube-ventures/"><u>[Updated] In 2024, Leap Into Broadcasting Effortless Setup for Your Mobile YouTube Ventures</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-youtube-gaming-pros-choice-of-5-microphones/"><u>[Updated] In 2024, YouTube Gaming Pros' Choice of 5 Microphones</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-secrets-to-sustaining-high-view-count-in-youtube-videos/"><u>[Updated] Secrets to Sustaining High View Count in YouTube Videos</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-youtube-journey-starter-pack-8-essential-online-courses-for-2024/"><u>[Updated] YouTube Journey Starter Pack 8 Essential Online Courses for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-ideal-tools-for-documenting-classroom-engagement/"><u>2024 Approved Ideal Tools for Documenting Classroom Engagement</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/optimize-gmail-for-video-calls-with-effective-zoom-use/"><u>Optimize Gmail for Video Calls with Effective Zoom Use</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ntrepreneurs-blueprint-for-profiting-from-video-content/"><u>The Entrepreneur's Blueprint for Profiting From Video Content</u></a></li>
-<li><a href="https://discover-best.techidaily.com/transforming-logistics-management-industry-leaders-achieve-greater-efficiency-with-abbyy-automatic-document-recognition-solutions/"><u>Transforming Logistics Management: Industry Leaders Achieve Greater Efficiency with ABBYY Automatic Document Recognition Solutions</u></a></li>
-<li><a href="https://win11.techidaily.com/unlock-full-control-of-windows-key-using-these-tips/"><u>Unlock Full Control of Windows Key Using These Tips</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-making-triggered-memes-with-filmora-video-editor-for-2024/"><u>Updated Making Triggered Memes with Filmora Video Editor for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/outube-ad-free-watching-chromefirefoxandroidios-tutorial-for-2024/"><u>[New] YouTube Ad-Free Watching Chrome/Firefox/Android/iOS Tutorial for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-bursting-laughter-crafting-engaging-reaction-videos-on-youtube-3-methods/"><u>[Updated] In 2024, Bursting Laughter Crafting Engaging Reaction Videos on YouTube (3 Methods)</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-what-financial-gain-stems-from-one-million-youtube-eyeballs/"><u>[Updated] In 2024, What Financial Gain Stems From One Million YouTube Eyeballs?</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-save-the-day-guide-to-downloading-and-converting-vimeo-videos-mp4/"><u>[Updated] Save the Day Guide to Downloading and Converting Vimeo Videos (MP4)</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/additional-tips-about-sinnoh-stone-for-realme-v30-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/how-to-transfer-a-dvd-onto-an-iso-file-and-create-a-dvd-backup-using-winx-dvd-copy-professional/"><u>How to Transfer a DVD Onto an ISO File and Create a DVD Backup Using WinX DVD Copy Professional</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-lava-storm-5g-drfone-by-drfone-virtual-android/"><u>What is Geo-Blocking and How to Bypass it On Lava Storm 5G? | Dr.fone</u></a></li>
 </ul></div>
 
