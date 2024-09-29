@@ -1,7 +1,7 @@
 ---
 title: "Tips for Preventing Invisible Thumbnails on Shorts Videos for 2024"
-date: 2024-09-20T20:39:06.151Z
-updated: 2024-09-22T21:14:37.948Z
+date: 2024-09-28T01:23:06.480Z
+updated: 2024-09-28T17:05:00.198Z
 tags:
   - ai video
   - ai youtube
@@ -50,6 +50,13 @@ Adding a custom thumbnail for YouTube Shorts is the same as adding one for long-
 
 ![changing shorts thumbnail on youtube studio](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-change-thumbnail-5.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Q2\. Why Are YouTube Shorts Thumbnails Not Showing?
 
 It's not you who's the only one with Shorts thumbnails not showing. Many short-form content creators on the platform are also facing this issue. A YouTuber took to Reddit to complain about how he uploaded custom thumbnails for all his videos. The thumbnails are correct in the editor. However, YouTube still displays a random frame as the thumbnail on the Shorts shelf.
@@ -60,20 +67,27 @@ _"They ALL have randomly selected different parts of each video I have uploaded 
 
 The reason behind this is the difference in the thumbnail size. Regular YouTube video thumbnails are in the ratio of 16:9\. Meanwhile, Shorts uses a ratio of 9:16\. The thing is that YouTube does not yet allow you to upload 9:16 thumbnails. Thus, the thumbnail for Shorts may show correctly on the video section but not on the Shorts shelf.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Q3\. How to Fix YouTube Shorts Thumbnail Problem?
 
 ![fix youtube shorts thumbnail not showing problem](https://images.wondershare.com/filmora/article-images/fix-youtube-shorts-thumbnail-not-showing.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Unfortunately, there is no reliable fix to this problem yet. YouTubers have tried different things in hopes that YouTube will display the correct thumbnail for their Shorts.
 
 Some YouTubers have tried using different images. Others have experimented with changing the aspect ratio of the thumbnail or using Adobe editor for ratios. Clearing histories and cache, using different browsers, resizing, and changing the images' resolution have also been done. Sadly, these are all failed attempts.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Q4\. How To Boost Views When I Have no Control Over YouTube Shorts Thumbnails?
 
@@ -115,13 +129,6 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![shorts tab on the youtube website](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-1.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Pause the video.
 
 ![paused a shorts video](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-2.JPG)
@@ -129,6 +136,13 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 * Click "Library" on the left panel.
 
 ![library tab on the youtube website](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-3.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Select the Shorts you just watched. It should be on the top and first on the list.
 
@@ -143,13 +157,6 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 * Like the Shorts video.
 
 ![liked a shorts video on mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-2.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * Tap "Library"
 
@@ -177,6 +184,13 @@ The best thing is that you don't need to transfer the video from your phone to y
 
 Short-form video watchers love filters, transitions, and effects. And Filmora gives you access to all of that. It provides you with fun and amazing filters, effects, transitions, and stamps that can add a wow factor to your short-form video.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Q6\. Do YouTube Shorts Make Money?
 
 Making money from YouTube Shorts was challenging. The platform pays content creators who are doing well through the Creator Fund. However, as Shorts grew, the payout became smaller.
@@ -184,13 +198,6 @@ Making money from YouTube Shorts was challenging. The platform pays content crea
 Luckily, that's going to change. Starting this year, Shorts will be a part of the YouTube Partner Program. This means that you can make money from the ads that people watch on Shorts. According to YouTube, creators will keep 45% of the revenue. It will be distributed based on your share of total Shorts views.
 
 YouTube also adjusted the requirements to qualify for the YPP. They made it easier for Shorts content creators to get into the program.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Q7\. How Do You Make YouTube Shorts Play Normal?
 
@@ -209,6 +216,13 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 * Click "Library" on the left panel.
 
 ![library tab on the youtube website](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-3.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Select the Shorts you just watched. It should be on the top and first on the list.
 
@@ -232,16 +246,23 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![liked videos section on youtube mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-4.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Select the Shorts video you just watched. It should be at the top of the list.
 
 ![watching shorts like normal video mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-5.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -268,5 +289,23 @@ Users can subscribe to Shorts channels. And if they see that your videos are wel
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-building-your-virtual-persona-with-minimal-hassle/"><u>[New] 2024 Approved Building Your Virtual Persona with Minimal Hassle</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-maximizing-youtube-exposure-with-ongoing-creative-commons-compliance/"><u>[New] 2024 Approved Maximizing YouTube Exposure with Ongoing Creative Commons Compliance</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/-figure-views-prime-hashtag-strategies-for-success/"><u>[New] 6-Figure Views Prime Hashtag Strategies for Success</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/fficient-techniques-for-youtube-shorts-revenue-for-2024/"><u>[New] Efficient Techniques for YouTube Shorts Revenue for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-avoiding-the-blank-thumbnail-scenario-in-shorts/"><u>[New] In 2024, Avoiding the Blank Thumbnail Scenario in Shorts</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-alchemy-of-aesthetics-top-1-written-by-an-experienced-graphic-designer/"><u>[New] The Alchemy of Aesthetics Top 1 Written by an Experienced Graphic Designer</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-essential-tools-for-android-and-ios-users-seeking-playlist-extractors-for-2024/"><u>[Updated] Essential Tools for Android & iOS Users Seeking Playlist Extractors for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-expert-tips-for-effortless-ipodcast-downloads-on-iphone/"><u>[Updated] Expert Tips for Effortless IPodcast Downloads on iPhone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-from-creation-to-calculation-your-guide-to-a-3-step-strategy-for-youtube-revenue-insight-for-2024/"><u>[Updated] From Creation to Calculation Your Guide to a 3-Step Strategy for YouTube Revenue Insight for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-pro-tips-for-utilizing-green-screen-effects-professionally/"><u>[Updated] In 2024, Pro Tips for Utilizing Green Screen Effects Professionally</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-capture-the-best-moments-select-6-top-ranked-short-video-download-tools/"><u>2024 Approved Capture the Best Moments Select 6 Top-Ranked Short Video Download Tools</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-get-your-data-on-site-quickly-5-best-techniques-for-computer-transfer/"><u>2024 Approved Get Your Data On-Site Quickly 5 Best Techniques for Computer Transfer</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-the-ultimate-checkpoint-a-2021-review-of-vegas-pros-latest-features/"><u>2024 Approved The Ultimate Checkpoint A 2021 Review of Vegas Pro's Latest Features</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-say-no-to-latency-turn-on-av1-in-youtube-settings/"><u>In 2024, Say No to Latency Turn On AV1 in YouTube Settings</u></a></li>
+<li><a href="https://driver-install.techidaily.com/seamless-print-drivers-install-epson-model-2650-series/"><u>Seamless Print Drivers Install - Epson Model 2650 Series</u></a></li>
+<li><a href="https://techidaily.com/ways-to-fix-the-failed-to-parse-the-corrupted-excel-2007-file-error-stellar-by-stellar-guide/"><u>Ways to Fix the Failed to Parse the Corrupted Excel 2007 File Error | Stellar</u></a></li>
+</ul></div>
 

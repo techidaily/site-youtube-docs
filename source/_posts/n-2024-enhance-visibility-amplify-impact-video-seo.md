@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Enhance Visibility, Amplify Impact (Video SEO)"
-date: 2024-09-21T21:20:17.803Z
-updated: 2024-09-22T21:22:34.804Z
+date: 2024-09-22T03:06:01.854Z
+updated: 2024-09-28T19:37:09.889Z
 tags:
   - ai video
   - ai youtube
@@ -50,6 +50,13 @@ Audience Retention is an important metric to keep an eye on after every video yo
 
 ![low-audience-retention](https://images.wondershare.com/filmora/article-images/measurign-audience-retention.png.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100533/7443" target="_top" id="2100533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Before you start your next project, take a look back at the Audience Retention of your previous videos.  
 
 1. Enter YouTube Studio in your channel
@@ -66,9 +73,29 @@ If you get above **60%** Average Percentage Viewed, you should feel very proud. 
 
 ![audience-retention-one](https://images.wondershare.com/filmora/audience-retention-one.png)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 In the example above, we see that on average, a viewer will only see 44% of the video. For the video below, we see that it only has 30% of the video viewed. Overall, the first video is performing better.
 
 ![audience-retention-two](https://images.wondershare.com/filmora/audience-retention-two.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 There is also a dip that happens at the beginning in the second example, which indicates that viewers are skipping forward and about 20% then deciding it’s not worth continuing. It’s good data to help you improve your introduction and the hook.
 
@@ -93,16 +120,10 @@ If you have a video that is doing a good job retaining the audience, then replic
 Knowing how to structure your video will allow you to be strategic as you build out your content.
 
 <!-- affiliate ads begin -->
-<span id="1424528">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
+  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **2\. Do Keyword Research:**
@@ -116,13 +137,6 @@ Many viewers find YouTube videos via search, and if you aren’t using the appro
 **\- Tags**: Include 10-15 tags from general keywords to more specific.
 
 **\- Descriptions:** Put important information and keywords at the beginning of the description so both searcher and the search engine understands what the video is about.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **Why Keywords Matter**
 
@@ -155,6 +169,13 @@ If you want to find some new keywords for your upcoming video, you will need to 
 **3\. Search for Related Keywords and Evaluate Relevancy:** A tool called [Ubersuggest](https://neilpatel.com/ubersuggest/)can help you find related keywords and allow you to identify the search volume, cost per click (aka CPC is used for determining the budget for paid search), and the competitiveness of the word or phrase.
 
 ![ubersuggest](https://images.wondershare.com/filmora/ubersuggest.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Search volume:** The number of searches with that particular keyword. The higher the number the more popular it is. You should aim to use keywords with a high search volume.
 
@@ -192,13 +213,6 @@ Here is an example of how it would work:
 
 It’s all about creating a community and that is what YouTube encourages.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **4\. Upload YouTube Video in Proper Length:**
 
 YouTube puts a lot of weight on watch time, and in addition to that, it puts more weight on session watch time.
@@ -217,13 +231,6 @@ If your format allows, go for a longer video instead of a shorter one. But the m
 
 ![related-videos-for-your-audience](https://images.wondershare.com/filmora/related-videos-for-your-audience.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Playlist**: If you have multiple videos that fit a specific topic, add them to a playlist so the viewer can enjoy them all in one viewing.
 
 ![add-videos-of-the-same-topic-to-a-playlist](https://images.wondershare.com/filmora/add-videos-of-the-same-topic-to-a-playlist.jpg)
@@ -237,10 +244,10 @@ If your format allows, go for a longer video instead of a shorter one. But the m
 5. Ensure that **Viewers Continue Watching** videos on YouTube after they finish watching yours.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Other Things That Affects Your YouTube Ranking**
@@ -271,6 +278,13 @@ If you want to find a video editing solution that empowers your imagination and 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959707/19272" target="_top" id="1959707">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959707" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959707/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -290,5 +304,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/5-steps-towards-perfecting-your-educational-video-content-for-youtube-for-2024/"><u>[New] 15 Steps Towards Perfecting Your Educational Video Content for YouTube for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-seamless-replay-on-iphone-a-how-to-guide/"><u>[New] 2024 Approved Seamless Replay on iPhone A How-To Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-time-travelers-guide-to-top-student-friendly-youtube-history/"><u>[New] 2024 Approved Time Travelers' Guide to Top Student-Friendly YouTube History</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-instant-photographic-display-in-11-os-for-2024/"><u>[New] Instant Photographic Display in 11 OS for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-m1-chip-unmasked-apples-engineering-feat/"><u>[New] M1 Chip Unmasked Apple's Engineering Feat</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ourav-joshis-strategy-for-youtube-earning-in-the-year-2024/"><u>[New] Sourav Joshi's Strategy for YouTube Earning in the Year 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-essential-youtube-rules-for-content-creators/"><u>[Updated] 2024 Approved Essential YouTube Rules for Content Creators</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-monetization-mastery-thriving-in-the-youtube-economy-no-ads-included/"><u>[Updated] 2024 Approved Monetization Mastery Thriving in the YouTube Economy, No Ads Included</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-key-points-to-remember-a-comprehensive-look-at-youtube-tv/"><u>[Updated] In 2024, Key Points to Remember A Comprehensive Look at YouTube TV</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-unveiling-the-hidden-pathways-to-earning-on-youtube/"><u>2024 Approved Unveiling the Hidden Pathways to Earning on YouTube</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-x-to-androidios-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone X To Android/iOS? | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-conquer-common-youtube-short-setbacks/"><u>In 2024, Conquer Common YouTube Short Setbacks</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-exclusive-guide-to-legal-gaming-music-without-price-tag/"><u>In 2024, Exclusive Guide to Legal Gaming Music Without Price Tag</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-top-8-gratis-video-cutting-tools-for-online-content-creation/"><u>In 2024, Top 8 Gratis Video Cutting Tools For Online Content Creation</u></a></li>
+<li><a href="https://driver-install.techidaily.com/new-release-alert-gtx-970s-performance-on-w10-enhanced/"><u>New Release Alert: GTX 970'S Performance on W10 Enhanced</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-a-local-find-the-best-online-resources-for-korean-study/"><u>Speak Like a Local: Find the Best Online Resources for Korean Study</u></a></li>
+<li><a href="https://howto.techidaily.com/top-4-android-system-repair-software-for-nokia-c02-bricked-devices-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 4 Android System Repair Software for Nokia C02 Bricked Devices | Dr.fone</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Step-by-Step Process for Free YouTube Intro/End Making\""
-date: 2024-09-16T22:11:12.167Z
-updated: 2024-09-22T18:45:55.526Z
+date: 2024-09-26T20:43:40.856Z
+updated: 2024-09-29T03:39:10.513Z
 tags:
   - ai video
   - ai youtube
@@ -82,6 +82,13 @@ You can create a simple intro card in **Filmora**.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -117,6 +124,19 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1770526">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -136,12 +156,19 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-syncing-songs-with-stories-and-videos-on-instagram/"><u>[New] 2024 Approved Syncing Songs with Stories and Videos on Instagram</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/enerating-wealth-with-makeup-channels/"><u>[New] Generating Wealth with Makeup Channels</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-prime-interactive-room-for-free-play-for-2024/"><u>[New] Prime Interactive Room for Free Play for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/waying-scripts-an-introduction-to-bouncy-text-animations-for-2024/"><u>[New] Swaying Scripts An Introduction to Bouncy Text Animations for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/he-easy-fix-for-a-desired-list-directionality/"><u>[New] The Easy Fix for a Desired List Directionality</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-why-no-sound-the-twitter-video-amplification-guide/"><u>[New] Why No Sound? The Twitter Video Amplification Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-assessing-social-media-preference-the-case-for-tiktok-or-youtubes-shorts/"><u>[Updated] 2024 Approved Assessing Social Media Preference The Case for TikTok or YouTubes' Shorts</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-how-to-estimate-income-from-youtube-video-snippets/"><u>[Updated] In 2024, How to Estimate Income From YouTube Video Snippets</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/classroom-mastery-the-prime-10-audio-visual-aids-for-instructors-for-2024/"><u>Classroom Mastery The Prime 10 Audio-Visual Aids for Instructors for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-change-country-on-app-store-for-iphone-13-pro-max-with-7-methods-drfone-by-drfone-ios/"><u>In 2024, How To Change Country on App Store for iPhone 13 Pro Max With 7 Methods | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/online-vrijetijd-konverteren-bmp-naar-jpeg-gratis-met-movavi-geautomatiseerd-online-image-tool/"><u>Online Vrijetijd Konverteren: BMP Naar JPEG Gratis Met Movavi - Geautomatiseerd Online Image Tool</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/redefining-youtube-milestones-post-vidcon-spectacles-for-2024/"><u>Redefining YouTube Milestones Post-VidCon Spectacles for 2024</u></a></li>
+</ul></div>
 

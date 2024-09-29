@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, No More Hidden Shorts, Just Visible Ones"
-date: 2024-09-16T21:51:53.493Z
-updated: 2024-09-22T20:34:10.299Z
+date: 2024-09-24T17:53:51.969Z
+updated: 2024-09-29T01:21:24.381Z
 tags:
   - ai video
   - ai youtube
@@ -66,6 +66,13 @@ And, you must note that a YouTube Shorts video consists of two criteria as follo
 * The video has to be vertical (portrait-style)
 * The video must be 60 seconds or less
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Fix YouTube Shorts Not Showing Up?
 
 Here’s the section covering fixes on YouTube Shorts not showing. Please give it a read and resolve your issue happily!
@@ -82,18 +89,18 @@ Moreover, the option to upload Shorts is now hidden behind the **+** icon. Tap o
 
 Now, YouTube Shorts is available globally, but there was a phase when YouTube Shorts was a beta feature. It was only available in India and the US, which could be why you could not view Shorts in the YouTube app.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Fix 3: YouTube Shorts Is Mobile-only
 
 As of now, YouTube Shorts is only available on a smartphone because it's still in beta version. However, you can create Shorts via smartphone and the camera option in YouTube mobile app. Hence, there's no point in searching for Shorts on your computer.
 
 You can upload Shorts videos from your laptop. The entire process is similar to uploading a regular video. However, you have to mention #Shorts in the title and description to differentiate it as a Shorts video.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Common Fixes to YouTube Shorts Not Working
 
@@ -106,19 +113,6 @@ You can upload Shorts videos from your laptop. The entire process is similar to 
 The fixes above are also applicable if the YouTube Shorts are not showing on iPhone as well.
 
 Or, you can try the VPN solution before contacting the YouTube team.
-
-<!-- affiliate ads begin -->
-<span id="1983475">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### If Videos Are Not Visible under YouTube Shorts
 
@@ -141,6 +135,26 @@ Once uploaded, the YouTube Shorts will be displayed in a vertical thumbnail on Y
 **Step 3.** You'll see shorts videos under the "videos" section. Click that, and the videos you have which are tagged in with #shorts in the title or description will automatically display here.
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-not-showing-2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<span id="1983446">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Bonus Tip: How to Easily Create Vertical Videos for YouTube Shorts on PC
 
@@ -180,13 +194,6 @@ You can choose among three ways to open the Auto Reframe feature in Filmora.
 
 ![filmora](https://images.wondershare.com/filmora/guide/3-auto-reframe-tools.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 2\. Adjust the Aspect Ratio and Motion Speed**
 
 A separate dialog box will display once you have selected the **Auto Reframe** option. Now, click on **Import Media** and choose a single video to import. You can change the imported video by hitting the **Replace File** at the top menu.
@@ -196,15 +203,22 @@ There are multiple aspect ratio templates available such as square (1:1), vertic
 ![filmora](https://images.wondershare.com/filmora/guide/4-select-reframing-aspect-ratio.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 You can adjust the speed of your video in multiple options: keep it at **Auto** or make it **Slow** or **Fast** as per your requirements.
 
 ![filmora](https://images.wondershare.com/filmora/guide/5-select-motion-speed.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 3\. Analyze, and Auto Reframe the Video**
 
@@ -223,13 +237,6 @@ Lastly, you can preview your final video. If the video needs more work, you can 
 Finally, after all the final adjustments, you can hit the **Export** tab, name your file and choose the destination folder.
 
 ![filmora](https://images.wondershare.com/filmora/guide/9-export-reframed-video.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: FAQs about YouTube Shorts
 
@@ -271,6 +278,13 @@ However, we've mainly defined the editing part of Wondershare Filmora except cre
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -290,5 +304,19 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/uperior-sound-modification-equipment-for-video-artists/"><u>[New] Superior Sound Modification Equipment for Video Artists</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-2024-approved-deciphering-voip-prowess-discord-vs-skype-showdown/"><u>[Updated] 2024 Approved Deciphering VoIP Prowess Discord Vs. Skype Showdown</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-revolutionize-video-production-via-xp-installation/"><u>[Updated] 2024 Approved Revolutionize Video Production via XP Installation</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-broadcasting-made-simple-directly-stream-google-meet-to-youtube/"><u>[Updated] In 2024, Broadcasting Made Simple Directly Stream Google Meet to YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-breaking-down-8-common-blunders-in-early-stage-youtube-success/"><u>2024 Approved Breaking Down 8 Common Blunders in Early-Stage YouTube Success</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/bridging-human-and-machine-for-exceptional-job-applications/"><u>Bridging Human and Machine for Exceptional Job Applications</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/camera-woes-ended-by-fix-obs-for-2024/"><u>Camera Woes Ended by Fix - OBS for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ng-the-right-mic-a-guide-for-multifaceted-yt-channels/"><u>Finding the Right Mic A Guide for Multifaceted YT Channels</u></a></li>
+<li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-honor-90-lite-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Honor 90 Lite | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-elevating-your-youtube-presence-with-strategic-banners/"><u>In 2024, Elevating Your YouTube Presence with Strategic Banners</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-xiaomi-redmi-note-12r-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Xiaomi Redmi Note 12R to Other Android Devices Devices? | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ring-visual-marketing-on-youtube-with-banners-and-thumbnails/"><u>Mastering Visual Marketing on YouTube with Banners & Thumbnails</u></a></li>
+</ul></div>
 

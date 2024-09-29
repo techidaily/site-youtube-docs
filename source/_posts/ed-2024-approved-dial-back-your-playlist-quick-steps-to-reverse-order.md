@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Dial Back Your Playlist  Quick Steps to Reverse Order\""
-date: 2024-09-20T21:47:08.753Z
-updated: 2024-09-23T00:16:34.976Z
+date: 2024-09-23T20:41:58.733Z
+updated: 2024-09-28T21:52:08.472Z
 tags:
   - ai video
   - ai youtube
@@ -31,6 +31,13 @@ So, keep reading to learn how to reverse a YouTube playlist so you can watch the
 
 Below we've provided four different solutions to help you reverse your YouTube playlist on your computer:
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Using Chrome Web Extension
 
 One of the most straightforward and convenient methods of reversing the YouTube playlist is to install a Chrome browser extension that will let you play any playlist in the opposite order.
@@ -41,6 +48,19 @@ Here's how to install the "Iridium for YouTube" extension on your Chrome browser
 Step 1: In the first step, launch a browser on your computer and click the three dots (ellipsis icon) in the top-right corner of the screen. Scroll down, select "More Tools," and click Extensions."
 
 ![access google web store](https://images.wondershare.com/filmora/article-images/accessing-google-web-store.png)
+
+<!-- affiliate ads begin -->
+<span id="1983471">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step 2:
 
@@ -66,6 +86,13 @@ Step 5: Click the "Play All" option in the details section of the playlist and c
 
 ![set iridim for youtube](https://images.wondershare.com/filmora/article-images/setting-iridium-for-youtube-to-reverse-playlist.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 That's about it. You will now be able to watch a YouTube playlist in reverse order.
 
 ### Using The Third Website
@@ -80,14 +107,14 @@ Step 2: In the next step, open a new tab and visit the ["Playlist.Tools"](https:
 
 ![reverse youtube playlist 3rd part](https://images.wondershare.com/filmora/article-images/reversing-youtube-playlist-using-third-party-website.png)
 
-Step 3: Finally, click the "Sort" icon and select descending order to reverse your playlist. You can always return to the original sequence by clicking the "Original Sequence" option in the top right corner of the screen.
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+Step 3: Finally, click the "Sort" icon and select descending order to reverse your playlist. You can always return to the original sequence by clicking the "Original Sequence" option in the top right corner of the screen.
 
 ### Changing the Ordering in Settings
 
@@ -100,13 +127,6 @@ Step 2: Hover over the video, and you will see two horizontal lines next to it. 
 You can also utilize the "Sort" option to reverse the playlist. To do so, click "Sort" at the top of the playlist above the videos and select "Date Published (Oldest)" to change the order.
 
 ![reverse youtube playlist order](https://images.wondershare.com/filmora/article-images/sorting-the-playlist-order-to-reverse-it.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## A Bonus Tip for YouTube Creator: Make Your Own YouTube Channel Trailer
 
@@ -131,6 +151,13 @@ Next, provide a name, set the privacy settings to "Private," and click "Create."
 Step 4: In the final step, head to the Playlist tab, click "View Full Playlist" to open the new playlist, and click the "three dots" in the details area on the left. Next, select "Playlist Settings" and toggle the button next to "Add new videos to top of playlist" to enable it.
 
 You can now add more videos to your playlist, and each one will be added to the top. This method helps you arrange the YouTube playlist as you desire.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## The Bottom Line
 
@@ -157,5 +184,24 @@ So, keep reading to learn how to reverse a YouTube playlist so you can watch the
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/emystifying-youtube-shorts-content-strategy-guide-for-2024/"><u>[New] Demystifying YouTube Shorts Content Strategy Guide for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/arn-on-youtube-decoding-recent-policy-changes/"><u>[New] Earn on YouTube Decoding Recent Policy Changes</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-key-equipment-decisions-for-youtubers-on-a-budget/"><u>[New] In 2024, Key Equipment Decisions for YouTubers on a Budget</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-the-dangers-of-buying-fake-youtube-subscribers/"><u>[New] In 2024, The Dangers of Buying Fake YouTube Subscribers</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-the-archive-alchemist-transforming-social-feeds-to-files/"><u>[New] The Archive Alchemist Transforming Social Feeds to Files</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-balancing-consistency-and-quality-a-key-to-increasing-youtube-viewership/"><u>[Updated] 2024 Approved Balancing Consistency & Quality A Key to Increasing YouTube Viewership</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-edge-essentials-the-best-borders-and-frame-choices-in-photography/"><u>[Updated] In 2024, Edge Essentials The Best Borders & Frame Choices in Photography</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-jumpstart-your-journey-essential-youtubing-skills-course/"><u>[Updated] In 2024, Jumpstart Your Journey Essential YouTubing Skills Course</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-techniques-for-intense-online-visualization/"><u>[Updated] Techniques for Intense Online Visualization</u></a></li>
+<li><a href="https://extra-information.techidaily.com/5-best-photo-video-maker-with-music/"><u>5 Best Photo Video Maker With Music</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/vering-your-customized-youtube-playlist/"><u>Discovering Your Customized YouTube Playlist</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/-timers-manual-for-cool-mac-crafted-youtube-clips/"><u>First-Timer's Manual for Cool, Mac-Crafted YouTube Clips</u></a></li>
+<li><a href="https://win-able.techidaily.com/how-to-get-overwatch-2-running-smoothly-a-guide-to-7-crucial-fixes/"><u>How to Get Overwatch 2 Running Smoothly : A Guide to 7 Crucial Fixes</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-savory-showcase-inspiring-recipe-channels-that-thrive/"><u>In 2024, Savory Showcase Inspiring Recipe Channels That Thrive</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/overcoming-the-dark-startup-effective-solutions-for-black-screen-in-eldn-ring/"><u>Overcoming the Dark Startup: Effective Solutions for 'Black Screen' In Eldn Ring</u></a></li>
+<li><a href="https://common-error.techidaily.com/solution-steps-to-reactivate-dimmed-or-dead-keylights-in-your-laptop/"><u>Solution Steps to Reactivate Dimmed or Dead Keylights in Your Laptop</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/unlocking-the-vault-of-online-videos-via-facebook-for-2024/"><u>Unlocking the Vault of Online Videos via Facebook for 2024</u></a></li>
+</ul></div>
 

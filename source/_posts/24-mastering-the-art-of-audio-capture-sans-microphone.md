@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Mastering the Art of Audio Capture Sans Microphone"
-date: 2024-09-17T22:46:23.589Z
-updated: 2024-09-22T18:53:25.492Z
+date: 2024-09-25T05:26:33.511Z
+updated: 2024-09-28T21:01:39.281Z
 tags:
   - ai video
   - ai youtube
@@ -52,6 +52,13 @@ For example, your camera’s mic might be just as good as a clip-on LAV, but tha
 
 Moving your camera/smartphone physically closer to you will make it hard to include anything besides your head and shoulders in your shot, but it will get you significantly better audio.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2.Shoot Somewhere Quiet
 
 The best way to limit the amount of background noise you pick up in your sound recording is to shoot somewhere where there’s no background noise. That probably seems really basic, but it’s something a lot of people just don’t do. It’s easy to default to recording in your home office, even though it’s right next to the kitchen where your family is bustling around, or in your bedroom even though there’s a busy street right outside your window.
@@ -65,6 +72,13 @@ There’s more that goes into picking a good room than how quiet it is. If you t
 You should also pay attention to what’s in the room you’re recording in. Avoid hard, reflective, surfaces like appliances and mirrors which your voice will bounce off of. The same conditions that make you sound great when you sing in the shower will – like recording in a small space -make your voiceover unpleasantly echo-y.
 
 Look for a room that has a lot of soft things in it, like beds and sofas.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 4\. Protect your Built-In Mic from Wind
 
@@ -80,6 +94,13 @@ If your built-in mic is on top of your camera you can get something called a ‘
 
 ![Record better audio from wind with micromuff](https://images.wondershare.com/filmora/article-images/record-better-audio-from-wind.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 _You use the adhesive backing to attach the base velcro to your camera. The other side of the velcro has your fluff attached to the back._
 
 The only thing about a micromuff is that it costs about $30, and if you’re going to spend $30 on audio equipment then you could just buy yourself an inexpensive LAV mic. I only bring up the micromuff because it’s a very simple design you can probably DIY – you just need velcro with adhesive backing and any of the fluff-sources we just discussed.
@@ -92,13 +113,6 @@ Even if you’re not recording video from your smartphone, it might be a good id
 
 Free audio apps: Hi-Q MP3 Voice Recorder (Android), RecForge II (Android), Smart Voice Recorder (Android), Audio Memos (iOS), and Recorder Plus (iOS).
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 6\. Do a Sound Check
 
 Once you think you’ve got good audio set up – test it! You don’t want to do a whole video and find out when you play it back that your audio doesn’t sound good.
@@ -107,13 +121,6 @@ Do you have any of your own audio tips to pass on? Leave them in the comments!
 
 _This topic was suggested by RS Beauty over in the forums. Thanks for the idea!_
 
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Polish Your YouTube Videos with Filmora
 
 As one of the most widely used video editing software in YouTube video editing, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) allows you to [record voiceover](https://tools.techidaily.com/wondershare/filmora/download/) and edit the recorded audio with mixer, equalizer and provides lots of templates and effects with an intuitive interface, which saves much time. Download the free trial version and get started now.
@@ -121,10 +128,10 @@ As one of the most widely used video editing software in YouTube video editing, 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -148,5 +155,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-maximizing-youtube-income-lessons-from-sourav-joshi/"><u>[New] 2024 Approved Maximizing YouTube Income Lessons From Sourav Joshi</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-unique-video-monikers-brainstorming-insights/"><u>[New] In 2024, Unique Video Monikers Brainstorming Insights</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ero-cost-youtube-meetings-easy-to-host/"><u>[New] Zero Cost Youtube Meetings Easy to Host</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-free-to-profit-reaching-the-new-500-sub-total/"><u>2024 Approved Free to Profit Reaching the New 500 Sub Total</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-live-links-share-twitch-videos-efficiently-on-facebook/"><u>2024 Approved Live Links Share Twitch Videos Efficiently on Facebook</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/best-script-writing-website/"><u>Best Script Writing Website</u></a></li>
+<li><a href="https://win-able.techidaily.com/fixing-lower-fps-in-forza-horizon-5-tips-and-tricks/"><u>Fixing Lower FPS in Forza Horizon 5: Tips and Tricks</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-smart-growth-metropolis-balancing-development-and-nature/"><u>In 2024, Smart Growth Metropolis Balancing Development and Nature</u></a></li>
+<li><a href="https://games-able.techidaily.com/is-top-tier-nitro-essential-for-gamers/"><u>Is Top-Tier Nitro Essential for Gamers?</u></a></li>
+<li><a href="https://some-tips.techidaily.com/previsions-pour-lessor-de-la-main-doeuvre-numerique-dans-les-entreprises-plus-de-50-daugmentation-en-2021-etude-detaillee-par-abbyy/"><u>Prévisions Pour L'essor De La Main-D'oeuvre Numérique Dans Les Entreprises (Plus De 50% D'augmentation en 2021) – Étude Détaillée Par ABBYY</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ling-the-identity-of-viewers-on-youtube/"><u>Revealing the Identity of Viewers on YouTube</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/the-ultimate-fix-for-missing-or-lost-d3dx939dll-errors-on-windows/"><u>The Ultimate Fix for Missing or Lost d3dx9_39.dll Errors on Windows</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/xsplit-hub-centralized-download-and-evaluation/"><u>XSplit Hub Centralized Download & Evaluation</u></a></li>
+</ul></div>
 

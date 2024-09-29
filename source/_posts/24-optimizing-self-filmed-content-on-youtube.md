@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Optimizing Self-Filmed Content on YouTube\""
-date: 2024-09-20T17:52:07.921Z
-updated: 2024-09-22T23:08:24.762Z
+date: 2024-09-28T03:55:24.936Z
+updated: 2024-09-28T19:44:31.077Z
 tags:
   - ai video
   - ai youtube
@@ -44,6 +44,13 @@ We’ve summarized the key points about setting up talking head style video shot
 
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
 
 Don’t have a lot of space to set up your camera and lighting equipment? No problem! You can be within an arm’s length away from your camera with a close quarters wide-angle vlog set-up.
@@ -72,6 +79,13 @@ You can see from how even the background and couch looks across the entire camer
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3.  Two Person Vlog Set-Up
 
 If your talking-head shot has got to include two people, you can use a similar set-up as the medium vlog set-up detailed above.
@@ -81,10 +95,16 @@ If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983575">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4.  Long Teleprompter Vlog Set-Up
@@ -103,18 +123,18 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Tips for Making a Talking Head Video Better
 
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -137,5 +157,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-the-video-gurus-playbook-smooth-transition-to-easy-youtube-cc-and-subtitles/"><u>[New] 2024 Approved The Video Guru's Playbook Smooth Transition to Easy YouTube CC & Subtitles</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/20886183-new-2024-approved-top-bargain-video-snippets-grab-youtube-images-without-cost/"><u>[New] 2024 Approved Top Bargain Video Snippets - Grab YouTube Images Without Cost!</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-acquiring-drone-racing-skills-and-exploring-top-fpv-drones/"><u>[New] Acquiring Drone Racing Skills & Exploring Top FPV Drones</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/tep-by-step-lyric-video-crafting-with-lyric-video-maker/"><u>[New] Step-by-Step Lyric Video Crafting with Lyric Video Maker</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/treamline-shorter-optimizing-youtube-videos-for-less-time-for-2024/"><u>[New] Streamline Shorter Optimizing YouTube Videos for Less Time for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-guide-to-supercharged-video-engagement-with-youtube-notes/"><u>[Updated] 2024 Approved Guide to Supercharged Video Engagement with YouTube Notes</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-peering-into-mr-beasts-economic-landscape/"><u>[Updated] 2024 Approved Peering Into Mr. Beast's Economic Landscape</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-2024-approved-synchronizing-tweeted-videos-on-social-media-hub-fb/"><u>[Updated] 2024 Approved Synchronizing Tweeted Videos on Social Media Hub FB</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-the-digital-artisans-guide-mastering-screen-recordings-in-macos/"><u>2024 Approved The Digital Artisan's Guide Mastering Screen Recordings in macOS</u></a></li>
+<li><a href="https://games-able.techidaily.com/fortifying-playtime-enabling-security-features-on-your-switch/"><u>Fortifying Playtime: Enabling Security Features on Your Switch</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/still-using-pattern-locks-with-honor-magic-5-pro-tips-tricks-and-helpful-advice-by-drfone-android/"><u>Still Using Pattern Locks with Honor Magic 5 Pro? Tips, Tricks and Helpful Advice</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-infinix-note-30-vip-racing-edition-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Infinix Note 30 VIP Racing Edition | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/unlocking-xbox-xs-digital-deals/"><u>Unlocking Xbox X|S Digital Deals</u></a></li>
+</ul></div>
 

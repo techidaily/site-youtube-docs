@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Essential Illumination Strategies for Filming for 2024"
-date: 2024-09-18T17:20:15.802Z
-updated: 2024-09-22T16:37:40.347Z
+date: 2024-09-21T23:07:39.763Z
+updated: 2024-09-28T18:41:29.037Z
 tags:
   - ai video
   - ai youtube
@@ -51,6 +51,13 @@ The final step to creating three point lighting is to set up another light behin
 
 ### Watch Video! Top Lighting Tips for Vlogging
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Lightning Tips for Aspiring YouTube Videographers
 
 Becoming the master of light will take some time and practice, so it is crucial to remain curious and anxious to learn new tricks throughout that process if you want to continually become better. These tips will help you make the first steps on that journey.
@@ -77,17 +84,38 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
 
 If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
 
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -108,12 +136,17 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/ed-are-there-legal-restrictions-to-recording-youtube-videos-for-2024/"><u>[Updated] Are There Legal Restrictions to Recording YouTube Videos for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-frame-freezing-banishing-blurry-bites/"><u>[Updated] Frame Freezing Banishing Blurry Bites</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-beyond-indexation-understanding-youtubes-unlisted-mechanism/"><u>[Updated] In 2024, Beyond Indexation Understanding YouTube's Unlisted Mechanism</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-delving-into-t-series-revenue-generation-on-video-platforms/"><u>[Updated] In 2024, Delving Into T-Series' Revenue Generation on Video Platforms</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-navigating-frames-per-second-in-video-recording-the-3060-dilemma/"><u>[Updated] In 2024, Navigating Frames Per Second in Video Recording - The 30/60 Dilemma</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/activate-movavi-video-converter-at-no-cost-ultimate-guide/"><u>Activate Movavi Video Converter at No Cost: Ultimate Guide</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/high-fidelity-footage-face-off-hero5-black-vs-hero4-silver-for-2024/"><u>High Fidelity Footage Face-Off Hero5 Black vs Hero4 Silver for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-samsung-galaxy-z-flip-5-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Samsung Galaxy Z Flip 5? | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/-fixes-for-green-screen-glitches-on-mac-video-editing-platform-for-2024/"><u>Quick Fixes for Green Screen Glitches on Mac Video Editing Platform for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/struggling-with-your-iphones-silence-unveil-vibration-fixes-for-both-ring-and-quiet-settings/"><u>Struggling with Your iPhones Silence? Unveil Vibration Fixes for Both Ring and Quiet Settings!</u></a></li>
+</ul></div>
 

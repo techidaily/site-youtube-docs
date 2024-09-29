@@ -1,7 +1,7 @@
 ---
 title: "[New] The Secret Technique for Instantaneous Deletion of Youtube Discussions"
-date: 2024-09-21T18:22:20.026Z
-updated: 2024-09-22T20:27:11.665Z
+date: 2024-09-24T02:21:32.635Z
+updated: 2024-09-29T01:06:11.072Z
 tags:
   - ai video
   - ai youtube
@@ -89,16 +89,10 @@ If it is your video where the comment to be removed is, you can go to My Channel
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
 
 <!-- affiliate ads begin -->
-<span id="1982457">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Delete Other People’s Comments on Others’ Channels
@@ -139,13 +133,20 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
-  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
+  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Final Thoughts
 
@@ -154,10 +155,10 @@ YouTube can be an unsafe place with unwanted comments everywhere. In this blog, 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -179,5 +180,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/anishing-unwanted-green-in-mac-recorded-youtube-content/"><u>[New] Banishing Unwanted Green in Mac-Recorded YouTube Content</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/onstructing-an-inviting-subscribe-link-for-youtube-enthusiasts/"><u>[New] Constructing an Inviting Subscribe Link for YouTube Enthusiasts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-flavorful-funnels-catchy-recipe-channels-that-work/"><u>[New] In 2024, Flavorful Funnels Catchy Recipe Channels That Work</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-unearthing-unique-content-for-youtubes-spotlight/"><u>[Updated] 2024 Approved Unearthing Unique Content for Youtube's Spotlight</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-channel-makeovers-made-easy-top-10-online-tools-for-artists/"><u>[Updated] Channel Makeovers Made Easy - Top 10 Online Tools for Artists</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/demystifying-t-series-income-streams-via-youtube-platforms/"><u>Demystifying T-Series Income Streams via YouTube Platforms</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-fix-the-soft-bricked-honor-x9b-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix the Soft Bricked Honor X9b? | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/improving-visual-storytelling-with-secondary-shoots-for-2024/"><u>Improving Visual Storytelling with Secondary Shoots for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-6-solutions-to-unlock-xiaomi-phones-if-you-forgot-password-pin-pattern-by-drfone-android/"><u>In 2024, 6 Solutions to Unlock Xiaomi Phones If You Forgot Password, PIN, Pattern</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/rapidly-assembling-a-facebook-image-puzzle-for-2024/"><u>Rapidly Assembling a Facebook Image Puzzle for 2024</u></a></li>
+<li><a href="https://techidaily.com/resolving-the-issue-of-missing-amd-graphics-drivers-in-device-manager-step-by-step-solution/"><u>Resolving the Issue of Missing AMD Graphics Drivers in Device Manager - Step-by-Step Solution</u></a></li>
+<li><a href="https://driver-download.techidaily.com/update-your-hp-scanjet-printer-for-windows-downloads-for-w10w11w8w7-users/"><u>Update Your HP Scanjet Printer for Windows: Downloads for W10/W11/W8/W7 Users!</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ish-virtual-spectators-boosting-youtube-traffic/"><u>Vanquish Virtual Spectators Boosting YouTube Traffic</u></a></li>
+</ul></div>
 

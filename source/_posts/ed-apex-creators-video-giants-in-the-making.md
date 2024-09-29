@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Apex Creators  Video Giants in the Making\""
-date: 2024-09-17T17:57:16.270Z
-updated: 2024-09-22T16:27:36.729Z
+date: 2024-09-25T22:33:41.351Z
+updated: 2024-09-29T00:57:36.282Z
 tags:
   - ai video
   - ai youtube
@@ -84,10 +84,10 @@ Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countrie
 ![Smosh](https://images.wondershare.com/filmora/article-images/smosh.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Originally, Smosh was a channel run by sketch comedy duo Ian Andrew Hecox and Anthony Padilla. They started the Smosh YouTube channel in 2005 and since then they have grown their team to include more creators, and their content to include animation and gaming. Smosh has become much more than two funny guys on YouTube – it is a wildly successful content company.
@@ -95,6 +95,13 @@ Originally, Smosh was a channel run by sketch comedy duo Ian Andrew Hecox and An
 Most channels that have one viral video do not go on to have sustained success on YouTube, but Smosh is an exception to this rule. Their ‘Pokemon Theme Music Video’, released in 2005, became the most viewed video of all time (as of that year). This video kick-started the growth of their channel.
 
 In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube channel.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 5\.  Fernanfloo
 
@@ -108,25 +115,25 @@ At the end of 2015, Alvarado launched the Fenanfloo mobile app that had 2.3 mill
 
 Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wondershare/filmora/download/)?
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Edit YouTube Videos with Full-Featured Video Editing Software
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972679/19272" target="_top" id="1972679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -147,5 +154,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-hone-your-talks-expert-insights-into-google-meet-chats/"><u>[New] 2024 Approved Hone Your Talks Expert Insights Into Google Meet Chats</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-screen-capture-central-apowsort-vs-competitors-explored/"><u>[New] 2024 Approved Screen Capture Central Apowsort vs Competitors Explored</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-amplify-your-video-calls-with-these-essential-10-free-tools-for-2024/"><u>[New] Amplify Your Video Calls with These Essential 10 Free Tools for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/eading-video-kick-offs-the-best-16-youtube-vlogs-to-increase-views/"><u>[New] Leading Video Kick-Offs The Best 16 YouTube Vlogs to Increase Views</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-elevating-brand-awareness-with-tailored-engaging-youtube-banners/"><u>[Updated] 2024 Approved Elevating Brand Awareness with Tailored, Engaging YouTube Banners</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-analyzing-video-platforms-vimeo-and-youtube/"><u>[Updated] In 2024, Analyzing Video Platforms Vimeo and YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-step-by-step-process-embedding-internet-video-in-ppt-decks-for-2024/"><u>[Updated] Step-By-Step Process Embedding Internet Video in PPT Decks for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-trends-and-techniques-for-skyrocketing-youtube-views/"><u>[Updated] Trends and Techniques for Skyrocketing YouTube Views</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-innovative-approaches-to-documenting-facetime-talks/"><u>In 2024, Innovative Approaches to Documenting FaceTime Talks</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/optimize-your-dell-device-with-latest-system-management-bus-controller-upgrade/"><u>Optimize Your Dell Device with Latest System Management Bus Controller Upgrade</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/pioneering-the-art-of-storytelling-top-youtubers-of-year-2023/"><u>Pioneering the Art of Storytelling - Top YouTubers of Year 2023</u></a></li>
+<li><a href="https://win11.techidaily.com/strategies-to-tackle-zeroxc000003e-application-errors-in-win1011/"><u>Strategies to Tackle ZeroXc000003e Application Errors in Win10/11</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/top-6-ways-to-transfer-text-messages-from-itel-a60-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 6 Ways to Transfer Text Messages from Itel A60 to Other Android Devices | Dr.fone</u></a></li>
+</ul></div>
 

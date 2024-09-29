@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Unlock YouTube's End Screens  Easy Template Ideas & Tutorials\""
-date: 2024-09-20T19:26:59.316Z
-updated: 2024-09-22T17:36:49.100Z
+date: 2024-09-28T04:56:10.547Z
+updated: 2024-09-29T04:08:51.526Z
 tags:
   - ai video
   - ai youtube
@@ -96,9 +96,23 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
 ![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
 
@@ -118,6 +132,13 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![adjust-end-screen-templates-in-canva](https://images.wondershare.com/filmora/article-images/adjust-end-screen-templates-in-canva.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 8\. When you’re done, delete the original image so that you’re left with just your own design. Go ahead and click “download.”
 
 ![youtube-end-screen-made-with-canva](https://images.wondershare.com/filmora/article-images/youtube-end-screen-made-with-canva.jpg)
@@ -127,6 +148,13 @@ If you're looking for other options to design your end screen, make sure to also
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -147,12 +175,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-expertly-navigating-the-world-of-audio-recording-gear-apple-specific-for-2024/"><u>[New] Expertly Navigating the World of Audio Recording Gear (Apple-Specific) for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-fast-and-free-strategies-for-authenticity-in-insta-circles-for-2024/"><u>[New] Fast & Free Strategies for Authenticity in Insta Circles for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-live-action-revealed-an-in-depth-review-of-polaroids-new-camera-for-2024/"><u>[New] Live-Action Revealed An In-Depth Review of Polaroid's New Camera for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-the-4-fastest-lenovo-record-methods-for-2024/"><u>[New] The 4 Fastest Lenovo Record Methods for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-flavorful-frontier-groundbrenant-title-strategies-for-food-networks/"><u>[Updated] 2024 Approved Flavorful Frontier Groundbrenant Title Strategies for Food Networks</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-best-camera-apps-to-shoot-and-record-videos-on-iphone-and-andriod-phones/"><u>[Updated] In 2024, Best Camera Apps to Shoot and Record Videos on iPhone and Andriod Phones</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-best-student-friendly-history-vid-hubs-1-10/"><u>[Updated] In 2024, Best Student-Friendly History Vid Hubs (#1-10)</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-the-year-of-gaming-earnings-revolutions/"><u>2024 Approved The Year of Gaming Earnings Revolutions</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-top-12-html5-videophones-for-optimal-viewing/"><u>2024 Approved Top 12 HTML5 Videophones for Optimal Viewing</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/discover-the-8-premier-nft-chatbot-extensions-powered-by-gpt-technology/"><u>Discover the 8 Premier NFT Chatbot Extensions Powered by GPT Technology</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-samsung-galaxy-f14-5g-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Samsung Galaxy F14 5G to Outlook | Dr.fone</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-efficient-media-transformation-with-actionable-steps-from-xml/"><u>In 2024, Efficient Media Transformation with Actionable Steps From XML</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-get-superior-visuals-from-youtube-downloading-thumbnails-free/"><u>In 2024, Get Superior Visuals From YouTube - Downloading Thumbnails Free!</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-recover-deleted-contacts-on-google-pixel-8-pro-without-backup-by-fonelab-android-recover-contacts/"><u>The way to recover deleted contacts on Google Pixel 8 Pro without backup.</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/s-to-viral-guide-for-computer-and-phone-upload-of-youtube-shorts/"><u>Videos to Viral Guide for Computer & Phone Upload of YouTube Shorts</u></a></li>
+</ul></div>
 

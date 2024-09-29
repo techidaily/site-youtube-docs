@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  The Editor's Playbook  Mastering the Art of YouTube Cuts\""
-date: 2024-09-20T23:02:01.193Z
-updated: 2024-09-22T18:00:46.398Z
+date: 2024-09-26T22:39:05.745Z
+updated: 2024-09-28T22:34:49.461Z
 tags:
   - ai video
   - ai youtube
@@ -59,6 +59,13 @@ Now, download it now to have a try!
 
 ## How to Use YouTube Video Editor to Edit Video on YouTube
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step 1. Get access to YouTube Video Editor
 
 Sign in to your YouTube (or Google) account. To get access to YouTube Video Editor, you can go directly to [YouTube studio (video editor)](https://studio.youtube.com). Or click avatar icon in your YouTube site > YouTube Studio.
@@ -77,13 +84,6 @@ To do this, go to the CC tab, find a video and drag it to the timeline.
 
 Looking for best YouTube video editor alternatives? Check this [complete guide here](https://tools.techidaily.com/wondershare/filmora/download/) \>>
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Step 3. Edit the videos as you like
 
 With the YouTube video editor, you can quick fix your videos, add audio track of your video, add texts, use various filters and more. Below is a detailed guide on how to use YouTube video Editor.
@@ -101,6 +101,13 @@ With the YouTube video editor, you can quick fix your videos, add audio track of
 To cut or split your video, hover over the target clip and hit the scissor icon to cut the clip into pieces. You can also cursor over the edge of your video in the timeline and drag the handle to shorten or trim your video.
 
 ![youtube video editor](https://images.wondershare.com/topic/video-editing/youtube-video-editor-split.png "youtube video editor trim video")
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### #2 Change video settings
 
@@ -123,16 +130,16 @@ To add text to video, go to the "Text" tab, tick "Enable text" and enter the tex
 ![youtube video editor](https://images.wondershare.com/topic/video-editing/youtube-video-editor-add-text.png "how to edit a youtube video")
 
 <!-- affiliate ads begin -->
-<span id="1983549">
+<span id="1982570">
 					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### #5 Add music to video
@@ -140,6 +147,13 @@ To add text to video, go to the "Text" tab, tick "Enable text" and enter the tex
 YouTube also allows you to swap out the audio with one of its licensed tracks. To do this, go back to the main interface of the editor and click the Audio tab. Then select a song from the library and either drag it to the soundtrack timeline or press the plus sign to the right of each title.
 
 ![youtube video editor tip](https://images.wondershare.com/images/multimedia/video-editor/add-music-youtube.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Note: You should note that some are songs are subject to licensing agreements, which means YouTube will automatically add advertisements to the video clip.
 
@@ -159,20 +173,19 @@ Download it now to have a try!
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144285/7443" target="_top" id="2144285">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144285" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144285/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902304/19272" target="_top" id="1902304">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902304" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902304/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982461">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -194,5 +207,17 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-best-practices-for-distance-dialogue-capture/"><u>[New] Best Practices for Distance Dialogue Capture</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-unlocking-income-streams-from-google-adsense-to-money-matters/"><u>[Updated] 2024 Approved Unlocking Income Streams From Google AdSense to Money Matters</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-captivating-your-audience-youtube-intro-excellence-with-imovie/"><u>[Updated] In 2024, Captivating Your Audience YouTube Intro Excellence with iMovie</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-master-your-thumbnails-with-these-20-top-fonts/"><u>[Updated] Master Your Thumbnails with These 20 Top Fonts</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-recording-quality-unlocked-best-mics/"><u>[Updated] Recording Quality Unlocked Best Mics</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-recurrence-installer-collection/"><u>2024 Approved Recurrence Installer Collection</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-reimagining-storytelling-through-vr-screens/"><u>2024 Approved Reimagining Storytelling Through VR Screens</u></a></li>
+<li><a href="https://howto.techidaily.com/fixing-persistent-pandora-crashes-on-motorola-edge-40-neo-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixing Persistent Pandora Crashes on Motorola Edge 40 Neo | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-resolve-sound-quality-problems-fixing-windows-speaker-glitches/"><u>How to Resolve Sound Quality Problems: Fixing Window's Speaker Glitches</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-visual-ventures-partnership-playbook/"><u>In 2024, Visual Ventures Partnership Playbook</u></a></li>
+</ul></div>
 

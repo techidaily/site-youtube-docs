@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Easy Tutorial  Uploading YouTube Shorts Video via Computer & Phone for 2024\""
-date: 2024-09-19T19:09:16.511Z
-updated: 2024-09-23T00:21:40.503Z
+date: 2024-09-26T01:07:12.764Z
+updated: 2024-09-29T03:09:52.453Z
 tags:
   - ai video
   - ai youtube
@@ -95,6 +95,13 @@ The process of **uploading YouTube Shorts** from the mobile app is fairly simple
 
 ![Select a Video to Upload as Shorts](https://images.wondershare.com/filmora/article-images/select-shorts-videos-to-upload-on-youtube.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 On your Android or iOS smartphone, launch the YouTube app, tap the **+** (**Create**) icon from the bottom, tap **Create a Short** from the **Create** box that pops up from the bottom, tap **Upload** from the bottom-right corner of the next screen, and select and upload a short, 60 seconds video recorded in portrait orientation from your device’s storage to the app.
 
 #### Step 2: Add Details
@@ -106,6 +113,19 @@ On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the b
 #### Step 3: Upload the Video
 
 Finally tap **UPLOAD** from the top-right corner to upload the short video on YouTube.
+
+<!-- affiliate ads begin -->
+<span id="1982456">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Method 2: Record a Short Video and Upload
 
@@ -133,26 +153,26 @@ On the **Add details** window, enter a name for the video along with the **#Shor
 
 **[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)**
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Conclusion**
 
 Learning the process of **how to post short videos on YouTube** is fairly simple as long as you have the video recorded in the portrait orientation, it is up to 60 seconds long, and contains the ‘#Shorts’ tag (without quotes) in the title or description. The good thing is, if you don’t have access to the YouTube app on your smartphone, the method for **how to upload short video on YouTube** explained in the first section can be followed while using your desktop computer.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -174,5 +194,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-maximize-impact-crafting-a-standout-video-ending/"><u>[New] 2024 Approved Maximize Impact Crafting a Standout Video Ending</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-debunking-youtube-premium-benefits-vs-costs-for-2024/"><u>[New] Debunking YouTube Premium Benefits Vs. Costs for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-framework-developing-transformative-lifestyle-broadcasts/"><u>[New] In 2024, Framework Developing Transformative Lifestyle Broadcasts</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/obile-filmmaking-mastery-creating-impactful-youtube-thumbnails/"><u>[New] Mobile Filmmaking Mastery Creating Impactful YouTube Thumbnails</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-earnings-on-youtube-a-monthly-perspective-in-2024/"><u>[Updated] Earnings on YouTube A Monthly Perspective, In 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-accelerate-your-income-on-tiktok-with-these-8-profitable-methods/"><u>[Updated] In 2024, Accelerate Your Income on TikTok with These 8 Profitable Methods</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-prioritize-tags-the-essentials-for-your-youtube-video-posting/"><u>[Updated] Prioritize Tags The Essentials for Your YouTube Video Posting</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-bare-essentials-for-relaxation/"><u>2024 Approved Bare Essentials for Relaxation</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-unveiling-vrs-elite-accessories-top-10/"><u>2024 Approved Unveiling VR's Elite Accessories (Top 10)</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-periscope-savvy-the-ultimate-operational-manual/"><u>In 2024, Periscope Savvy The Ultimate Operational Manual</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revealing-the-methodology-of-mondly/"><u>Revealing the Methodology of Mondly</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ower-of-politeness-in-growing-your-audience-for-2024/"><u>The Power of Politeness in Growing Your Audience for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ltimate-treasure-trove-of-inspirational-video-concepts/"><u>The Ultimate Treasure Trove of Inspirational Video Concepts</u></a></li>
+</ul></div>
 

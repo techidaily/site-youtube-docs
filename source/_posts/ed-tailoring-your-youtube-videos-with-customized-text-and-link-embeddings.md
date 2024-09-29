@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Tailoring Your YouTube Videos with Customized Text & Link Embeddings"
-date: 2024-09-19T16:17:53.798Z
-updated: 2024-09-22T18:17:02.289Z
+date: 2024-09-21T17:51:25.245Z
+updated: 2024-09-29T01:21:39.595Z
 tags:
   - ai video
   - ai youtube
@@ -72,6 +72,19 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 * Apply changes and exit
 
+<!-- affiliate ads begin -->
+<span id="1938141">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to add YouTube annotations
 
 YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
@@ -82,10 +95,30 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1531879">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -125,6 +158,13 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -144,12 +184,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/levate-your-cinematography-skills-editing-and-sharing-360-videos-on-youtube-for-2024/"><u>[New] Elevate Your Cinematography Skills Editing and Sharing 360° Videos on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-elite-10-audio-boosters-for-os-x-ios-android/"><u>[Updated] 2024 Approved Elite 10 Audio Boosters for OS X, iOS, Android</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-gopro-vs-sony-x1000v-a-detailed-comparison-of-action-cams/"><u>[Updated] 2024 Approved GoPro Vs. Sony X1000V A Detailed Comparison of Action Cams</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-enhance-visibility-on-instagram-the-art-of-animated-texts-in-stories/"><u>[Updated] Enhance Visibility on Instagram The Art of Animated Texts in Stories</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-maximizing-gaming-experience-record-games-on-win10-for-2024/"><u>[Updated] Maximizing Gaming Experience Record Games on Win10 for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-navigating-file-extraction-from-youtube-browser-os-and-terminal-methods/"><u>[Updated] Navigating File Extraction From Youtube Browser, OS and Terminal Methods</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-zero-cost-youtube-meetings-easy-to-host/"><u>[Updated] Zero Cost Youtube Meetings Easy to Host</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-proven-strategies-for-elevating-your-aspects-in-asmr-production/"><u>2024 Approved Proven Strategies for Elevating Your Aspects in ASMR Production</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-unmatched-youtube-success-10-unique-tips-for-your-shorts/"><u>2024 Approved Unmatched YouTube Success 10 Unique Tips for Your Shorts</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/canva-guide-swiftly-erasing-image-borders/"><u>Canva Guide Swiftly Erasing Image Borders</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/comprehensive-ipados-update-manual-version-by-version-breakdown/"><u>Comprehensive iPadOS Update Manual: Version by Version Breakdown</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-videos-on-huawei-p60-by-fonelab-android-recover-video/"><u>How to restore wiped videos on Huawei P60</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/razer-blade-stealth-13-assessment-unprecedented-advancements-in-portable-powerhouse-tech/"><u>Razer Blade Stealth 13 Assessment: Unprecedented Advancements in Portable Powerhouse Tech</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-mechanics-of-gpt-4-all-an-in-depth-examination-for-tech-enthusiasts/"><u>The Mechanics of GPT-4 All – An In-Depth Examination for Tech Enthusiasts</u></a></li>
+</ul></div>
 

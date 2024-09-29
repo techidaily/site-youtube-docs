@@ -1,7 +1,7 @@
 ---
 title: "In 2024, The Blueprint for Successful YouTube Video Plans and Outlines"
-date: 2024-09-16T17:56:14.416Z
-updated: 2024-09-22T17:46:09.614Z
+date: 2024-09-27T03:46:44.087Z
+updated: 2024-09-28T22:03:23.208Z
 tags:
   - ai video
   - ai youtube
@@ -52,26 +52,34 @@ Before you write the script, it’s a good idea to gather ideas. If you think of
 
 Once you have gathered enough ideas for the YouTube video, the next step is to find a place where you can write in peace and be inspired. Avoid any distractions to ensure that you will be able to put all your thoughts and ideas onto paper.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
+  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Writing a Script for a YouTube Video
 
 Now that you're ready to sit down and write, here's what you do:
 
 <!-- affiliate ads begin -->
-<span id="1531879">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. Create an outline for your story
 
 The first step in writing a script is to develop an outline for the story. You might think that it is an unnecessary step, but it’s one of the most important steps to writing a script. The outline serves as a guide that will make the finished product better compared to when you just tried to wing it. One tip on how to write a script for a YouTube video is to have an outline for the beginning, middle, and ending of the video. Once you have all the elements of the story, then you can start with the first draft of the script.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. Set the tone
 
@@ -80,19 +88,6 @@ The tone you pick for the video will depend on your audience. It’s safe to ass
 ### 3\. Just keep writing
 
 When you start writing it is important that you keep on doing it no matter what happens. Just write down everything that comes into your mind. After that, read what you’ve written. If you think that something needs to be replaced, then replace it. If you get more inspiration and think that the script is lacking, then add to it.
-
-<!-- affiliate ads begin -->
-<span id="1975555">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4\. Make sure that the script is well structured
 
@@ -116,18 +111,18 @@ While you are scripting and focusing on the information you want to deliver, it�
 
 Remember to refer to your audience as ‘you’, not ‘you guys’ (you are speaking to individual viewers, not a collective) and to include moments of engagement throughout your videos. Ask your viewers questions to keep their minds active, this also encourages them to leave comments.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## After Writing your YouTube Video Script
 
 After writing the script, the next step is to invite a trusted friend or family member to look at the script. Ask them for their feedback and if they have any ideas to add. And don’t forget, be open-minded to feedback
 
 These are the tips to keep in mind when considering how to write a script for a YouTube video.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Add Subtitles to Your YouTube Video with Wondershare Filmora
 
@@ -156,5 +151,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/nalyzing-the-post-upload-process-in-youtubes-ecosystem-for-2024/"><u>[New] Analyzing the Post-Upload Process in YouTube's Ecosystem for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-creating-powerful-teacher-content-on-youtube-top-10-insights/"><u>[Updated] Creating Powerful Teacher Content on YouTube Top 10 Insights</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-maximizing-youtube-shorts-earnings-essentials-and-profit-prospects/"><u>[Updated] In 2024, Maximizing Youtube Shorts Earnings Essentials and Profit Prospects</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-the-path-from-conceptualization-to-consuming-your-mukbang-masterpiece/"><u>[Updated] In 2024, The Path From Conceptualization to Consuming Your Mukbang Masterpiece</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-mastering-the-art-of-shorts-imagery-quick-smart-updates/"><u>[Updated] Mastering the Art of Shorts Imagery Quick, Smart Updates</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-tips-from-pros-elevating-your-twitch-video-quality/"><u>[Updated] Tips From Pros Elevating Your Twitch Video Quality</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-the-ultimate-guide-to-efficiently-producing-high-quality-small-images/"><u>2024 Approved The Ultimate Guide to Efficiently Producing High-Quality Small Images</u></a></li>
+<li><a href="https://network-issues.techidaily.com/a-step-by-step-guide-to-eliminate-yt-green-issues/"><u>A Step-by-Step Guide to Eliminate YT Green Issues</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-fix-icloud-lock-on-your-apple-iphone-15-plus-and-ipad-by-drfone-ios/"><u>In 2024, How to fix iCloud lock on your Apple iPhone 15 Plus and iPad</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-palette-prestige-highlighting-10-free-mac-compatible-art-tools/"><u>In 2024, Palette Prestige Highlighting 10 Free, Mac-Compatible Art Tools</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-transforming-views-into-virtual-winnings-youtube-edition/"><u>In 2024, Transforming Views Into Virtual Winnings YouTube Edition</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/open-markets-close-plans-strategy-inception-for-2024/"><u>Open Markets, Close Plans Strategy Inception for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/regain-speed-by-tweaking-msram/"><u>Regain Speed by Tweaking MSRam</u></a></li>
+</ul></div>
 
