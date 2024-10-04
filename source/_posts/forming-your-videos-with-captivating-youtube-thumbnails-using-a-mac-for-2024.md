@@ -1,7 +1,7 @@
 ---
 title: "Transforming Your Videos with Captivating Youtube Thumbnails, Using a Mac for 2024"
-date: 2024-09-28T02:43:59.576Z
-updated: 2024-09-28T22:03:01.424Z
+date: 2024-10-01T12:26:44.555Z
+updated: 2024-10-04T09:04:41.422Z
 tags:
   - ai video
   - ai youtube
@@ -48,16 +48,10 @@ thumbnails are a significant factor in determining the number of views a Youtube
 If you don’t create a thumbnail then youtube will generate one by itself which may not be so enticing for viewers. The purpose of the thumbnail is to make your videos stand out among the rest so you need to pay attention to it!
 
 <!-- affiliate ads begin -->
-<span id="1982570">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to make Youtube Thumbnails on Mac
@@ -69,6 +63,13 @@ You can easily create interesting thumbnails for youtube videos using a thumbnai
 The first step in creating a thumbnail is to import the final video into the FilmoraX editor on your MacBook.
 
 ![import](https://images.wondershare.com/filmora/filmoraX/Guide-Mac/3.import-media-files.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Then, use the thumbnail editor to play your video and choose the snapshot that you want to be appearing as your thumbnail.
 
@@ -83,10 +84,10 @@ Once you’ve chosen the frame for the thumbnail, the next step would be to add 
 ![add text on thumbnail](https://images.wondershare.com/filmora/Mac-articles/add-text-on-thumbnail.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
+  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3. Add effects
@@ -96,16 +97,10 @@ FilmoraX has a wide range of effects that you can apply to your videos or pictur
 ![filter9](https://images.wondershare.com/filmora/guide/filter-9-mac.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983539">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4. Save the thumbnail
@@ -121,13 +116,6 @@ So, using this thumbnail maker you can easily create custom thumbnails for your 
 Hopefully, the above-mentioned steps have given you enough insight and clarity on making creative and good youtube thumbnails. Using [FilmoraX](https://tools.techidaily.com/wondershare/filmora/download/) will further simplify the process for you with its amazing tools and features!
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -152,19 +140,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/he-essentials-to-carve-out-your-creative-space-for-2024/"><u>[New] The Essentials to Carve Out Your Creative Space for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-becoming-a-master-at-iphones-hdr-photography-techniques/"><u>[Updated] Becoming a Master at iPhone's HDR Photography Techniques</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-analyzing-user-interface-and-features-in-youtube-mobile-app/"><u>[Updated] In 2024, Analyzing User Interface and Features in YouTube Mobile App</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-zero-cost-techniques-for-video-and-text-combination-for-2024/"><u>[Updated] Zero-Cost Techniques for Video and Text Combination for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-ways-to-move-contacts-from-poco-c50-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Move Contacts From Poco C50 to iPhone (13/14/15) | Dr.fone</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/decoding-the-need-for-more-robust-regulation-in-ai-according-to-openais-head/"><u>Decoding the Need for More Robust Regulation in AI According to OpenAI's Head</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ing-the-revised-youtube-earnings-criteria/"><u>Decoding the Revised YouTube Earnings Criteria</u></a></li>
-<li><a href="https://techtrends.techidaily.com/fixing-missing-dll-errors-a-guide-to-restoring-the-msvcr100dll-file/"><u>Fixing Missing DLL Errors: A Guide to Restoring the MSVCR100.dll File</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/getting-started-with-iphone-speech-recordings/"><u>Getting Started with iPhone Speech Recordings</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-elevating-your-vlogs-a-list-of-the-top-12-professional-cameras/"><u>In 2024, Elevating Your Vlogs A List of the Top 12 Professional Cameras</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-enhance-your-media-with-top-free-android-editing-tools/"><u>In 2024, Enhance Your Media with Top Free Android Editing Tools</u></a></li>
-<li><a href="https://article-helps.techidaily.com/time-lapse-wizardry-harnessing-gopros-potential/"><u>Time-Lapse Wizardry Harnessing GoPro's Potential</u></a></li>
-<li><a href="https://discover-guides.techidaily.com/top-free-collages-templates-websites-crear-sin-esfuerzo/"><u>Top Free Collages Templates Websites - Crear Sin Esfuerzo</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-the-scope-of-facebooks-content-tribunal/"><u>Understanding the Scope of Facebook’s Content Tribunal</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-youtube-studio-mastery-a-comprehensive-video-editing-guide/"><u>[New] 2024 Approved YouTube Studio Mastery A Comprehensive Video Editing Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ecode-the-digital-dollar-with-youtube-an-effective-triple-step-method-for-income-analysis-for-2024/"><u>[New] Decode the Digital Dollar with YouTube An Effective Triple Step Method for Income Analysis for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/elightful-yuletide-cinema-on-youtube-savor-nine-whole-film-gems/"><u>[New] Delightful Yuletide Cinema on YouTube Savor Nine Whole-Film Gems</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-avoiding-pitfalls-understanding-youtube-standards/"><u>[New] In 2024, Avoiding Pitfalls Understanding YouTube Standards</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-unveiling-the-secrets-to-youtube-shorts-template-creation/"><u>[New] In 2024, Unveiling the Secrets to YouTube Shorts Template Creation</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/treamline-your-youtube-video-process-with-faster-techniques-for-2024/"><u>[New] Streamline Your YouTube Video Process with Faster Techniques for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-best-economical-choice-high-performance-asmr-mic-picks/"><u>[Updated] Best Economical Choice High-Performance ASMR Mic Picks</u></a></li>
+<li><a href="https://article-helps.techidaily.com/become-a-pip-expert-enhancing-visual-narratives-on-macos-sierra-for-2024/"><u>Become a PIP Expert Enhancing Visual Narratives on macOS Sierra for 2024</u></a></li>
+<li><a href="https://fox-where.techidaily.com/download-gameshows-from-gameone-convert-episodes-into-mp4wmvavi-formats-with-ease/"><u>Download Gameshows From GameOne: Convert Episodes Into MP4/WMV/AVI Formats with Ease</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/forefront-vs-chatgpt-in-depth-insights-into-ai-competitiveness/"><u>Forefront vs ChatGPT: In-Depth Insights Into AI Competitiveness</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/novice-to-pro-your-step-by-step-guide-to-youtube-live-images/"><u>From Novice to Pro Your Step-by-Step Guide to YouTube Live Images</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/meal-prep-mastery-using-chatgpt-to-design-healthful-meal-strategies/"><u>Meal Prep Mastery: Using ChatGPT to Design Healthful Meal Strategies</u></a></li>
+<li><a href="https://howto.techidaily.com/vivo-y100-not-receiving-texts-10-hassle-free-solutions-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Vivo Y100 Not Receiving Texts? 10 Hassle-Free Solutions Here | Dr.fone</u></a></li>
 </ul></div>
 

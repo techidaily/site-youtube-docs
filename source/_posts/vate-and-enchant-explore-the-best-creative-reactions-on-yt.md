@@ -1,7 +1,7 @@
 ---
 title: "\"Captivate and Enchant  Explore the Best Creative Reactions on YT\""
-date: 2024-09-16T21:36:12.596Z
-updated: 2024-09-22T23:53:04.447Z
+date: 2024-09-28T22:13:37.307Z
+updated: 2024-10-03T18:50:22.406Z
 tags:
   - ai video
   - ai youtube
@@ -43,6 +43,13 @@ Previously we have demonstrated [how to create a YouTube reaction video with Fil
 
 The process of [making a YouTube video](https://tools.techidaily.com/wondershare/filmora/download/) starts with an idea and the idea you choose often determines how good that video is going to be. The fact that reaction videos are so popular on YouTube right now, makes the idea selection even more important because just one good idea may boost your number of followers significantly. Here are some of the best video reaction ideas you can use to comment on different topics.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. React to music videos
 
 Music videos are among the most popular genres of videos on YouTube, which makes them perfect to react to. You can share your opinion about the musician, their latest work or the video’s visual aspects. Obtaining the copyrights to the music video you would like to comment on is very important, because you may be forced to delete your reaction video if you don’t.
@@ -55,13 +62,6 @@ Video games like Minecraft, Fortnite or Grand Theft Auto attract a lot of attent
 
 YouTubers that already have thousands of followers need to keep coming up with new ways to engage their audience. Encouraging the viewers of your videos to comment on them can be a valuable source of ideas for reaction videos. You can comment on the topics that were discussed in the comments and address particular questions your followers have asked you.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. Make a ‘Kids React To’ videos
 
 Videos of children reacting to different genres of music are already getting thousands of views every day. So, if you like working with children you should consider making a variation of this type of video. There are so many different things children can react to, you just have to find a few that fit perfectly into your channel’s topic.
@@ -71,15 +71,22 @@ Videos of children reacting to different genres of music are already getting tho
 Even though reacting to a reaction video sounds silly, it is anything but because by doing so you will open up space for a dialogue with other YouTubers. Besides being funny, this is also an opportunity to give your two cents on topics that are most relevant for your channel. In addition, the YouTube audience loves collaborations between YouTubers, which will give you and your associates the opportunity to increase the size of your audience.
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
-  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 6\. Comment on your old videos
 
 Producing new content for your YouTube channel regularly is important for so many reasons, but recycling old material from time to time can allow you to reflect on the topics you already covered. In addition, you’ll remind your viewers of your old videos and give them the reason to watch them again. Opting to comment on the videos you made in the past can also help you avoid potential copyright complications.
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 7\. Record reactions of elderly people
 
@@ -90,22 +97,15 @@ It becomes increasingly difficult to keep up with the latest pop culture trends 
 Over the course of the last decade, we’ve seen so many challenges go viral, as even the world’s most famous politicians took part in some of them. Challenge videos are not as popular as they used to be a few years ago, but they still amass thousands of views. Making funny reaction videos to different challenge videos may help you boost your number of followers, especially if you come up with witty remarks for each video you comment on.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 9\. React to TV shows
 
 We all love watching a good TV show, whether it is a TV series or a reality show. So, if you are looking for a reaction video idea that can hardly fail, commenting on a TV show may be the right choice for you. However, getting the right to use the footage you would like to comment on may be difficult, as making the reaction video without permission from the copyright owner may have legal implications.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 10\. Comment on [movie trailers](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -142,5 +142,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-building-brands-through-memes/"><u>[New] Building Brands Through Memes</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ducational-synergy-enhancing-learning-with-youtube-videos-for-2024/"><u>[New] Educational Synergy Enhancing Learning with YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-achieving-profitability-on-youtube-average-view-count-for-success/"><u>[New] In 2024, Achieving Profitability on YouTube Average View Count for Success</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-screen-capture-mastery-windows-edition-free-3-methods/"><u>[New] In 2024, Screen Capture Mastery Windows Edition (Free, 3 Methods)</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-in-depth-analysis-the-essence-of-the-google-podcast-application/"><u>[New] In-Depth Analysis The Essence of the Google Podcast Application</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/astering-chapter-division-in-youtube-videos/"><u>[New] Mastering Chapter Division in YouTube Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-beginners-ultimate-list-of-must-have-video-tech-for-2024/"><u>[Updated] Beginner's Ultimate List of Must-Have Video Tech for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-essential-mobile-media-creation-tools-iphone-vs-android-review-for-2024/"><u>[Updated] Essential Mobile Media Creation Tools IPhone vs Android Review for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-warm-up-your-visuals-a-guide-to-top-cozy-winter-backgrounds/"><u>[Updated] In 2024, Warm Up Your Visuals A Guide to Top Cozy Winter Backgrounds</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/conquer-language-barriers-6-best-online-korean-resources/"><u>Conquer Language Barriers: 6 Best Online Korean Resources</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-forgotten-the-voicemail-password-of-lava-blaze-2-5g-try-these-fixes-by-drfone-android/"><u>In 2024, Forgotten The Voicemail Password Of Lava Blaze 2 5G? Try These Fixes</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-realme-12-5g-bootloader-easily-by-drfone-android/"><u>In 2024, How to Unlock Realme 12 5G Bootloader Easily</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-navigating-best-options-expert-picks-from-top-9-free-logomakers/"><u>In 2024, Navigating Best Options Expert Picks From Top 9 Free Logomakers</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-tutorial-purging-your-youtube-download-history/"><u>In 2024, Tutorial Purging Your YouTube Download History</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/secrets-to-proficient-ipad-screening-for-2024/"><u>Secrets to Proficient iPad Screening for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/visual-upgrades-in-demons-souls-rebirth-preserving-iconic-adventure-quality/"><u>Visual Upgrades in Demon’s Souls Rebirth: Preserving Iconic Adventure Quality</u></a></li>
+</ul></div>
 

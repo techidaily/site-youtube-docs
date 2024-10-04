@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Perfecting Your Look  Essential Makeup Tips & Product Reviews\""
-date: 2024-09-26T01:51:43.402Z
-updated: 2024-09-28T16:43:22.524Z
+date: 2024-10-03T02:58:30.739Z
+updated: 2024-10-04T10:30:23.963Z
 tags:
   - ai video
   - ai youtube
@@ -62,6 +62,13 @@ Another way you could find a niche is by taking on a specific area of interest, 
 
   SunKissAlba has a lifestyle channel that focuses on a ‘natural’ niche. She posts videos about every aspect of her lifestyle from putting on makeup to cooking, but natural/non-toxic products are a constant theme through everything she does. By niching her channel she hasn’t limited what kinds of videos she can do at all - she posts a huge variety of different types of videos. What she has done is to make her channel particularly valuable to audiences interested in things that are natural or organic.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Types of Beauty Videos – Your Content Strategy**
 
 It’s a lot easier to come up with weekly video ideas when you have an overarching strategy.
@@ -99,6 +106,13 @@ Here are some common types of beauty and lifestyle videos:
 * Boyfriend Does My Makeup
 * Kid’s Makeup Challenge
 * No Mirror Makeup Challenge
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **How to Get Products to Review**
 
@@ -159,10 +173,10 @@ An aperture of f/5.0 is good if you’re going to be moving around a lot, but if
 ![set f stop](https://images.wondershare.com/filmora/article-images/set-f-stop2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044582/7443" target="_top" id="2044582">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044582" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://sentrypc.7eer.net/c/5597632/398449/3022" target="_top" id="398449">
+  <img src="//a.impactradius-go.com/display-ad/3022-398449" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044582/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398449/3022" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 6:** Set your ISO (film speed). A lower ISO will give you a darker, but higher quality, image. A higher ISO will lower your quality and give you a brighter image.
@@ -171,14 +185,14 @@ ISO 400 should be a happy medium for shooting inside with your ring light, but y
 
 ![set film speed](https://images.wondershare.com/filmora/article-images/set-film-speed3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 For more info on [camera settings for beauty videos, click here](https://www.filmora.io/video-tutorials/how-to-set-up-your-camera-%E2%80%93-the-makeup-series-12.html).
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Lighting for Beauty**
 
@@ -193,13 +207,6 @@ There are, however, some reasons you might want additional light:
 If you only have a ring light/front light then you may end up looking like you’re surrounded by shadows. If you want more light for your space you can use windows, household lamps, or professional video lights like softboxes or LED panels.
 
  ![light background](https://images.wondershare.com/filmora/article-images/light-background4.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
-  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### **To Stand Out Against your Background (‘Backlighting’)**
 
@@ -233,6 +240,13 @@ One cool feature of the Neewer Ring Light is that you can choose between dayligh
 
 ![Neewer Ring Light ](https://images.wondershare.com/filmora/article-images/neewer-ring-light5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 This light is dimmable and can be adjusted to the angle that suits your shot. That’s true of our number 2 pick too, and the second place light actually has a slight edge over the Neewer light because its color temperature is 5400K which is slightly closer to daylight than Neewer’s 5500K, but that’s honestly not super important for YouTube. They’re close enough that you won’t be able to tell the difference, and this light is over $100 more affordable.
 
 #### 2\. [**Prismatic Halo Ring Light**](https://www.amazon.com/Prismatic-Halo-Ring-Light-Stand/dp/B015NJ2YHY/ref=sr%5F1%5F3?s=electronics&ie=UTF8&qid=1530135663&sr=1-3&keywords=prismatic+18%22+halo+ring+light) **\- $260**
@@ -240,19 +254,6 @@ This light is dimmable and can be adjusted to the angle that suits your shot. Th
 This lightweight ring light is easy to transport, set up, and mount your phone or camera to. It’s a fluorescent ‘daylight’ (5400K) light, so the colors in your videos will look natural.
 
 This light is dimmable, so you can turn it down if it’s too bright, and the Prismatic Light Stand will allow you to tilt your light to the perfect angle. This will be handy if you’re mounting your camera inside the ring but want to place it slightly above your face instead of having it look at you head on.
-
-<!-- affiliate ads begin -->
-<span id="1983588">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Build Your Own Diva Ring Light**
 
@@ -292,10 +293,10 @@ Before you start recording your makeup tutorial there are a few things you shoul
  5. **_Do an audio test._** If you’re going to be talking in your video instead of recording a voiceover after, do an audio test to make sure your audience will be able to hear you clearly.
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
-  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **How to Make a Makeup Tutorial – Recording**
@@ -323,13 +324,6 @@ Remember to include what type of video you made, i.e. ‘tutorial’, ‘review�
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -351,18 +345,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/fficiently-convert-youtube-to-desktop-format-for-2024/"><u>[New] Efficiently Convert YouTube to Desktop Format for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-from-passive-page-peeps-to-paying-patrons-facebook-monetization-magic/"><u>[Updated] 2024 Approved From Passive Page Peeps to Paying Patrons Facebook Monetization Magic</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-unleash-the-power-of-your-youtube-channel-with-expert-editing-techniques/"><u>[Updated] 2024 Approved Unleash the Power of Your YouTube Channel with Expert Editing Techniques</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-free-fx-library-to-enhance-youtube-productions-in-2024/"><u>[Updated] Free FX Library to Enhance YouTube Productions, In 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-mastering-youtubes-video-editor-integrating-tracks-into-your-videos/"><u>[Updated] In 2024, Mastering YouTube's Video Editor Integrating Tracks Into Your Videos</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-3-ways-to-record-switch-gameplay/"><u>2024 Approved 3 Ways to Record Switch Gameplay</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-elevate-viewing-experience-enable-av1-on-youtube/"><u>In 2024, Elevate Viewing Experience – Enable AV1 on YouTube</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-infographic-review-fifa-video-gains-on-social-platforms/"><u>In 2024, Infographic Review FIFA Video Gains on Social Platforms</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-invigorating-channel-content-best-video-concepts-to-inspire-viewers/"><u>In 2024, Invigorating Channel Content Best Video Concepts to Inspire Viewers</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-saving-instagrams-a-step-by-step-approach-for-windowsmacos-users/"><u>In 2024, Saving Instagrams A Step-by-Step Approach for Windows/macOS Users</u></a></li>
-<li><a href="https://win11.techidaily.com/separate-onedrive-and-microsoft-accounts-on-desktop-windows/"><u>Separate OneDrive & Microsoft Accounts on Desktop Windows</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/syncing-chatgpt-and-siri-on-ios-tips-for-seamless-voice-assistant-experience/"><u>Syncing ChatGPT and Siri on iOS: Tips for Seamless Voice Assistant Experience</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/unlocking-the-power-of-smart-lock-a-beginners-guide-for-xiaomi-13t-users-by-drfone-android/"><u>Unlocking the Power of Smart Lock A Beginners Guide for Xiaomi 13T Users</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-seeking-the-finest-pixel-ringtones-online/"><u>[New] 2024 Approved Seeking the Finest Pixel Ringtones Online</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-best-app-selection-perfecting-your-windows-display-captures-for-2024/"><u>[New] Best App Selection Perfecting Your Windows Display Captures for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-cutting-edge-strategies-for-console-recording-on-personal-devices-for-2024/"><u>[New] Cutting-Edge Strategies for Console Recording on Personal Devices for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/urge-video-popularity-with-essential-seo-aids-for-2024/"><u>[New] Surge Video Popularity with Essential SEO Aids for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unleashing-creativity-how-to-make-dynamic-gifs-with-youtube-tracks-pcmobile/"><u>[New] Unleashing Creativity How to Make Dynamic GIFs with YouTube Tracks (PC/Mobile)</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-dissecting-youtube-chatter/"><u>[Updated] 2024 Approved Dissecting YouTube Chatter</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-5-easy-free-methods-to-master-youtube-video-frames/"><u>[Updated] In 2024, 5 Easy, Free Methods to Master YouTube Video Frames</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-pc-masterys-essential-list-for-video-download-enthusiasts/"><u>[Updated] In 2024, PC Mastery's Essential List for Video Download Enthusiasts</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-the-essential-guide-to-earning-money-on-youtube-shorts-quickly/"><u>[Updated] In 2024, The Essential Guide to Earning Money on YouTube Shorts Quickly</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-polishing-audio-in-home-recordings-on-youtube/"><u>2024 Approved Polishing Audio in Home Recordings on YouTube</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fake-snapchat-location-without-jailbreak-on-honor-magic-5-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location without Jailbreak On Honor Magic 5 | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/in-2024-set-your-preferred-job-location-on-linkedin-app-of-your-tecno-spark-20-drfone-by-drfone-virtual-android/"><u>In 2024, Set Your Preferred Job Location on LinkedIn App of your Tecno Spark 20 | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-streamlining-youtube-videos-adding-subtitles-and-cc-proficiently/"><u>In 2024, Streamlining YouTube Videos Adding Subtitles & CC Proficiently</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-swift-guide-to-chromakey-and-background-separation/"><u>In 2024, Swift Guide to Chromakey and Background Separation</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/reverse-video-magic-online-step-by-step-guides/"><u>Reverse Video Magic Online Step-by-Step Guides</u></a></li>
+<li><a href="https://some-tips.techidaily.com/step-by-step-guide-running-a-windows-11-laptop-in-sleep-mode-while-closed-for-extended-use/"><u>Step-by-Step Guide: Running a Windows 11 Laptop in Sleep Mode While Closed for Extended Use</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-preserve-your-memories-burning-videos-to-dvd-on-windows-and-mac-for-2024/"><u>Updated Preserve Your Memories Burning Videos to DVD on Windows and Mac for 2024</u></a></li>
 </ul></div>
 

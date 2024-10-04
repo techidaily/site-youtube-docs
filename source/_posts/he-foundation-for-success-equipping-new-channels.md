@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Foundation for Success  Equipping New Channels\""
-date: 2024-09-21T21:10:51.506Z
-updated: 2024-09-28T21:31:35.156Z
+date: 2024-10-01T08:16:14.275Z
+updated: 2024-10-03T22:09:51.950Z
 tags:
   - ai video
   - ai youtube
@@ -55,6 +55,13 @@ On one end of the spectrum, you have basic smartphone cameras and web cameras, w
 
 If you already have a DSLR camera then it’s a good idea to familiarize yourself with it. You have far more freedom to adjust the settings and achieve a professional look for your videos with a DSLR, but that does mean it’ll take some time to become an expert at using it. Ultra-high resolution is not required for YouTube, but it certainly won’t hurt to have additional sharpness and more detail in the scene. If you’re shopping for a DSLR, look for one with a flip screen that allows you to quickly check what your viewers see.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## YouTube Microphone and Audio
 
 **The short version:** Audio quality is extremely important. If you can buy either a new camera or an external microphone, but not both, it might be better to go for the microphone. [Click here for advice on upping your audio quality without an external microphone.](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -77,13 +84,6 @@ If you have the budget available to get some lighting equipment, you can find so
 
 Another useful piece of lighting equipment to have is a reflector. A reflector is usually a piece of white, silver, or gold fabric stretched over a frame. You can use it to bounce light from one light source back towards yourself (this is a great way to fill shadows cast by your main light). Reflectors tend to be inexpensive, but you can also use white cardboard or tinfoil in place of purchasing a reflector.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Tripods and Camera Stands
 
 **The short version:** You need something to hold your camera. If you mostly film in your own home that can be a desk or a stack of books, but if you make a lot of videos while you're on the go you probably need a tripod or gimbal. Heavier cameras need heavier tripods.
@@ -95,15 +95,22 @@ When you are choosing a tripod, pay attention to how much it weighs. If the came
 Even if you are using a phone or a webcam to record YouTube videos, you should consider mounting the device on a stable stand. It is possible to find mini tripods ideal for smartphones for as little as $10\. These tripods are small enough to carry in your pocket, so you will be prepared to start making a video no matter where your adventures take you. If you are using a web camera, you should attach it to the stand so that it won’t move accidentally after you touch the surface it is placed on.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Smartphone Camera Gear
 
 ![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **The short version:** There's a lot of gear out there designed with smartphone photos and videos in mind, including clip-on lenses, tripod mounts, phone-mounted LED lights, and inexpensive microphones that plug into the audio jack.
 
@@ -113,25 +120,18 @@ On the flip side, smartphone cameras typically perform poorly in low light. It i
 
 Another common downside of smartphone cameras is that most of them use digital zoom, which is vastly inferior to optical zoom. If you intend to shoot anything that’s further away than a few feet, you need a clip-on lens that goes on top of the built-in camera. This inexpensive device will give you a lot of freedom to work in space, and allow you to make spectacular shots even without high-end YouTube equipment.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Equipment with Easy-to-Use Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -154,14 +154,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/ncome-reconnaissance-unmasking-mr-beasts-fortune/"><u>[New] Income Reconnaissance Unmasking Mr. Beast's Fortune</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-economical-mic-options-for-youtube-vloggers/"><u>[Updated] In 2024, Economical Mic Options for YouTube Vloggers</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-uncovering-youtubes-finest-vr-movie-gems/"><u>2024 Approved Uncovering YouTube's Finest VR Movie Gems</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>4 solution to get rid of pokemon fail to detect location On Apple iPhone 14 | Dr.fone</u></a></li>
-<li><a href="https://driver-install.techidaily.com/all-encompassing-framework-how-to-reboot-graphics-drivers/"><u>All-Encompassing Framework: How to Reboot Graphics Drivers</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/digiartycddvd-seo/"><u>Digiartyソフトウェア株式会社の定期刊行物特典CD・DVD提携 - SEO最適化タイトル</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-youtube-seo-the-path-to-more-audience-engagement/"><u>In 2024, YouTube SEO The Path to More Audience Engagement</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/riperais-dvds-oficialmente-com-o-winx-dvd-ripper-platino-conversao-simples-e-rapida-de-cd-para-mp4-em-segundos/"><u>Riperáis DVDs Oficialmente Com O WinX DVD Ripper Platino - Conversão Simples E Rápida De CD Para MP4 Em Segundos!</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/king-video-potential-essential-courses-for-new-creators-for-2024/"><u>Unlocking Video Potential Essential Courses for New Creators for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-discovering-the-best-screen-recording-programs-for-win11/"><u>[New] 2024 Approved Discovering the Best Screen Recording Programs for Win11</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/aunching-winning-steps-for-an-epic-youtube-gaming-channel-for-2024/"><u>[New] Launching Winning Steps for an Epic YouTube Gaming Channel for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/astering-youtube-video-edits-with-adobe-premiere/"><u>[New] Mastering YouTube Video Edits with Adobe Premiere</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-discover-10-spectacular-reactions-on-creative-youtube-videos-for-2024/"><u>[Updated] Discover 10 Spectacular Reactions on Creative YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-expertise-in-quick-creation-professional-valorant-thumbnail-art/"><u>[Updated] Expertise in Quick Creation Professional Valorant Thumbnail Art</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-unleash-the-full-potential-of-your-images-with-powerful-pixlr-hacks/"><u>[Updated] Unleash the Full Potential of Your Images with Powerful Pixlr Hacks</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-foodie-fables-enthralling-channel-names-for-epicureans/"><u>2024 Approved Foodie Fables Enthralling Channel Names for Epicureans</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/5-most-effective-methods-to-unlock-apple-iphone-xs-max-in-lost-mode-by-drfone-ios/"><u>5 Most Effective Methods to Unlock Apple iPhone XS Max in Lost Mode</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ces-to-find-royalty-free-sound-effects-for-youtube-videos/"><u>7 Places to Find Royalty Free Sound Effects for YouTube Videos</u></a></li>
+<li><a href="https://extra-information.techidaily.com/a-comprehensive-list-of-8-budget-friendly-srt-services/"><u>A Comprehensive List of 8 Budget-Friendly SRT Services</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/cting-digital-dynamics-comparative-channel-analysis/"><u>Dissecting Digital Dynamics Comparative Channel Analysis</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/from-amateur-to-pro-excelling-at-instagram-editing-for-2024/"><u>From Amateur to Pro Excelling at Instagram Editing for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-vivo-v30-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Vivo V30 Pro? | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/navigating-the-virtual-landscape-of-xbox-zoom/"><u>Navigating the Virtual Landscape of Xbox Zoom</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/al-video-posting-frequency-for-increased-youtube-popularity/"><u>Optimal Video Posting Frequency for Increased YouTube Popularity</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/quintessential-zooid-startup-top-10/"><u>Quintessential Zooid Startup Top 10</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-best-free-ip-camera-software-2023s-top-picks-for-secure-monitoring/"><u>Updated In 2024, Best Free IP Camera Software 2023S Top Picks for Secure Monitoring</u></a></li>
 </ul></div>
 

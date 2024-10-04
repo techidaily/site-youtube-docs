@@ -1,7 +1,7 @@
 ---
 title: "YouTube Video Shine Techniques for Clearer Visuals"
-date: 2024-09-22T21:05:21.940Z
-updated: 2024-09-29T00:09:28.414Z
+date: 2024-09-29T16:13:37.752Z
+updated: 2024-10-03T18:36:49.082Z
 tags:
   - ai video
   - ai youtube
@@ -80,6 +80,13 @@ The most common setup for studio lighting is 3-point lighting. For this kind of 
 
 ![3-Point Lighting](https://images.wondershare.com/filmora/article-images/youtube-lighting-3-point-lighting.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Out of the three lights, the key light should be the brightest. When it is positioned to the left of you (as shown in the diagram above) your right side will have shadows.
 
 To minimize the shadows on your right side, use a weaker light as a fill light. You don’t want your fill light to completely eliminate all your shadows or else your shot will look flat.
@@ -87,10 +94,10 @@ To minimize the shadows on your right side, use a weaker light as a fill light. 
 Lastly, a backlight positioned behind you can give an appealing highlight to the ends of your head and even help to separate your hair from blending into your background if both happen to be dark.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3. 4-Point Lighting
@@ -102,10 +109,10 @@ What you’ll need to ensure that your background is sufficiently lit is 4-point
 For more information on lighting equipment, check out my [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Touch Up YouTube Videos with Filmora
@@ -115,20 +122,13 @@ For more information on lighting equipment, check out my [Top 17 Video Lighting 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2087234/19272" target="_top" id="2087234">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087234" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087234/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -151,22 +151,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/hasing-profit-on-platforms-youtube-partner-application-steps/"><u>[New] Chasing Profit on Platforms YouTube Partner Application Steps</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-novel-vlog-talk-points-everyday/"><u>[New] In 2024, Novel Vlog Talk Points Everyday</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-watch-over-instagrams-friendship-shifts/"><u>[New] In 2024, Watch Over Instagram's Friendship Shifts</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/earn-youtube-live-streaming-with-easy-obs-guide-for-2024/"><u>[New] Learn YouTube Live Streaming with Easy OBS Guide for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/cripted-sentiments-for-show-summation/"><u>[New] Scripted Sentiments for Show Summation</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-best-practices-in-youtube-thumbnail-sizes-and-ratios/"><u>[Updated] 2024 Approved Best Practices in YouTube Thumbnail Sizes and Ratios</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-ultimate-guide-to-video-tweaking-on-youtube-studio/"><u>[Updated] 2024 Approved Ultimate Guide to Video Tweaking on YouTube Studio</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-8-best-youtube-video-promotion-services-real/"><u>[Updated] 8 Best Youtube Video Promotion Services (Real)</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-premium-zero-cost-live-capture-program/"><u>[Updated] In 2024, Premium Zero-Cost Live Capture Program</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-ranking-macs-best-rated-sniping-programs/"><u>[Updated] Ranking Mac's Best-Rated Sniping Programs</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-tweetvidaudiomaker-instant-sound-output-for-2024/"><u>[Updated] TweetVidAudioMaker Instant Sound Output for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/conversion-mastery-switching-between-jpeg-png-and-dall-e-s-webp-creations/"><u>Conversion Mastery: Switching Between JPEG, PNG and DALL-E √'S WebP Creations</u></a></li>
-<li><a href="https://android-location.techidaily.com/easy-ways-to-manage-your-vivo-s18-pro-location-settings-drfone-by-drfone-virtual/"><u>Easy Ways to Manage Your Vivo S18 Pro Location Settings | Dr.fone</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/effective-methods-to-diminish-desktop-window-managers-power-use/"><u>Effective Methods to Diminish Desktop Window Manager's Power Use</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/e-youtube-watching-iphone-and-android-edition-for-2024/"><u>Mobile YouTube Watching IPhone & Android Edition for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/revolutionizing-refrigeration-aseteks-launch-of-an-innovative-ai-powered-ecam-cold-plate-crafted-through-state-of-the-art-3d-metal-printing-in-teamwork-with11/"><u>Revolutionizing Refrigeration: Asetek's Launch of an Innovative AI-Powered ECAM Cold Plate, Crafted Through State-of-the-Art 3D Metal Printing in Teamwork with Fabric8Labs</u></a></li>
-<li><a href="https://driver-download.techidaily.com/seamless-gtx-1660-driver-enhancement-master-the-fast-and-easy-update-process/"><u>Seamless GTX 1660 Driver Enhancement: Master the Fast and Easy Update Process</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-break-down-long-form-videos-the-insiders-guide-to-youtube-chapter-inclusion/"><u>[Updated] 2024 Approved Break Down Long-Form Videos The Insider's Guide to YouTube Chapter Inclusion</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-elevate-your-channels-templates-at-no-charge/"><u>[Updated] Elevate Your Channels - Templates at No Charge</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-how-to-stand-out-your-top-10-guide-to-youtubes-best-music-videos/"><u>[Updated] How to Stand Out Your Top 10 Guide to YouTube's Best Music Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-overcoming-video-shadows-youtube-fix-tips-for-2024/"><u>[Updated] Overcoming Video Shadows YouTube Fix Tips for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-subscription-surge-entry-into-monetization-realm-for-2024/"><u>[Updated] Subscription Surge Entry Into Monetization Realm for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-chuckle-composer-app/"><u>2024 Approved Chuckle Composer App</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/ethereal-solution-for-digital-realities/"><u>Ethereal Solution for Digital Realities</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fixing-dolby-atmos-issues-how-to-resolve-dolby-audio-driver-not-found-on-windows-10/"><u>Fixing Dolby Atmos Issues: How to Resolve 'Dolby Audio Driver Not Found' On Windows 10</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/perfected-meme-design-suite-for-2024/"><u>Perfected Meme Design Suite for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/step-by-step-tutorial-on-fixing-504-gateway-timeouts-quickly/"><u>Step-by-Step Tutorial on Fixing 504 Gateway Timeouts Quickly</u></a></li>
 </ul></div>
 

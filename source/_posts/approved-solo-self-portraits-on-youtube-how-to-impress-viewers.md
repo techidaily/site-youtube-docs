@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Solo Self-Portraits on YouTube  How to Impress Viewers\""
-date: 2024-09-16T18:04:56.307Z
-updated: 2024-09-22T18:22:26.380Z
+date: 2024-09-28T01:20:38.517Z
+updated: 2024-10-04T00:09:06.635Z
 tags:
   - ai video
   - ai youtube
@@ -59,10 +59,10 @@ Objects and people that just make it into the sides of the frame will appear mor
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2.  Medium Vlog Set-Up
@@ -88,10 +88,10 @@ If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4.  Long Teleprompter Vlog Set-Up
@@ -110,11 +110,25 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Tips for Making a Talking Head Video Better
 
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -137,5 +151,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-hints.techidaily.com/new-a-step-by-step-guide-to-outstanding-color-grading-top-11/"><u>[New] A Step-by-Step Guide to Outstanding Color Grading (Top 11)</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/p3-mastery-in-motion-prime-10-youtube-to-mp3-transformers/"><u>[New] MP3 Mastery in Motion Prime 10 YouTube to Mp3 Transformers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/trategies-for-stumbling-upon-covert-youtube-videos-for-2024/"><u>[New] Strategies for Stumbling Upon Covert YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/he-ultimate-guide-to-converting-youtubes-into-vivid-gifs-no-save/"><u>[New] The Ultimate Guide to Converting YouTubes Into Vivid GIFs (No Save)</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-prime-youtube-mp4-encoding-steps/"><u>[Updated] Prime YouTube MP4 Encoding Steps</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ce-visibility-the-power-of-customized-youtube-templates-for-2024/"><u>Enhance Visibility The Power of Customized YouTube Templates for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/guide-to-repairing-silent-stereo-systems-and-boosting-audio-output/"><u>Guide to Repairing Silent Stereo Systems and Boosting Audio Output</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-the-soft-bricked-tecno-spark-10-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix the Soft Bricked Tecno Spark 10 4G? | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/rapid-fire-creation-of-google-collage-photos-for-2024/"><u>Rapid-Fire Creation of Google Collage Photos for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/step-by-step-tutorial-on-securely-accessing-funny-videos-on-stupidvideos-websites/"><u>Step-by-Step Tutorial on Securely Accessing Funny Videos on StupidVideos Websites</u></a></li>
+<li><a href="https://location-social.techidaily.com/top-7-skype-hacker-to-hack-any-skype-account-on-your-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>Top 7 Skype Hacker to Hack Any Skype Account On your Apple iPhone 13 mini | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/update-to-the-latest-epson-perfection-v600-driver-secure-your-print-quality/"><u>Update to the Latest Epson Perfection V600 Driver - Secure Your Print Quality</u></a></li>
+</ul></div>
 

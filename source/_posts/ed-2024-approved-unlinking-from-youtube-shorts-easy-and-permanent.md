@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Unlinking From YouTube Shorts - Easy and Permanent\""
-date: 2024-09-26T17:27:01.206Z
-updated: 2024-09-28T21:27:40.966Z
+date: 2024-09-30T06:13:22.808Z
+updated: 2024-10-03T18:36:22.584Z
 tags:
   - ai video
   - ai youtube
@@ -57,21 +57,7 @@ One of the primary things you can do with any short videos is to click on the th
 
 ![not intereted to ban youtube shorts](https://images.wondershare.com/filmora/disable-youtube-shorts-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997657/19272" target="_top" id="1997657">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997657" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997657/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Here, no doubt the method is simple, but this method needs repetitiveness. As, whenever you see Shorts videos, you need to click on three dots to remove that.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Method 2: Settings menu of YouTube
 
@@ -80,13 +66,6 @@ At your YouTube homepage at the top end, you will see the profile icon. If you c
 From there, you need to select “General”, which will show up some options. Here, click on the Shorts option to turn it off.
 
 ![turn of youtube shorts](https://images.wondershare.com/filmora/article-images/2023/04/turn-off-youtube-shorts.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 This way, by simply following and managing settings, you can easily disable YouTube shorts from the platform.
 
@@ -100,20 +79,27 @@ As a YouTube fan, you can also create interesting video by yourself with [**Film
 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg) ](https://app.adjust.com/w06dr6m%5F19za1f6)
 
-[Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+[Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ### Method 3: Can go with YouTube browser
 
 Hey guys, there is one more trick. Whenever you want to access YouTube, instead of going through the application, try to open YouTube website either from your mobile or PC browser window. You would wonder why so and what difference it will make. The fact is that the Shorts tab has not yet been incorporated under the browser version of YouTube.
 
 So friends, try this to avoid seeing YouTube Shorts videos either from phone or desktop. This is not only simple but also device-free. And even if you do not have a YouTube application, you can use this trick to solve your concern.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Method 4: Factory reset
 
@@ -141,6 +127,13 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg) ](https://app.adjust.com/w06dr6m%5F19za1f6)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![filmora box](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
@@ -154,16 +147,10 @@ On your smartphone, open the **Settings** \> **Apps** or **Manage Apps** option 
 ![filmora](https://images.wondershare.com/filmora/disable-youtube-shorts-4.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Using this method, you can remove shorts easily from YouTube. And, it is not going to take much amount of time. So, go and follow the steps.
@@ -202,6 +189,13 @@ Thus, following the methods mentioned above gives you multiple ways to turn off 
 
 ![filmora logo](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-horizontal.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## A cross-platform for making videos anywhere for all creators
 
 ![filmora-02](https://images.wondershare.com/filmora/filmora12/side_brand_filmora12.png)
@@ -224,10 +218,10 @@ Thus, following the methods mentioned above gives you multiple ways to turn off 
 ![filmora12](https://images.wondershare.com/filmora/12-filmora/img/filmora12-01.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -241,10 +235,10 @@ So, friends, let’s not wait for anymore. Scroll up the article and get a detai
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -268,20 +262,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-blurred-lines-the-art-of-anonymizing-youtube-content/"><u>[New] 2024 Approved Blurred Lines The Art of Anonymizing YouTube Content</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/avigating-video-uploads-on-youtube-a-comprehensive-tutorial/"><u>[New] Navigating Video Uploads on YouTube A Comprehensive Tutorial</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-optimizing-your-whiteboard-use-on-desktopiosandroid-devices-in-a-zoom-environment/"><u>[Updated] 2024 Approved Optimizing Your Whiteboard Use on Desktop/iOS/Android Devices in a Zoom Environment</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-2024-approved-screen-savvy-starting-point-deciphering-display-standards/"><u>[Updated] 2024 Approved Screen-Savvy Starting Point Deciphering Display Standards</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-break-free-from-youtube-top-5-innovative-video-editing-tools-for-2024/"><u>[Updated] Break Free From Youtube Top 5 Innovative Video Editing Tools for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-co-creating-content-brands-team-up-for-youtube-success/"><u>[Updated] In 2024, Co-Creating Content Brands Team Up for YouTube Success</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-hot-ticket-video-countdown-of-the-hour/"><u>[Updated] In 2024, Hot Ticket Video Countdown of the Hour</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-perfecting-your-videos-narrative-integrating-timestamps-smartly/"><u>[Updated] Perfecting Your Video's Narrative Integrating Timestamps Smartly</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-video-perfection-in-progress-edits-after-uploading-on-youtube/"><u>[Updated] Video Perfection in Progress Edits After Uploading on YouTube</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-ultimate-guide-screen-capture-and-recording-with-showmore/"><u>2024 Approved Ultimate Guide Screen Capture & Recording with ShowMore</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/8-best-apps-for-screen-mirroring-realme-12-5g-pc-drfone-by-drfone-android/"><u>8 Best Apps for Screen Mirroring Realme 12 5G PC | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-2-ways-to-monitor-vivo-y100t-activity-drfone-by-drfone-virtual-android/"><u>In 2024, 2 Ways to Monitor Vivo Y100t Activity | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-expert-insights-for-youtube-end-credits-top-makers-advice/"><u>In 2024, Expert Insights for YouTube End Credits - Top Makers' Advice</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-reimagine-the-way-you-take-notes-with-mematic/"><u>In 2024, Reimagine the Way You Take Notes with Mematic</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ey-steps-to-composing-engaging-youtube-video-plans/"><u>The Key Steps to Composing Engaging YouTube Video Plans</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-magix-image-handling-insights-reviewed/"><u>[New] 2024 Approved MAGIX Image Handling Insights Reviewed</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-clearing-tactics-for-youtubes-stored-video-queue/"><u>[New] In 2024, Clearing Tactics for YouTube's Stored Video Queue</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-nintendo-switchs-ultimate-hd-gameplay/"><u>[New] In 2024, Nintendo Switch's Ultimate HD Gameplay</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/trategies-for-standing-out-with-the-perfect-yt-brand-dimensions-for-2024/"><u>[New] Strategies for Standing Out with the Perfect YT Brand Dimensions for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-brief-basslines-video-music-mosaics/"><u>[Updated] 2024 Approved Brief Basslines Video Music Mosaics</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-prime-recorder-devices-for-livestreaming-pros-on-youtube/"><u>[Updated] 2024 Approved Prime Recorder Devices for Livestreaming Pros on YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-the-pinnacle-playbook-perfecting-the-art-of-live-thumbnail-design/"><u>[Updated] 2024 Approved The Pinnacle Playbook Perfecting the Art of Live Thumbnail Design</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-how-often-do-youtubers-receive-income-for-2024/"><u>[Updated] How Often Do YouTubers Receive Income for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-in-depth-look-at-using-key-combos-for-efficient-screen-recording-in-os-x/"><u>[Updated] In 2024, In-Depth Look at Using Key Combos for Efficient Screen Recording in OS X</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-migrating-from-spotify-to-a-personalized-youtube-music-list/"><u>[Updated] In 2024, Migrating From Spotify to a Personalized YouTube Music List</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-youtube-snippets-guide-essential-info-inside/"><u>[Updated] In 2024, YouTube Snippets Guide Essential Info Inside!</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-unlocking-vimeo-content-step-by-step-free-and-licensed-tools-guide/"><u>[Updated] Unlocking Vimeo Content Step-by-Step Free & Licensed Tools Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-eliminated-non-display-of-shorts-videos/"><u>2024 Approved Eliminated Non-Display of Shorts Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/tless-playlist-pivot-the-top-5-spotify-to-youtube-tools-for-2024/"><u>Effortless Playlist Pivot The Top 5 Spotify-to-YouTube Tools for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-witwizards-your-go-to-meme-app/"><u>In 2024, WitWizards Your Go-To Meme App</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/surpassing-expectations-4-reasons-why-claude-ai-is-superior-to-chatgpt/"><u>Surpassing Expectations: 4 Reasons Why Claude AI Is Superior to ChatGPT</u></a></li>
 </ul></div>
 

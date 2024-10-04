@@ -1,7 +1,7 @@
 ---
 title: "Detailed Tips for Adequate Lighting in YouTube Video Production for 2024"
-date: 2024-09-11T17:13:09.319Z
-updated: 2024-09-17T17:53:46.545Z
+date: 2024-09-27T06:22:42.006Z
+updated: 2024-10-04T06:52:48.502Z
 tags:
   - ai video
   - ai youtube
@@ -60,28 +60,28 @@ Home lighting is another source of light that many new YouTubers use. In the pas
 
 ![Mixed Lighting](https://images.wondershare.com/filmora/article-images/home-lighting-for-youtube-videos.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Notice how the color of Daniel's skin looks much more orange here (above) than the color of the skin in the two side-by-side window lighting examples? The side of the face also appears to look bluer. This all happened because he mixed up different color temperatures shining out of the two lights (cooler window light and warmer ceiling light).
 
 Most home lighting is warmer in its color temperature. If you want to use your home lights without everything being orange-tinted, you’ll need to switch out your light bulbs for daytime LED light bulbs.
 
 Ceiling lights are also typically situated in the center of a room in order to light an entire room evenly. This is not likely to be the best location for your filming video. Since the ceiling light was directly above the face in the above example, you can see harder shadows beneath his cheeks.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: Home Studio Lighting
 
 If you rather not deal with all the window and home lighting challenges, you can set up studio lighting in your home.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1. Light Control
@@ -94,11 +94,25 @@ The most common setup for studio lighting is 3-point lighting. For this kind of 
 
 ![3-Point Lighting](https://images.wondershare.com/filmora/article-images/youtube-lighting-3-point-lighting.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Out of the three lights, the key light should be the brightest. When it is positioned to the left of you (as shown in the diagram above) your right side will have shadows.
 
 To minimize the shadows on your right side, use a weaker light as a fill light. You don’t want your fill light to completely eliminate all your shadows or else your shot will look flat.
 
 Lastly, a backlight positioned behind you can give an appealing highlight to the ends of your head and even help to separate your hair from blending into your background if both happen to be dark.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3. 4-Point Lighting
 
@@ -107,13 +121,6 @@ As a YouTuber, you may not only want yourself to be seen optimally with proper l
 What you’ll need to ensure that your background is sufficiently lit is 4-point lighting setup. The 4-point lighting setup is the same as a 3-point lighting setup, but with an additional light shining at your background.
 
 For more information on lighting equipment, check out my [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Touch Up YouTube Videos with Filmora
 
@@ -142,5 +149,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/nsuring-legitimacy-of-your-youtube-sign-in-for-2024/"><u>[New] Ensuring Legitimacy of Your YouTube Sign-In for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-unlock-youtube-star-status-becoming-a-self-assured-vlogger/"><u>[New] In 2024, Unlock YouTube Star Status Becoming a Self-Assured Vlogger</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-unleashing-the-potential-of-iphone-photos-through-motion-blur/"><u>[New] Unleashing the Potential of iPhone Photos Through Motion Blur</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-haptic-realities-now/"><u>[Updated] 2024 Approved Haptic Realities Now</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-build-a-thriving-biz-channel-proven-strategies-and-examples-for-2024/"><u>[Updated] Build a Thriving Biz Channel Proven Strategies and Examples for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-dominate-youtube-traffic-with-proficient-use-of-creator-studio-for-2024/"><u>[Updated] Dominate YouTube Traffic with Proficient Use of Creator Studio for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-how-to-maximize-video-reach-with-effective-tags-titles/"><u>[Updated] How to Maximize Video Reach with Effective Tags, Titles</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-evaluating-tseries-business-model-with-youtube-viewership-metrics/"><u>[Updated] In 2024, Evaluating TSeries' Business Model with YouTube Viewership Metrics</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-mastering-hash-tactics-for-thriving-gaming-vids-for-2024/"><u>[Updated] Mastering Hash Tactics for Thriving Gaming Vids for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-essential-mac-screen-recorders-top-10-free-list/"><u>2024 Approved Essential Mac Screen Recorders – Top 10 FREE List</u></a></li>
+<li><a href="https://facebook.techidaily.com/battling-fake-news-facebook-introduces-stricter-rules/"><u>Battling Fake News: Facebook Introduces Stricter Rules</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/detailed-study-exploring-the-capabilities-of-android-lightroom/"><u>Detailed Study Exploring the Capabilities of Android Lightroom</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-essential-tips-for-editing-your-videos-in-youtube-studio/"><u>In 2024, Essential Tips for Editing Your Videos in YouTube Studio</u></a></li>
+</ul></div>
 
