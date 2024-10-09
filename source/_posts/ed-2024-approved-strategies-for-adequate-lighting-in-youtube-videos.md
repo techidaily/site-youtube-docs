@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Strategies for Adequate Lighting in YouTube Videos\""
-date: 2024-10-03T03:41:51.813Z
-updated: 2024-10-04T03:57:12.295Z
+date: 2024-10-08T17:17:50.101Z
+updated: 2024-10-09T21:06:27.642Z
 tags:
   - ai video
   - ai youtube
@@ -52,13 +52,6 @@ Window lighting for me was especially difficult to work with because I live in a
 
 ![  YouTube Video Lighting ](https://images.wondershare.com/filmora/article-images/window-lighting-comparison.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
 
 ### 2. Home Lighting
@@ -68,10 +61,10 @@ Home lighting is another source of light that many new YouTubers use. In the pas
 ![Mixed Lighting](https://images.wondershare.com/filmora/article-images/home-lighting-for-youtube-videos.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Notice how the color of Daniel's skin looks much more orange here (above) than the color of the skin in the two side-by-side window lighting examples? The side of the face also appears to look bluer. This all happened because he mixed up different color temperatures shining out of the two lights (cooler window light and warmer ceiling light).
@@ -88,6 +81,13 @@ If you rather not deal with all the window and home lighting challenges, you can
 
 The first thing you’ll want to do to set up studio lighting in your home is to pick a room to film in and eliminate as much external lighting as you can. Use blinds, curtains, towels, or any thick fabric to block sunlight from shining into your room.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2. 3-Point Lighting
 
 The most common setup for studio lighting is 3-point lighting. For this kind of lighting you’ll need three lights: a key light, a fill light, and a back light (also called a hair light).
@@ -101,10 +101,10 @@ To minimize the shadows on your right side, use a weaker light as a fill light. 
 Lastly, a backlight positioned behind you can give an appealing highlight to the ends of your head and even help to separate your hair from blending into your background if both happen to be dark.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
-  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3. 4-Point Lighting
@@ -121,14 +121,20 @@ For more information on lighting equipment, check out my [Top 17 Video Lighting 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -151,22 +157,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-embrace-9-festive-feasts-watch-holiday-epics-at-zero-cost-online/"><u>[New] In 2024, Embrace 9 Festive Feasts Watch Holiday Epics at Zero Cost Online!</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-meme-ology-manual-easy-ways-to-whip-up-giggles/"><u>[New] In 2024, Meme-Ology Manual Easy Ways to Whip Up Giggles</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-the-editors-codex-innovations-in-youtube-video-formatting/"><u>[New] In 2024, The Editor's Codex Innovations in Youtube Video Formatting</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-9-essential-apps-for-pulling-youtube-videos-android/"><u>[Updated] 9 Essential Apps for Pulling YouTube Videos (Android)</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-how-to-watch-deleted-youtube-videos-online-in-2-ways/"><u>[Updated] How to Watch Deleted YouTube Videos Online in 2 Ways</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-maximizing-visibility-with-smart-hashtag-use-in-fb-advertising/"><u>[Updated] In 2024, Maximizing Visibility with Smart Hashtag Use in FB Advertising</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-tiny-videos-deciphered-crucial-elements/"><u>[Updated] In 2024, Tiny Videos Deciphered Crucial Elements</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-ultimate-mic-for-digital-content-makers/"><u>[Updated] In 2024, Ultimate Mic for Digital Content Makers</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-lens-and-light-essential-camera-movements-every-novice-needs-for-2024/"><u>[Updated] Lens & Light Essential Camera Movements Every Novice Needs for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-shoot-and-score-top-techniques-for-great-youtube-cinematography-for-2024/"><u>[Updated] Shoot and Score Top Techniques for Great YouTube Cinematography for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-streamlining-the-editing-process-elevating-your-youtube-content-with-pc/"><u>2024 Approved Streamlining the Editing Process Elevating Your YouTube Content with PC</u></a></li>
-<li><a href="https://fake-location.techidaily.com/apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-vivo-s17-pro-drfone-by-drfone-virtual-android/"><u>Apply These Techniques to Improve How to Detect Fake GPS Location On Vivo S17 Pro | Dr.fone</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/art-of-ai-interaction-top-tutorials-for-commanders/"><u>Art of AI Interaction: Top Tutorials for Commanders</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-easy-ways-to-copy-contacts-from-realme-gt-3-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Easy Ways to Copy Contacts from Realme GT 3 to iPhone 14 and 15 | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-i-transferred-messages-from-honor-100-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How I Transferred Messages from Honor 100 to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-unlock-exclusive-deals-top-7-filmora-discount-codes/"><u>New In 2024, Unlock Exclusive Deals Top 7 Filmora Discount Codes</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/syncing-your-wallet-with-budget-buzzheadbuds/"><u>Syncing Your Wallet with Budget BuzzHeadbuds</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-enhance-clips-best-winter-bgs-for-video-warmth/"><u>[New] 2024 Approved Enhance Clips Best Winter Bg's for Video Warmth</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/cquire-no-cost-sounds-for-videos-and-podcasts-in-2024/"><u>[New] Acquire No-Cost Sounds for Videos & Podcasts, In 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/hannel-expansion-at-wallet-friendly-costs/"><u>[New] Channel Expansion at Wallet-Friendly Costs</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-ultimate-snow-adventure-equipment-list-for-cameras/"><u>[New] Ultimate Snow Adventure Equipment List for Cameras</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-prevent-these-8-key-mishaps-on-your-youtube-journey-for-2024/"><u>[Updated] Prevent These 8 Key Mishaps on Your YouTube Journey for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/pting-the-mystery-understanding-unlisted-content-on-youtube-for-2024/"><u>Decrypting the Mystery Understanding 'Unlisted' Content on YouTube for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/how-to-ensure-adequate-power-protection-picking-a-suitable-surge-protector/"><u>How to Ensure Adequate Power Protection: Picking a Suitable Surge Protector</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-tecno-pova-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Tecno Pova 5 Pro? | Dr.fone</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/overcoming-file-playback-hurdle-224003/"><u>Overcoming File Playback Hurdle: 224003</u></a></li>
+<li><a href="https://driver-install.techidaily.com/quickstep-to-updated-radeon-hd-4800-drives/"><u>Quickstep to Updated Radeon HD 4800 Drives</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/transformez-votre-fichier-mp3-en-video-avi-sur-internet-gratuite-avec-movavi/"><u>Transformez Votre Fichier MP3 En Vidéo AVI Sur Internet Gratuite - Avec Movavi</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/unveiling-the-best-ways-to-capture-your-minecraft-quests-on-a-mac/"><u>Unveiling the Best Ways to Capture Your Minecraft Quests on a Mac</u></a></li>
 </ul></div>
 

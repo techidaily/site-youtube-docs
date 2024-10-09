@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Youth Voices  Channeling Life's Milestinasubscriber Channel for Impactful Personal Storytelling\""
-date: 2024-10-03T12:20:37.615Z
-updated: 2024-10-03T22:19:52.508Z
+date: 2024-10-07T20:27:53.249Z
+updated: 2024-10-09T16:26:51.251Z
 tags:
   - ai video
   - ai youtube
@@ -54,21 +54,22 @@ YouTuber Shameless Maya does an excellent job of this. She created a visually ap
 
 On Monday, May 17th, 2010, YouTube celebrated its fifth anniversary. In celebration of hitting their five-year mark, YouTube launched a “My YouTube Story” campaign, which featured fifteen YouTubers sharing how YouTube has changed their lives. Each of these videos would end with “What’s your YouTube story? Tell us by uploading a video.” Ever since that campaign, many YouTubers have shared their YouTube story, including me! After I had been on YouTube for two years, I felt it was time for me to share my own YouTube story with the world. Sharing your story is not only an opportunity for your viewers to get to know you but a way to inspire other creators to start their channels as well. We all have our reasons for why we started, so why not share them?
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\.  Draw My Life
 
 “Draw My Life” is a popular video where YouTubers share their life stories through a unique series of drawings. Often YouTubers use a white dry erase board and markers so they can erase and redraw the series of their life events. Mr. Kate provides a great example of this as she is a talented artist and DIY’er. The great thing about this is you don’t have to be an artist or a great drawer. It’s a fun way to be creative and tell your story.
 
 <!-- affiliate ads begin -->
-<span id="1982462">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\.  Snapchat/Instagram Stories Q&A
@@ -78,6 +79,19 @@ Who isn’t on Snapchat, Instagram, or both these days? Over the past year, I’
 ### 5\.  Never Have I Ever Q & A
 
 Who hasn’t played the “Never Have I Ever” game?! Playing this game as a Q & A is a great way for viewers to get to know you better with some juicy and shocking details about yourself they otherwise wouldn’t know. It’s also a great way to play and collaborate with another YouTuber. Often, the questions will be split and you have to watch both YouTubers’ videos to find out all the details. Highly popular beauty YouTuber Desi Perkins does a great example of this while playing the game with her sister in law.
+
+<!-- affiliate ads begin -->
+<span id="1982499">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 6\.  Get Ready With Me Q & A
 
@@ -90,13 +104,6 @@ Behind all their smiles and outrageous on-camera personas, there are a lot of Yo
 ### 8\.  Narrated Autobiopic
 
 Narrated Autobiopic videos are a great way to share your story or advice in a cinematic way. You can be as creative as you want to be. YouTuber Evelyn From the Internets posted a narrated autobiopic called “For People Who Feel Behind In Life” that comically introduces her story.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 9\.  25 Facts About Me Tag
 
@@ -111,20 +118,13 @@ YouTube live videos are probably the best ways to interact and share your story 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -147,18 +147,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-crafting-a-hit-on-youtube-name-generation-insights/"><u>[New] In 2024, Crafting a Hit on YouTube Name Generation Insights</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/nlinking-from-youtube-shorts-easy-and-permanent/"><u>[New] Unlinking From YouTube Shorts - Easy and Permanent</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-become-a-viral-meme-magician-with-9gag-techniques/"><u>[Updated] In 2024, Become a Viral Meme Magician with 9GAG Techniques</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-unparalleled-online-success-stories-from-youtube/"><u>[Updated] Unparalleled Online Success Stories From YouTube</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-8-best-film-cameras-for-beginners-from-35mm-to-point-and-shoot/"><u>2024 Approved 8 Best Film Cameras for Beginners (From 35Mm to Point-and-Shoot)</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-essential-sandbox-titles-everyone-should-own/"><u>2024 Approved Essential Sandbox Titles Everyone Should Own</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-unveiling-video-magic-mastering-your-youtube-studio/"><u>2024 Approved Unveiling Video Magic Mastering Your YouTube Studio</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/all-you-need-to-know-about-mega-greninja-for-tecno-pova-5-pro-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Tecno Pova 5 Pro | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ng-real-broadcast-your-life-on-youtube-using-obs/"><u>Getting Real Broadcast Your Life on Youtube Using OBS</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/resolve-your-vlc-media-players-vob-file-hitches-with-ease-a-comprehensive-guide/"><u>Resolve Your VLC Media Player's VOB File Hitches with Ease - A Comprehensive Guide</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/the-acer-aspire-c2-5-review-unobtrusive-style-and-complete-functionality-for-your-desk/"><u>The Acer Aspire C2 5 Review: Unobtrusive Style and Complete Functionality for Your Desk</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ideo-producers-route-to-royalty-free-soundtracks-for-2024/"><u>The Video Producer’s Route to Royalty-Free Soundtracks for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/top-12-prominent-samsung-galaxy-f15-5g-fingerprint-not-working-solutions-by-drfone-android/"><u>Top 12 Prominent Samsung Galaxy F15 5G Fingerprint Not Working Solutions</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-demystifying-t-series-income-streams-via-youtube-platforms/"><u>[New] 2024 Approved Demystifying T-Series Income Streams via YouTube Platforms</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-how-does-t-series-generate-revenue/"><u>[New] 2024 Approved How Does T-Series Generate Revenue?</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-professional-approaches-for-logging-youtube-streams/"><u>[New] 2024 Approved Professional Approaches for Logging YouTube Streams</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-top-80s-effects-compendium-for-professional-editors/"><u>[New] 2024 Approved Top 80S Effects Compendium for Professional Editors</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-beginners-blueprint-for-viral-video-seo/"><u>[Updated] 2024 Approved Beginner's Blueprint for Viral Video SEO</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-leading-8-mirrorless-cameras-for-youtube-creators/"><u>[Updated] 2024 Approved Leading 8 Mirrorless Cameras For YouTube Creators</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-from-raw-to-refined-expert-techniques-for-youtube-content-creators-for-2024/"><u>[Updated] From Raw to Refined Expert Techniques for YouTube Content Creators for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-expand-your-reach-effective-youtube-campaigns/"><u>[Updated] In 2024, Expand Your Reach Effective YouTube Campaigns</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-leading-steps-to-mute-movie-filming-for-2024/"><u>[Updated] Leading Steps to Mute Movie Filming for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-the-interpretation-and-significance-of-pfp-on-tiktok-platform/"><u>[Updated] The Interpretation and Significance of 'PFP' On TikTok Platform</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-youtube-live-thumbnails-a-comprehensive-look/"><u>2024 Approved YouTube Live Thumbnails A Comprehensive Look</u></a></li>
+<li><a href="https://fox-access.techidaily.com/crafting-captivating-unboxing-reels-top-tips-for-success-on-instagram-for-2024/"><u>Crafting Captivating Unboxing Reels Top Tips for Success on Instagram for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-14-pro-max-to-other-iphone-13-pro-max-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 14 Pro Max To Other iPhone 13 Pro Max devices? | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-10-strategies-to-make-money-on-youtube-shorts-easily/"><u>In 2024, 10 Strategies to Make Money on YouTube Shorts Easily</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-15-techniques-to-ensure-facebook-videos-are-spotlighted/"><u>In 2024, 15 Techniques to Ensure Facebook Videos Are Spotlighted</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-facebook-dating-for-your-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location On Facebook Dating for your Realme 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-strategic-steps-for-pinpointing-a-list-film-creators/"><u>In 2024, Strategic Steps for Pinpointing A-List Film Creators</u></a></li>
+<li><a href="https://techtrends.techidaily.com/riproduzione-dvd-protetta-facilitata-da-programmi-di-copia-liberi-soluzioni-complete-del-2020/"><u>Riproduzione DVD Protetta Facilitata Da Programmi Di Copia Liberi: Soluzioni Complete Del 2020</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/e-approach-verifying-your-youtube-login-details/"><u>Secure Approach Verifying Your YouTube Login Details</u></a></li>
 </ul></div>
 

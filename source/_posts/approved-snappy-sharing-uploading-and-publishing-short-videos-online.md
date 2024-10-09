@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Snappy Sharing  Uploading and Publishing Short Videos Online\""
-date: 2024-09-10T19:01:09.229Z
-updated: 2024-09-17T19:42:14.064Z
+date: 2024-10-04T19:07:24.928Z
+updated: 2024-10-09T20:00:44.502Z
 tags:
   - ai video
   - ai youtube
@@ -81,11 +81,25 @@ For macOS 10.12 or later
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Upload Short Video on YouTube Mobile App?
 
 The process of **uploading YouTube Shorts** from the mobile app is fairly simple compared to the method used on a computer. While using the app, you can either upload an existing video or shoot a new one from within the program itself then and there, add music and text, and upload it right away. Both these methods are explained below in detail:
 
 **Note:** The guidelines for creating and uploading short videos to YouTube remain the same, regardless of the platform or device you use.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Method 1: Upload an Existing Short Video
 
@@ -94,6 +108,13 @@ The process of **uploading YouTube Shorts** from the mobile app is fairly simple
 #### Step 1: Select a Video to Upload
 
 ![Select a Video to Upload as Shorts](https://images.wondershare.com/filmora/article-images/select-shorts-videos-to-upload-on-youtube.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 On your Android or iOS smartphone, launch the YouTube app, tap the **+** (**Create**) icon from the bottom, tap **Create a Short** from the **Create** box that pops up from the bottom, tap **Upload** from the bottom-right corner of the next screen, and select and upload a short, 60 seconds video recorded in portrait orientation from your device’s storage to the app.
 
@@ -117,13 +138,6 @@ Please note you will not see the **Create a Short** option if you are outsides o
 
 ![ Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 In the YouTube app, tap the **+** (**Add**) button and select **Create** **a Short**. Please note you will not see the **Create a Short** option if you are outsides of India.
 
 Next, use the **Speed** and **Timer** icons to set the speed of the video and the countdown timer duration before the app starts recording the video when you press the **Record** button respectively.
@@ -146,14 +160,14 @@ Learning the process of **how to post short videos on YouTube** is fairly simple
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -174,5 +188,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-iphoneipad-top-10-free-youtube-video-editing-apps/"><u>[New] In 2024, IPhone/iPad Top 10 Free YouTube Video Editing Apps</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ivestream-titans-clash-facebook-youtube-and-twitspaces/"><u>[New] Livestream Titans Clash FACEbook, YOUTube, and TWITSpaces</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/astering-youtube-cards-and-markup-tips-for-2024/"><u>[New] Mastering YouTube Cards & Markup Tips for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-a-complete-guide-to-videdit-studio-pro-features-and-more/"><u>[Updated] 2024 Approved A Complete Guide to VidEdit Studio Pro, Features and More</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-edit-with-ease-10-video-to-mp3-tools-of-the-trade/"><u>[Updated] 2024 Approved Edit with Ease #10 Video-to-Mp3 Tools of the Trade</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-revolutionizing-video-sharing-alternatives-to-youtube/"><u>[Updated] In 2024, Revolutionizing Video Sharing Alternatives to YouTube</u></a></li>
+<li><a href="https://win-able.techidaily.com/achieve-financial-triumph-with-like-a-dragon-navigating-the-path-to-unending-fortune-on-pc/"><u>Achieve Financial Triumph with 'Like a Dragon': Navigating the Path to Unending Fortune on PC</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/adobe-auditions-guide-to-incremental-volume-for-2024/"><u>Adobe Audition's Guide to Incremental Volume for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/cutting-edge-5-home-movie-maker-for-2024/"><u>Cutting-Edge 5 Home Movie Maker for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/harnessing-potential-how-to-excel-on-spotify-ads-for-2024/"><u>Harnessing Potential How to Excel on Spotify Ads for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/o-live-streaming-360-video-to-youtube/"><u>How to Live Streaming 360 Video to Youtube</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-free-dailymotion-video-conversion-without-registration/"><u>In 2024, Free Dailymotion Video Conversion without Registration</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-starting-out-building-your-youtube-presence-and-earning/"><u>In 2024, Starting Out Building Your YouTube Presence & Earning</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ring-the-art-of-locating-your-youtube-discussions/"><u>Mastering the Art of Locating Your YouTube Discussions</u></a></li>
+<li><a href="https://win-answers.techidaily.com/steam-freezing-troubles-heres-how-you-can-fix-it-for-smooth-gaming/"><u>Steam Freezing Troubles? Here's How You Can Fix It for Smooth Gaming .</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/top-5-drawbacks-of-choosing-a-suitcase-turntable-exploring-alternatives/"><u>Top 5 Drawbacks of Choosing a Suitcase Turntable: Exploring Alternatives</u></a></li>
+<li><a href="https://techtrends.techidaily.com/top-5-essential-factors-to-evaluate-when-shopping-for-your-ideal-fitness-band/"><u>Top 5 Essential Factors to Evaluate When Shopping for Your Ideal Fitness Band</u></a></li>
+</ul></div>
 

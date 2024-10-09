@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Hunt for Heated Online Hearings"
-date: 2024-09-14T21:23:40.555Z
-updated: 2024-09-17T16:59:25.648Z
+date: 2024-10-05T18:30:08.943Z
+updated: 2024-10-09T20:07:07.393Z
 tags:
   - ai video
   - ai youtube
@@ -75,15 +75,22 @@ It is one of the most user-friendly and ad-free random comment pickers available
 
 ![Hadzy YouTube comment   search feature](https://images.wondershare.com/filmora/article-images/hadzy-youtube-comment-finder.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * In the next step, you will be redirected to another pop-up with two buttons- 'View Comments' and 'View Statistics.' Click on View Comments to check the first, second and all the other comments in ascending order.
 * **Unique feature 1:** By clicking the View Statistics button, you can get a track of the popular words used in the comment section and the top questions asked by your followers.
 * **Unique feature 2:** Along with the comment, details of the user, time of commenting, and many more things can be extracted from Hadzy.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Part 2:** **How to Find the First Comments You Have Posted on YouTube?**
@@ -98,6 +105,13 @@ Everything you have to do now follows the steps below. For the following methods
 * At the right corner, choose History type as 'community.' Below that, click on the 'Comments' option. Finally, a new tab would open with all your YouTube comment history.
 
 ![  YouTube comment  history search ](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 By these basic steps, enjoy editing or deleting your comments and replies directly on YouTube!
 
@@ -130,10 +144,10 @@ Did you know you can also customize your comment section as per your need? On th
 ![  YouTube comment  and rating settings ](https://images.wondershare.com/filmora/article-images/set-up-comment-ratings.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Under 'Comments and ratings,' select Sort by, and then choose between "Top" and "Newest."
@@ -168,5 +182,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/ree-music-for-videos-finding-the-right-sources-for-2024/"><u>[New] Free Music for Videos Finding the Right Sources for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-profit-potentials-in-producing-product-centric-youtube-clips/"><u>[New] In 2024, Profit Potentials in Producing Product-Centric YouTube Clips</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/astering-youtube-dimensions-a-comprehensive-guide/"><u>[New] Mastering YouTube Dimensions A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-locate-hidden-watch-video-preview/"><u>[Updated] 2024 Approved Locate Hidden Watch Video Preview</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-todays-hot-tickets-top-youtube-tracks-for-the-day/"><u>[Updated] 2024 Approved Today’s Hot Tickets Top Youtube Tracks for the Day</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-8-premier-resources-download-free-high-quality-green-screen-footage/"><u>[Updated] 8 Premier Resources Download Free, High-Quality Green Screen Footage</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-ignite-the-flames-strategies-for-growing-your-youtube-audience-for-2024/"><u>[Updated] Ignite the Flames Strategies for Growing Your YouTube Audience for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-bridging-platforms-loop-ready-setups-for-youtube-and-tv/"><u>2024 Approved Bridging Platforms Loop-Ready Setups for YouTube and TV</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-meet-the-monitor-that-elevates-your-graphic-work/"><u>2024 Approved Meet the Monitor That Elevates Your Graphic Work</u></a></li>
+<li><a href="https://win-able.techidaily.com/eternal-reiteration-unveiled-strategies-for-enduring-in-a-cycle-of-constant-resurgence/"><u>Eternal Reiteration Unveiled: Strategies for Enduring in a Cycle of Constant Resurgence</u></a></li>
+<li><a href="https://win-hot.techidaily.com/galaxy-note-2-a-step-by-step-guide-to-transferring-your-favorite-tunes/"><u>Galaxy Note 2: A Step-by-Step Guide to Transferring Your Favorite Tunes</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-find-ispoofer-pro-activation-key-on-oppo-k11x-drfone-by-drfone-virtual-android/"><u>How to Find iSpoofer Pro Activation Key On Oppo K11x? | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/aging-consumer-reviews-for-youtube-wealth-creation-for-2024/"><u>Leveraging Consumer Reviews for YouTube Wealth Creation for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/rise-of-a-marketer-top-5-tips-from-the-prosphere-for-2024/"><u>Rise of a Marketer Top 5 Tips From the Prosphere for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/troubleshooting-guide-how-to-fix-an-unresponsive-nokia-g42-5g-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Troubleshooting Guide How to Fix an Unresponsive Nokia G42 5G Screen | Dr.fone</u></a></li>
+</ul></div>
 

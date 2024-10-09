@@ -1,7 +1,7 @@
 ---
 title: "Optimizing YouTube Videos for IGTV Exposure"
-date: 2024-09-11T19:55:04.493Z
-updated: 2024-09-17T19:16:20.343Z
+date: 2024-10-07T20:58:42.345Z
+updated: 2024-10-09T21:02:37.542Z
 tags:
   - ai video
   - ai youtube
@@ -69,6 +69,13 @@ You can watch the video below to find out more information about the Auto-Refram
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Use Kapwing to Convert YouTube to IGTV Online
 
 YouTubers who already have lots of videos on their channel can use online video editing platforms, like [Kapwing](https://www.kapwing.com/) to edit the content they want to post on IGTV. This online video editor offers a number of video editing tools that let you polish your videos before posting them on social media.
@@ -77,9 +84,23 @@ Click on the Resize tool and simply **copy and paste the URL** of a YouTube into
 
 ![Kapwing  Crop YouTube video to IGTV](https://images.wondershare.com/filmora/article-images/kapwing-crop-youtube-to-igtv.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Pick the **Story (Snap/Insta) or IGTV 9:16 option** and then proceed to **choose the background color for your IGTV video, increase or decrease the zoom level or change the position of the video**. Click on the **Create button** when ready and wait for Kapwing to process your video. **All videos you create with the free version of this online video editor are going to be watermarked** and you have to pay a six-dollar fee for each watermark-free video you edit with Kapwing or you can opt for a $20 monthly subscription fee that enables you to export an unlimited amount of videos without watermarks each month.
 
 ![Kapwing  Rotate YouTube video to IGTV](https://images.wondershare.com/filmora/article-images/rotate-youtube-video-convert-to-igtv.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 A growing number of IGTV users choose to rotate their videos, instead of resizing them, so if you already have a YouTube video with a 16:9 aspect ratio you can just rotate it and get a video with a 9:16 aspect ratio. Click on the **Rotate**  option and then rotate it **90 degrees clockwise or counterclockwise** and click on the **Create button**. If you opt for this method of creating a vertical video for IGTV, your video will remain the same size, but the viewers will have to hold their phones horizontally in order to view it properly.
 
@@ -98,6 +119,13 @@ Posting YouTube videos on your IGTV channel is still a somewhat complicated proc
 **You may also like:** [YouTube to WAV File: 4 Best Free Convert Solutions >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
+  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -118,12 +146,26 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-beyond-basic-the-advanced-techniques-of-youtube-counts/"><u>[New] 2024 Approved Beyond Basic The Advanced Techniques of YouTube Counts</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-leveraging-consumer-reviews-for-youtube-wealth-creation/"><u>[New] 2024 Approved Leveraging Consumer Reviews for YouTube Wealth Creation</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-unleashing-storytelling-potential-making-youtube-trailers-in-filmora/"><u>[New] 2024 Approved Unleashing Storytelling Potential Making YouTube Trailers in Filmora</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-battlebuddies-channel-over-a-hundred-friends-in-games/"><u>[New] In 2024, BattleBuddies Channel Over a Hundred Friends in Games</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-scrutinizing-tseries-earnings-from-digital-viewership-on-youtube/"><u>[New] In 2024, Scrutinizing TSeries’ Earnings From Digital Viewership on YouTube</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-transforming-images-on-snapchat-an-editors-playbook/"><u>[New] In 2024, Transforming Images on Snapchat An Editor's Playbook</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-prime-position-predictor-highest-charting-videos/"><u>[New] Prime Position Predictor Highest Charting Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-50plus-youtube-channel-names-for-vloggers-100-new-for-2024/"><u>[Updated] 50+ Youtube Channel Names for Vloggers [100% New] for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-channel-marketing-making-a-trailer-that-sells-more-for-2024/"><u>[Updated] Channel Marketing Making a Trailer that Sells More for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-comparing-cosmic-universes-metaverse-vs-multiverse-explained-for-2024/"><u>[Updated] Comparing Cosmic Universes Metaverse vs Multiverse Explained for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-pushing-up-conversions-with-high-roi-animated-advertisements-on-fb/"><u>[Updated] In 2024, Pushing Up Conversions with High-ROI Animated Advertisements on FB</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-innovators-designing-online-marvel-experiences/"><u>2024 Approved Innovators Designing Online Marvel Experiences</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/free-download-thinkpad-t420s-driver-updates-compatible-with-windows-10/"><u>Free Download: ThinkPad T420s Driver Updates Compatible with Windows 10</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/o-embed-a-youtube-playlist-on-a-website-for-2024/"><u>How To Embed A YouTube Playlist On a Website for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-15-pro-max-passcode-screen-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 15 Pro Max Passcode Screen?</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-keep-your-games-bright-solutions-for-avoiding-obs-black-screens/"><u>In 2024, Keep Your Games Bright Solutions for Avoiding OBS Black Screens</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-tutorial-to-change-motorola-moto-g84-5g-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>In 2024, Tutorial to Change Motorola Moto G84 5G IMEI without Root A Comprehensive Guide</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/overcoming-windows-printmanagement-not-found-issue-quickly/"><u>Overcoming Windows Printmanagement Not Found Issue Quickly</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/seo-masterclass-unlocking-the-secrets-to-higher-podcast-visibility-for-2024/"><u>SEO Masterclass Unlocking the Secrets to Higher Podcast Visibility for 2024</u></a></li>
+</ul></div>
 

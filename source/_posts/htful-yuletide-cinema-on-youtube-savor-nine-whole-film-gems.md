@@ -1,7 +1,7 @@
 ---
 title: "\"Delightful Yuletide Cinema on YouTube  Savor Nine Whole-Film Gems\""
-date: 2024-10-02T20:59:08.706Z
-updated: 2024-10-03T23:06:13.910Z
+date: 2024-10-06T16:23:56.850Z
+updated: 2024-10-09T18:26:09.609Z
 tags:
   - ai video
   - ai youtube
@@ -36,15 +36,22 @@ If you are looking for Christmas entertainment this season you may be quick to l
 The Nutcracker is a holiday classic that many people seek out every year on the stage. This family ballet classic was filmed by the Pacific Northwest ballet in a huge and lavish version of the production in 1986\. This still stands as one of the best versions of the Nutcracker ever captured on film and you can watch it for free on YouTube. You can find the Nutcracker at :
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2. A smoky mountain Christmas
 
 A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and starring Lee Majors and Dolly Parton. The full musical fairy tale can be found online on YouTube and it's about a country singer who is trying to spend a quiet Christmas holiday at home. She suddenly becomes involved with a mysterious mountain man, an evil witch and is forced to protect seven orphans over the holidays. This film can be found at:
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3. Ernest saves Christmas
 
@@ -57,13 +64,6 @@ A Christmas story has long been one of the favorite Christmas movies for many fa
 ### 5. Richie Rich's Christmas wish
 
 In this film from 1998 we hear the story of the richest kid in the world on Christmas. In this film we see the richest in the world wishing that he had never been born with the wish coming true. Richie needs to find himself a new wishing machine and a way out of the parallel universe he gets stuck in to get back to his family. You can find this film at:
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 6. On the second day of Christmas
 
@@ -78,10 +78,10 @@ Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday 
 In this film from 1984 George C Scott brings to life the role of Ebenezer Scrooge from the perspective of the Charles Dickens novel. This is heavily been regarded as one of the most accurate versions to the Charles Dickens story. Although it may not have all of the special effects of some of the other versions of a Christmas carol this is still one of the favored versions of the story out there. You can watch this 1984 film here:
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 9. Miracle on 34th street
@@ -91,10 +91,16 @@ In this recreation of the original film from 1947 this shortened full-length ver
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -118,21 +124,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-uncover-earths-wonders-with-these-top-10-vids/"><u>[New] In 2024, Uncover Earth's Wonders with These Top 10 Vids</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-launch-success-a-guide-to-10-motivating-movies/"><u>[New] Launch Success A Guide to 10 Motivating Movies</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/evel-in-the-power-of-leading-video-rank-tracker-tools-for-2024/"><u>[New] Revel in the Power of Leading Video Rank Tracker Tools for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ailor-made-edits-customizing-videos-in-studio-for-2024/"><u>[New] Tailor-Made Edits Customizing Videos in Studio for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ransforming-viewers-into-vendors-ajey-nagars-earnings-excellence-on-youtube-for-2024/"><u>[New] Transforming Viewers Into Vendors Ajey Nagar’s Earnings Excellence on YouTube for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-master-your-recordings-on-macos-with-these-top-microphones/"><u>[Updated] 2024 Approved Master Your Recordings on MacOS with These Top Microphones</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-step-by-step-strategy-for-unearthing-secret-youtube-videos/"><u>[Updated] 2024 Approved Step-by-Step Strategy for Unearthing Secret YouTube Videos</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-explore-top-7-live-streaming-iosandroid-apps-perfect-for-youtube-channel-creators/"><u>[Updated] Explore Top 7 Live Streaming iOS/Android Apps Perfect for YouTube Channel Creators</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-a-step-by-step-tutorial-to-monetize-product-videography/"><u>[Updated] In 2024, A Step-by-Step Tutorial to Monetize Product Videography</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/d-video-rankings-top-seo-gadgets-revealed-for-2024/"><u>Ascend Video Rankings – Top SEO Gadgets Revealed for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/firestick-remote-not-responding-heres-how-to-fix-it/"><u>Firestick Remote Not Responding? Here's How to Fix It!</u></a></li>
-<li><a href="https://howto.techidaily.com/how-to-fix-part-of-the-touch-screen-not-working-on-honor-90-gt-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Part of the Touch Screen Not Working on Honor 90 GT | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/how-to-upload-videos-on-instagram-from-your-computer-pc-or-mac-easy-guide/"><u>How to Upload Videos on Instagram From Your Computer (PC or Mac) - Easy Guide</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-realme-gt-neo-5-by-drfone-android/"><u>In 2024, Complete Review & Guide to Techeligible FRP Bypass and More For Realme GT Neo 5</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/quick-ways-to-preserve-your-video-games/"><u>Quick Ways to Preserve Your Video Games</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-itel-p55-device-by-drfone-android/"><u>The Ultimate Guide How to Bypass Swipe Screen to Unlock on Itel P55 Device</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-gags-and-grins-techniques-in-parody-production/"><u>[New] 2024 Approved Gags and Grins Techniques in Parody Production</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-leading-audience-alteration-software-selection/"><u>[New] 2024 Approved Leading Audience Alteration Software Selection</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-creating-impactful-outros-top-6-free-tools-for-2024/"><u>[Updated] Creating Impactful Outros Top 6 FREE Tools for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-laughter-loops-scouring-the-best-chuckles-in-youtube-worlds/"><u>[Updated] Laughter Loops Scouring the Best Chuckles in YouTube Worlds</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-launch-your-athletic-channel-step-by-step-guide-on-mac-os/"><u>2024 Approved Launch Your Athletic Channel Step by Step Guide on Mac OS</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-unveiling-adobes-storage-mastery-and-the-hunt-for-top-non-adobe-backup-services/"><u>2024 Approved Unveiling Adobe's Storage Mastery & The Hunt for Top Non-Adobe Backup Services</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/bring-out-canons-best-enjoy-10-free-luts-and-beyond-selection-for-2024/"><u>Bring Out Canon's Best Enjoy 10 Free LUTs and Beyond Selection for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discover-the-best-far-reaching-wireless-routers-on-the-market-2024-edition/"><u>Discover the Best Far-Reaching Wireless Routers on the Market - 2024 Edition</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fixing-lack-of-audio-with-plugged-in-speakersheadphones-on-windows-systems/"><u>Fixing Lack of Audio with Plugged-In Speakers/Headphones on Windows Systems</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-streamlining-video-transfer-from-imovie-to-youtube-platform/"><u>In 2024, Streamlining Video Transfer From iMovie to YouTube Platform</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/step-by-step-crafting-youtube-content-in-sony-vegas/"><u>Step-by-Step Crafting YouTube Content in Sony Vegas</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/understanding-eus-ai-policy-on-gpt-tech/"><u>Understanding EU's AI Policy on GPT Tech</u></a></li>
 </ul></div>
 

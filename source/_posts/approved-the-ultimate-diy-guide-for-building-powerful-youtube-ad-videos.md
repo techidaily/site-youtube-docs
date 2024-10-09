@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The Ultimate DIY Guide for Building Powerful YouTube Ad Videos\""
-date: 2024-10-01T17:33:05.297Z
-updated: 2024-10-04T01:08:41.473Z
+date: 2024-10-08T20:02:54.975Z
+updated: 2024-10-09T18:40:02.657Z
 tags:
   - ai video
   - ai youtube
@@ -81,13 +81,6 @@ Because YouTube Video Builder is in its Beta phase, at the time of this writing 
 
 Once your request is approved, you can then use the same Google account to sign in to the **YouTube Video Builder** portal, and start preparing your video advertisements. Here, it is important to understand that the Google account that you use to send an access request and prepare the videos must be the same ID that has your active and functional YouTube Channel.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 4: How to Make Video Ads for Free with YouTube Video Builder?
 
 Once you have access to the Beta version of **YouTube Video Builder**, you can start creating the video ads for free. You can learn the process of how this can be done by following the simple instructions given below:
@@ -99,10 +92,10 @@ After signing in to your **YouTube Video Builder** account, on the main interfac
 ![ YouTube Video Builder ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-select-layout.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Next, from the **Color & Logo** section, choose the base (background) and text colors using their corresponding tools from under the **Brand colors** section.
@@ -113,6 +106,13 @@ After this, insert an image of your brand logo in the block under the **Logos** 
 
 ![Create video with YouTube Video Builder ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-insert-brand-logo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Step 2: Add the Ingredients
 
 When you are on the **Images & Text** section of the navigation bar, pick the high-definition photos from the **Storyboard** at the bottom, and add them to the **Image 1**, **Image 2**, and **Image 3** boxes accordingly.
@@ -122,19 +122,6 @@ When you are on the **Images & Text** section of the navigation bar, pick the hi
 Now, scroll down to the **Text** section, and add the relevant content in the available text input fields. Make sure to add a compelling **Call to action** text to give the viewers a free passage to connect with you.
 
 ![Create video with YouTube Video Builder with CTA ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-call-to-action-texts.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1982485">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### Step 3: Make Cosmetic Manipulations
 
@@ -150,28 +137,29 @@ Finally, click **Create video**, and wait while **YouTube Video Builder** takes 
 
 ![ YouTube Video Builder Video create video  ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-create-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657396/16446" target="_top" id="1657396">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657396" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657396/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Step 4: Save the Video and Begin Promotion
 
 After the video is generated, play to preview the film. If everything looks good, click **Save video**.
 
 ![ YouTube Video Builder Video Preview and Save  ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-save-preview-video.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1912746">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 On the next page, click **Copy** to copy the video link, and share it with your friends, colleagues, and family members for their feedback.
 
 ![ YouTube Video Builder Video Copy Link  ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-copy-link.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Next, scroll down to get to the **Create Campaign** section of the navigation bar, and from the left screen, click **Create campaign** to begin a campaign to promote your brand and/or product(s).
 
@@ -196,10 +184,10 @@ The bitter truth is, producing videos, especially for brand promotions requires 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -223,19 +211,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-popsicle-projector-detailed-tutorial-on-screen-capture-tech/"><u>[New] 2024 Approved Popsicle Projector Detailed Tutorial on Screen Capture Tech</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/oost-creativity-with-free-audio-effects-online/"><u>[New] Boost Creativity with Free Audio Effects Online!</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-a-trailblazers-guide-youtube-studio-location-unveiled/"><u>[New] In 2024, A Trailblazer’s Guide YouTube Studio Location Unveiled</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/nlocking-your-youtube-comment-tracking-on-multiple-devices-for-2024/"><u>[New] Unlocking Your YouTube Comment Tracking on Multiple Devices for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-how-to-ensure-accurate-game-saves-with-fbx-recorder/"><u>[Updated] 2024 Approved How to Ensure Accurate Game Saves with FBX Recorder</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/entendiendo-las-diferencias-entre-formatos-de-archivo-tiff-vs-jpeg-elegir-el-correcto-para-su-proyecto-grafico/"><u>Entendiendo Las Diferencias Entre Formatos De Archivo: TIFF Vs. JPEG, Elegir El Correcto Para Su Proyecto Gráfico.</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/how-to-revive-a-stuck-macbook-air-effective-solutions-inside/"><u>How To Revive A Stuck MacBook Air: Effective Solutions Inside</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/in-2024-expert-strategies-for-choosing-valheim-crops/"><u>In 2024, Expert Strategies for Choosing Valheim Crops</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-masterful-guide-to-professional-online-etiquette-on-youtube/"><u>In 2024, Masterful Guide to Professional Online Etiquette on YouTube</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-rhythms-of-introduction-10-must-hear-songs-for-podcast-opens/"><u>In 2024, Rhythms of Introduction 10 Must-Hear Songs for Podcast Opens</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/raphic-mind-numbing-youtube-factsfigures-and-statistics-for-2024/"><u>Infographic - Mind Numbing YouTube Facts,Figures and Statistics for 2024</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/paww-audio-enlightenment-the-budget-friendly-review-of-series-3/"><u>Paww Audio Enlightenment - The Budget-Friendly Review of Series 3</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/by-step-approach-to-measuring-yt-popularity-and-revenue/"><u>Step-by-Step Approach to Measuring YT Popularity & Revenue</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/1722970226427-the-new-york-convention-is-key-to-enforcing-arbitral-awards-across-national-borders-with-over-160-signatory-countries-agreeing-to-recognize-such-awards/"><u>The New York Convention Is Key to Enforcing Arbitral Awards Across National Borders, with over 160 Signatory Countries Agreeing to Recognize Such Awards.</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-audit-your-channels-financial-success/"><u>[New] 2024 Approved Audit Your Channel's Financial Success</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-crafting-your-niche-top-8-courses-for-aspiring-creators/"><u>[New] 2024 Approved Crafting Your Niche Top 8 Courses for Aspiring Creators</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ostering-fandoms-top-three-storytelling-techniques-for-2024/"><u>[New] Fostering Fandoms Top Three Storytelling Techniques for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-how-to-stay-grounded-in-virtual-reality-spaces/"><u>[New] How to Stay Grounded in Virtual Reality Spaces</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-tap-into-endless-visual-archives-from-top-4-video-platforms/"><u>[New] In 2024, Tap Into Endless Visual Archives From Top 4 Video Platforms</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-iphones-easy-guide-merge-music-and-video-without-spending-a-dime/"><u>[New] IPhone's Easy Guide Merge Music and Video Without Spending a Dime</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/roven-techniques-to-enhance-subscriber-count-with-effective-channel-branding/"><u>[New] Proven Techniques to Enhance Subscriber Count with Effective Channel Branding</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-transforming-unboxing-magic-7-ways/"><u>[New] Transforming Unboxing Magic 7 Ways</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nparalleled-online-success-stories-from-youtube-for-2024/"><u>[New] Unparalleled Online Success Stories From YouTube for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-benq-bl2711u-the-artisans-choice-for-high-end-4k-display-enthusiasts/"><u>[Updated] 2024 Approved BenQ BL2711U - The Artisan's Choice for High-End 4K Display Enthusiasts</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-free-location-spoofers-to-fake-gps-location-on-your-xiaomi-14-drfone-by-drfone-virtual/"><u>10 Free Location Spoofers to Fake GPS Location on your Xiaomi 14 | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-decode-your-youtube-preferences-with-these-6-fan-favorite-questionnaires/"><u>2024 Approved Decode Your YouTube Preferences with These 6 Fan-Favorite Questionnaires</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/exploring-6-ios-features-that-make-gpt-better-here/"><u>Exploring 6 iOS Features That Make GPT Better Here</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-teach-you-to-transfer-files-from-honor-90-lite-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways To Teach You To Transfer Files from Honor 90 Lite to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://discover-dash.techidaily.com/simple-guide-converting-mp4-videos-into-amv-format-seamlessly/"><u>Simple Guide: Converting MP4 Videos Into AMV Format Seamlessly</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/by-step-process-converting-youtube-clips-into-playful-gifs/"><u>Step-By-Step Process Converting YouTube Clips Into Playful GIFs</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ltimate-checklist-for-establishing-a-distinctive-online-self-for-2024/"><u>The Ultimate Checklist for Establishing a Distinctive Online Self for 2024</u></a></li>
 </ul></div>
 

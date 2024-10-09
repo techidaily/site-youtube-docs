@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Mastering Customization  Seamlessly Embedding Text & Links in Youtube Videos\""
-date: 2024-09-10T16:58:39.971Z
-updated: 2024-09-17T18:06:04.012Z
+date: 2024-10-05T19:56:04.755Z
+updated: 2024-10-09T16:47:55.376Z
 tags:
   - ai video
   - ai youtube
@@ -72,6 +72,13 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 * Apply changes and exit
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to add YouTube annotations
 
 YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
@@ -82,10 +89,24 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
+  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -125,6 +146,13 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -144,12 +172,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-fortnite-thumbnail-blitz-a-30-second-guide/"><u>[New] 2024 Approved Fortnite Thumbnail Blitz A 30-Second Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-streaming-stardom-unraveling-jake-pauls-youtube-rise/"><u>[New] 2024 Approved Streaming Stardom Unraveling Jake Paul's YouTube Rise</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ow-to-create-a-youtube-channel-today-for-2024/"><u>[New] How to Create A YouTube Channel Today for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nlocking-youtubes-subscriber-potential-in-30-days-for-2024/"><u>[New] Unlocking YouTube's Subscriber Potential in 30 Days for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-elevate-your-channels-templates-at-no-charge/"><u>[Updated] 2024 Approved Elevate Your Channels - Templates at No Charge</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-from-raw-footage-to-final-product-using-windows-10-for-editing-success/"><u>[Updated] 2024 Approved From Raw Footage to Final Product Using Windows 10 for Editing Success</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-closing-in-on-the-essence-of-cinematic-action/"><u>[Updated] Closing in on the Essence of Cinematic Action</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-crafting-compelling-footage-on-your-gopro/"><u>[Updated] Crafting Compelling Footage on Your GoPro</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-a-journey-through-time-best-history-youtubes-for-scholars-and-enthusiasts/"><u>[Updated] In 2024, A Journey Through Time Best History YouTubes for Scholars & Enthusiasts</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-premiere-pro-know-how-optimizing-youtube-video-uploads/"><u>[Updated] Premiere Pro Know-How Optimizing YouTube Video Uploads</u></a></li>
+<li><a href="https://games-able.techidaily.com/2024-ddr5-board-excellence-guide/"><u>2024 DDR5 Board Excellence Guide</u></a></li>
+<li><a href="https://apple-account.techidaily.com/a-step-by-step-guide-to-finding-your-apple-id-from-your-apple-iphone-14-pro-max-by-drfone-ios/"><u>A Step-by-Step Guide to Finding Your Apple ID From Your Apple iPhone 14 Pro Max</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/delete-gmail-account-withwithout-password-on-oppo-find-x7-by-drfone-android/"><u>Delete Gmail Account With/Without Password On Oppo Find X7</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/homepod-or-homepod-mini-which-is-the-ideal-smart-audio-device-for-your-needs-expert-review-by-zdnet/"><u>HomePod or HomePod Mini – Which Is The Ideal Smart Audio Device for Your Needs? Expert Review by ZDNET</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-solutions-to-spy-on-honor-x50i-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>In 2024, Solutions to Spy on Honor X50i with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722970360584-to-simplify-you-can-divide-both-numerator-and-denominator-by-their-greatest-common-divisor-gcd-the-gcd-of-20-and-8-is-4/"><u>To Simplify, You Can Divide Both Numerator and Denominator by Their Greatest Common Divisor (GCD). The GCD of 20 and 8 Is 4</u></a></li>
+</ul></div>
 

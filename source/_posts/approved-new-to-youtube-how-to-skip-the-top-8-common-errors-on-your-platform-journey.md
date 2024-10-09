@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  New to YouTube  How to Skip the Top 8 Common Errors on Your Platform Journey\""
-date: 2024-10-03T00:58:44.845Z
-updated: 2024-10-03T17:00:52.282Z
+date: 2024-10-04T16:05:16.250Z
+updated: 2024-10-09T16:35:08.598Z
 tags:
   - ai video
   - ai youtube
@@ -37,31 +37,24 @@ In the ten years that I’ve been a YouTuber, I’ve made a lot of mistakes. I l
 
 ###  
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. Failing to have a long-term vision
 
 One common mistake that a lot of new YouTubers make is failing to have a long-term vision. Without a long-term vision, you’re more likely to poorly brand your YouTube channel, drop your YouTube channel activity in busier times, and, midway through, change the type of content you create and upload. None of these are good for your channel!
 
 If you can think of the kind of content you’ll love to consistently create and share in the long-run, you’ll not only be able to narrow down your brand and effectively communicate to your audience who you are and what your channel is all about, but you’ll also have a better idea on what to put out next.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Choosing an ineffective custom URL
 
 Another mistake I made with my first YouTube channel was choosing an ineffective custom URL. Because my last name is Kim, I wanted to make my custom URL “YouTube.com/kimagination.” But it wasn’t available. So, I took “kimaginati0n” with a zero where the “o” should be. I thought it was a good idea back then but it was a terrible idea.
 
 Choose a custom URL with words that can’t be confused with other similar-sounding words. For consistency across all your different social media accounts, try to choose a custom URL that matches the usernames of all your other social media channels. If the username you want isn’t available, then keep on trying to come up with a good name that is available. When you’ve secured the same username across all your different social media channels, you can then very simply promote yourself and all your social media channels by displaying just the social media icons followed by your one username.
+
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Coming up with titles that won't get searched
 
@@ -77,6 +70,13 @@ New YouTubers tend to think about their thumbnail images after they’ve finishe
 
 Even before filming, you should think about how you’re going to title your video to get the most views. After that, you should then try to picture, in your head, a thumbnail image that matches your title and creates curiosity and excitement. When you go into filming, you can then make sure to include some footage of you recreating that image.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 5\. Making weak intros
 
 After you’ve managed to get someone to click on your video through your effective title and thumbnail image strategy, the next challenge is to keep that person watching your video without closing it too early. A typical viewer on YouTube decides within the first ten to fifteen seconds of landing on a video whether or not he or she will stay or leave. This short window of time is so important to set the tone of the rest of your video and build excitement and curiosity in your viewer with an effective, high-energy intro.
@@ -91,13 +91,6 @@ An important thing to do as a new YouTuber is engaging with your subscribers. So
 
 Connecting with your audience shouldn’t just be limited to YouTube either. Use your other social media channels to connect with your audience as well.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 7\. Not promoting with social media
 
 YouTube isn’t the only social media platform that people are spending their time on. People are spending their time on all kinds of different social media platforms, like Twitter, Facebook, and Instagram. The more content in all of these platforms that you create to promote your video, the more potential your video has to be seen by their users.
@@ -105,10 +98,10 @@ YouTube isn’t the only social media platform that people are spending their ti
 New YouTubers sometimes forget to promote their videos and channel using other social media platforms. Consequently, they miss out on the opportunity to get views from multiple sources of social media.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 8\. Spamming comments
@@ -120,6 +113,13 @@ But rather than leaving interesting comments that are related to the video, rath
 Spam comments annoy YouTubers. It would be much more beneficial to your channel to build good relationships with other YouTubers to possibly collaborate on a video together in the future.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -142,15 +142,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-visual-brand-integration-embedding-watermarks-and-logos-into-youtube-media/"><u>[New] 2024 Approved Visual Brand Integration Embedding Watermarks and Logos Into Youtube Media</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-press-pause-on-anxiety-with-these-games/"><u>[New] In 2024, Press Pause on Anxiety with These Games</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-the-great-vr-debate-optimal-setup-for-gamers/"><u>[New] The Great VR Debate Optimal Setup for Gamers?</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-viral-videos-and-lawfulness-pre-upload-copyright-verification/"><u>[New] Viral Videos & Lawfulness Pre-Upload Copyright Verification</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/outubian-beginnings-unveiled-building-a-business-and-bringing-big-bucks-for-2024/"><u>[New] Youtubian Beginnings Unveiled Building a Business and Bringing Big Bucks for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-streamline-your-youtube-experience-shareable-playlists/"><u>[Updated] 2024 Approved Streamline Your YouTube Experience Shareable Playlists</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-tailoring-talent-to-treasure-the-proactive-pursuit-of-video-profitability/"><u>[Updated] 2024 Approved Tailoring Talent to Treasure The Proactive Pursuit of Video Profitability</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/free-yourself-from-video-edges-on-youtube/"><u>Free Yourself From Video Edges on YouTube</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-teleport-your-gps-location-on-vivo-y78t-drfone-by-drfone-virtual-android/"><u>How To Teleport Your GPS Location On Vivo Y78t? | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-win-and-mac-mp3-converter-unlock-your-music-from-youtube/"><u>In 2024, Win & Mac MP3 Converter Unlock Your Music From YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ow-to-turn-video-soundtracks-into-audible-files-for-2024/"><u>[New] How to Turn Video Soundtracks Into Audible Files for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-how-to-amass-a-picture-collection-for-free-the-ultimate-12-website-guide/"><u>[New] In 2024, How to Amass a Picture Collection for Free – The Ultimate 12 Website Guide</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-reveal-every-detail-the-leading-clear-image-apps/"><u>[New] Reveal Every Detail The Leading Clear Image Apps</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nearth-pristine-stock-media-from-selective-4-youtube-hubs/"><u>[New] Unearth Pristine Stock Media From Selective 4 YouTube Hubs</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nlocking-the-secrets-of-valorant-video-thumbnail-designs-for-2024/"><u>[New] Unlocking the Secrets of Valorant Video Thumbnail Designs for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-flavor-leaders-must-watch-culinary-youtube-stars/"><u>2024 Approved Flavor Leaders Must-Watch Culinary YouTube Stars</u></a></li>
+<li><a href="https://win-answers.techidaily.com/diagnosing-and-repairing-frequent-palworld-application-failures-in-windows-environments/"><u>Diagnosing & Repairing Frequent Palworld Application Failures in Windows Environments</u></a></li>
+<li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-samsung-galaxy-a23-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Samsung Galaxy A23 5G | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-erase-an-apple-iphone-12-pro-max-without-apple-id-by-drfone-ios/"><u>How to Erase an Apple iPhone 12 Pro Max without Apple ID?</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-maximize-video-quality-top-8-youtube-to-avi-converters/"><u>In 2024, Maximize Video Quality Top 8 YouTube to AVI Converters</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-techniques-for-downloading-pinterest-videos-as-mp3s/"><u>In 2024, Techniques for Downloading Pinterest Videos as MP3s</u></a></li>
+<li><a href="https://program-issues.techidaily.com/quick-and-easy-solutions-for-successful-discord-installation-failures/"><u>Quick and Easy Solutions for Successful Discord Installation Failures</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/e-your-contents-identity-adding-logo-and-watermark-to-videos/"><u>Secure Your Content's Identity Adding Logo and Watermark to Videos</u></a></li>
 </ul></div>
 

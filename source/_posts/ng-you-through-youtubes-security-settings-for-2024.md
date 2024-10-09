@@ -1,7 +1,7 @@
 ---
 title: "Guiding You Through YouTube's Security Settings for 2024"
-date: 2024-09-27T23:55:57.983Z
-updated: 2024-10-04T05:29:31.439Z
+date: 2024-10-04T17:20:03.382Z
+updated: 2024-10-09T16:17:44.763Z
 tags:
   - ai video
   - ai youtube
@@ -65,13 +65,6 @@ thumbnail: https://thmb.techidaily.com/99ddeff4dd981a34b1bf66d98e84fae1038add51e
 
 ![youtube privacy setting](https://images.wondershare.com/filmora/article-images/youtube-privacy-setting.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How to Change Privacy Settings
 
  There are two ways to change the privacy settings: firstly, when you upload the video, and secondly through Creator Studio.
@@ -82,6 +75,13 @@ thumbnail: https://thmb.techidaily.com/99ddeff4dd981a34b1bf66d98e84fae1038add51e
 
 ![upload youtube video privacy](https://images.wondershare.com/filmora/article-images/upload-youtube-video-privacy.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Method 2:**
 
  To change the privacy setting later, go to Creator Studio, then Video Manager. On the right-hand side you’ll see one of three icons: a world, a chain, and a lock. The world means **"public"**, the chain means **"unlisted"**, and the lock is for **"private"**.
@@ -91,10 +91,16 @@ thumbnail: https://thmb.techidaily.com/99ddeff4dd981a34b1bf66d98e84fae1038add51e
  To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: Sharing Private Videos
@@ -110,19 +116,19 @@ thumbnail: https://thmb.techidaily.com/99ddeff4dd981a34b1bf66d98e84fae1038add51e
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -146,19 +152,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-unleash-potential-stardews-premium-mod-lineup-7-14/"><u>[New] 2024 Approved Unleash Potential Stardew's Premium Mod Lineup #7-14</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-unleash-your-fb-potential-a-strategic-plan-for-more-likes-and-shares/"><u>[New] 2024 Approved Unleash Your FB Potential A Strategic Plan for More Likes and Shares</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/iscover-the-best-12-free-and-paid-video-game-openings-for-yt/"><u>[New] Discover the Best 12 Free and Paid Video Game Openings for YT</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-chart-your-course-to-partner-status-via-a-rapid-10000-views-journey/"><u>[Updated] In 2024, Chart Your Course to Partner Status via a Rapid 10,000 Views Journey</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-quick-guide-incorporating-more-photos-into-your-instagram-story-for-2024/"><u>[Updated] Quick Guide Incorporating More Photos Into Your Instagram Story for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-unleash-your-time-potential-with-gratuitous-clock-tools-for-2024/"><u>[Updated] Unleash Your Time Potential with Gratuitous Clock Tools for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-dji-quadcopter-a-deep-dive-into-phantom-3/"><u>2024 Approved DJI Quadcopter A Deep Dive Into Phantom 3</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-get-more-eyeballs-perfect-your-youtube-description-templates-for-viewer-attraction/"><u>2024 Approved Get More Eyeballs Perfect Your YouTube Description Templates for Viewer Attraction</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/el-success-stories-earning-while-you-edit-for-2024/"><u>Channel Success Stories Earning While You Edit for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ing-the-art-of-asmr-filmmaking-techniques-for-2024/"><u>Decoding the Art of ASMR Filmmaking Techniques for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/o-make-a-thumbnail-for-your-youtube-free-easily/"><u>How to Make a Thumbnail for Your YouTube Free Easily</u></a></li>
-<li><a href="https://ai-editing-video.techidaily.com/in-2024-have-you-ever-tried-using-the-premiere-pro-motion-blur-plugin-read-this-article-to-learn-how-to-efficiently-use-the-reelsmart-motion-blur-plugin-in-/"><u>In 2024, Have You Ever Tried Using the Premiere Pro Motion Blur Plugin? Read This Article to Learn How to Efficiently Use the ReelSmart Motion Blur Plugin in Premiere Pro</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-delete-icloud-account-remove-your-apple-id-permanently-from-iphone-11-pro-max-by-drfone-ios/"><u>In 2024, How To Delete iCloud Account Remove Your Apple ID Permanently From iPhone 11 Pro Max</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/updated-2024-approved-perfecting-your-home-studios-auditory-experience-a-2023-guide/"><u>Updated 2024 Approved Perfecting Your Home Studios Auditory Experience (A 2023 Guide)</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-flavorful-funnels-catchy-recipe-channels-that-work/"><u>[New] 2024 Approved Flavorful Funnels Catchy Recipe Channels That Work</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-sync-splice-and-spruce-pro-video-editing-in-one-tool/"><u>[New] 2024 Approved Sync, Splice & Spruce Pro Video Editing in One Tool</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/levating-your-youtube-presence-with-strategic-banners-for-2024/"><u>[New] Elevating Your YouTube Presence with Strategic Banners for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/xplore-and-evaluate-top-7-free-android-adblockers-unveiled-for-2024/"><u>[New] Explore & Evaluate Top 7 Free Android AdBlockers Unveiled for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-laying-the-groundwork-for-successful-channels/"><u>[New] In 2024, Laying The Groundwork For Successful Channels</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-stepwise-strategy-for-transforming-your-youtube-videos-with-imovie/"><u>[Updated] 2024 Approved Stepwise Strategy for Transforming Your YouTube Videos with iMovie</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-enhancing-user-experience-with-responsive-html-designs/"><u>[Updated] In 2024, Enhancing User Experience with Responsive HTML Designs</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-tiktok-versus-youtube-shorts-assessing-personal-usage-value/"><u>[Updated] In 2024, TikTok versus YouTube Shorts Assessing Personal Usage Value</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-maximize-mobile-movie-brilliance-with-these-four-methods/"><u>[Updated] Maximize Mobile Movie Brilliance with These Four Methods</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-monetization-verification-maximizing-streamer-incomes/"><u>2024 Approved Monetization Verification Maximizing Streamer Incomes</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-the-art-and-science-of-buying-profitable-yt-content/"><u>2024 Approved The Art and Science of Buying Profitable YT Content</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/from-start-to-finish-how-to-edit-video-files-on-mac-os-x-yosemite-for-2024/"><u>From Start to Finish How to Edit Video Files on Mac OS X Yosemite for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/future-proofing-your-home-network-top-netgear-routers/"><u>Future-Proofing Your Home Network: Top Netgear Routers</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-use-google-assistant-on-your-lock-screen-of-gionee-phone-by-drfone-android/"><u>How to Use Google Assistant on Your Lock Screen Of Gionee Phone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-streamline-your-youtube-videos-in-windows-movie-maker/"><u>In 2024, Streamline Your YouTube Videos in Windows Movie Maker</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-unlock-honor-90-lite-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>In 2024, Unlock Honor 90 Lite Phone Password Without Factory Reset Full Guide Here</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-unlock-your-motorola-moto-g14s-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>In 2024, Unlock Your Motorola Moto G14s Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
+<li><a href="https://media-tips.techidaily.com/unbiased-evaluation-of-audacity-why-it-stands-out-in-sound-recording-tools-market/"><u>Unbiased Evaluation of Audacity: Why It Stands Out in Sound Recording Tools Market</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/unveiling-the-10-leading-christian-church-streamers/"><u>Unveiling The 10 Leading Christian Church Streamers</u></a></li>
 </ul></div>
 
