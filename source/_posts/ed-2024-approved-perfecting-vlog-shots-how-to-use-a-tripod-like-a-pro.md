@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Perfecting Vlog Shots  How to Use a Tripod Like a Pro\""
-date: 2024-09-15T16:17:19.391Z
-updated: 2024-09-17T21:55:05.792Z
+date: 2024-10-12T03:10:25.301Z
+updated: 2024-10-15T17:54:11.950Z
 tags:
   - ai video
   - ai youtube
@@ -49,6 +49,13 @@ thumbnail: https://thmb.techidaily.com/3e134df3d1e30ff21305cf90a72d9a508b70a320e
 
  Ball Heads and Pan/Tilt Heads are the two most common types of tripod heads. Ball Heads allow you to adjust your camera’s position quite a bit before you start shooting. They are not good for adding in camera movements while you are filming, however, because you need to lock them in place. Pan/Tilt heads are great for creating camera movement. Most Pan/Tilt heads have a handle which you can use to make a smooth panning motion.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Why Do You Need a Tripod: Benefits of Using Tripod
 
  Why can't you just hold a camera in your hand while shooting vlog entries for your YouTube channel? Honestly, you can, but the camera may shake a lot and your footage might end up being unusable. Putting a camera on a tripod reduces the probability of camera shake to the minimum and that is just the tip of the iceberg.
@@ -56,6 +63,13 @@ thumbnail: https://thmb.techidaily.com/3e134df3d1e30ff21305cf90a72d9a508b70a320e
  A huge amount of vlogs can be described as sit down videos, in which the host of the video sits in front of a camera and talks to the audience. Holding a camera while talking or trying to present a product to the viewers is next to impossible, so in order to avoid having to deal with a camera, you can simply put it on a tripod, find the best angle, and push the record button.
 
  On the go videos, are recorded at exterior locations, and a lot of YouTubers choose to shoot these types of videos handheld, but this approach makes it difficult to maintain the same shot composition for long. A Monopod, Gorillapod or just a simple selfie stick can make your job much easier because they stabilize the camera. In addition, shooting smooth panning shots without a tripod is as difficult as it sounds.
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: A Few Things You'll Need to Consider Before You Buy a Tripod
 
@@ -82,6 +96,13 @@ thumbnail: https://thmb.techidaily.com/3e134df3d1e30ff21305cf90a72d9a508b70a320e
 **Gorillapods:** have flexible legs which can be wrapped around posts, fences, or anything else you may want to mount your camera on. They are also lightweight enough that you can carry them around while you shoot. If you bend it right you can essentially use your Gorillapod as a heavy-duty selfie-stick for your camera.
 
 **Table-Top Tripods:** are very small and easy to travel with. You can leave one in your camera bag or your glove box. Table-Top Tripods are meant to be set up on top of desks or other stable surfaces and may not be ideal for heavier cameras.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 5: The 5 Best Tripods For YouTube Vlogging
 
@@ -136,10 +157,10 @@ thumbnail: https://thmb.techidaily.com/3e134df3d1e30ff21305cf90a72d9a508b70a320e
 ![ YouTube Vlogger Tripod ](https://images.wondershare.com/filmora/article-images/joby-gorilla-pod.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  This tripod is a superstar in the vlogging community because it is flexible, easy to set up and it fits into a pocket. Joby Gorilla Pod's legs are segmented, so you can freely choose an angle from which you want to shoot, without having to worry about the camera's stability. You can use this tripod on flat and uneven surfaces equally effectively.
@@ -197,13 +218,6 @@ thumbnail: https://thmb.techidaily.com/3e134df3d1e30ff21305cf90a72d9a508b70a320e
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -223,5 +237,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/oosting-engagement-youtube-strategies-for-increased-viewership-for-2024/"><u>[New] Boosting Engagement YouTube Strategies for Increased Viewership for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/randing-in-videos-incorporating-logoswatermarks-for-youtube-content-for-2024/"><u>[New] Branding in Videos Incorporating Logos/Watermarks for YouTube Content for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ubscribe-savvy-double-your-audience-in-pocket-change/"><u>[New] Subscribe Savvy Double Your Audience in Pocket Change</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-from-concept-art-to-cinematic-masterpiece-utilizing-luts-from-cg-central/"><u>[Updated] From Concept Art to Cinematic Masterpiece Utilizing Luts From CG Central</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-free-image-savers-optimizing-video-graphics/"><u>[Updated] In 2024, FREE Image Savers Optimizing Video Graphics</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-unveiling-the-8-leading-no-monetary-cost-video-tools-for-editors-for-2024/"><u>[Updated] Unveiling the 8 Leading No-Monetary-Cost Video Tools for Editors for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/1726026801592-pc/"><u>「どうやったら、オーディオトラック全部をスマホやPCにセーブできますか?」</u></a></li>
+<li><a href="https://techidaily.com/different-methods-for-resetting-nokia-xr21-phones-with-screen-locked-and-not-drfone-by-drfone-reset-android-reset-android/"><u>Different Methods for Resetting Nokia XR21 Phones with Screen Locked and Not | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-reset-your-iphone-12-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Reset Your iPhone 12? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-change-vivo-v27-lock-screen-password-by-drfone-android/"><u>In 2024, How To Change Vivo V27 Lock Screen Password?</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/sim-unlock-google-pixel-fold-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>Sim Unlock Google Pixel Fold Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://driver-download.techidaily.com/step-by-step-easy-setup-and-driver-downloads-for-your-scansnap-on-any-windows-pc/"><u>Step by Step: Easy Setup & Driver Downloads for Your ScanSnap on Any Windows PC</u></a></li>
+</ul></div>
 

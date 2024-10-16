@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Revealed! The Best Thumbnail Dimensions for Maximum Viewership Growth for 2024"
-date: 2024-10-02T21:22:42.249Z
-updated: 2024-10-09T19:56:53.105Z
+date: 2024-10-12T02:54:49.218Z
+updated: 2024-10-15T19:31:43.168Z
 tags:
   - ai video
   - ai youtube
@@ -57,6 +57,13 @@ The maximum YouTube thumbnail size must be below 2MB. Keeping the limit in mind 
 
 Usually, the 16:9 ratio is deemed an ideal choice for any YouTube video aiming high view volume. As it is most widely used in YouTube players and previews.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Upload and Change a Custom YouTube Thumbnail
 
 With a verified account, you can upload custom thumbnail on new videos as well as change the thumbnail of uploaded videos.
@@ -69,32 +76,38 @@ YouTube makes it very simple and easy for any content creator to publish custom 
 
 ![change thumbnail size](https://images.wondershare.com/filmora/article-images/upload-thumbnail-image1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * When your upload to the YouTube is completed a section will appear at the down portion of the browser screen showing **Video Thumbnails**. Here YouTube automatically creates some thumbnail images from your uploaded video and shows them here. These are the screenshots from your video, and you can select any one of them to be your thumbnail.
 
 ![set video thumbnail](https://images.wondershare.com/filmora/article-images/video-thumbnail2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * You will be able to see a button right next to the image – **Custom thumbnail**. Click on the button and you can upload a set of images of your choice as the thumbnail of your video.
 * Once done you can see the custom image just uploaded as the thumbnail of your video.
 
 ![custom thumbnail size](https://images.wondershare.com/filmora/article-images/custom-thumbnail3.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1516072">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * If you want to update the image or change it with another one you can just click on the same image in the video thumbnail section and swap it with any other image.
 
 ![youtube thumbnail size](https://images.wondershare.com/filmora/article-images/swap-thumbnail4.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### 2\. For Already Uploaded Video
 
@@ -110,26 +123,12 @@ To change the thumbnail on an already uploaded video you need to follow these st
 
 ![best thumbnail size](https://images.wondershare.com/filmora/article-images/change-thumbnail6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111994/7443" target="_top" id="2111994">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111994" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111994/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3: Q&A-- About YouTube Thumbnail Images
 
 You may want to know:
 
 * [**Question 1:** **How do I make my youtube thumbnail less than 2mb?**](#question1)
 * [**Question 2:** **How can I create an attractive youtube thumbnail?**](#question2)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. How do I make my youtube thumbnail less than 2mb?
 
@@ -165,10 +164,10 @@ With Canva you can make a distinct and stand-out YouTube thumbnail image. Canva 
 To download the image without the watermark you’ll need to sign-up for a premium account on the Canva.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **To sum up**
@@ -176,6 +175,13 @@ To download the image without the watermark you’ll need to sign-up for a premi
 YouTube thumbnail plays an important part for the audience's first impression on your video. And it is of essential essence as it can attract more viewers to your content. So you should get the right **youtube thumbnail size** before you start customing your thumbnail. We’ve gone through all the detailed requirements of **youtube thumbnail size** and how to make the best thumbnail by using the best software solutions. Please leave your comments below if any suggestions. We'd love to hear them!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -198,24 +204,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-enhance-efficiency-engage-creativity-with-mematic/"><u>[New] 2024 Approved Enhance Efficiency, Engage Creativity with Mematic</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/slr-cameras-stand-against-mirrorless-for-videographers/"><u>[New] DSLR Camera's Stand Against Mirrorless for Videographers</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-online-video-arena-showdown-who-wins-vimeo-or-giants-like-youtubeplusdailymotion/"><u>[New] In 2024, Online Video Arena Showdown Who Wins – Vimeo or Giants Like YouTube+DailyMotion?</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ransforming-song-words-into-visual-storytelling-with-lyric-video-maker-for-2024/"><u>[New] Transforming Song Words Into Visual Storytelling with Lyric Video Maker for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/solved-surface-book-pro-4-camera-not-working-on-windows-11/"><u>[Solved] Surface Book (Pro 4) Camera Not Working on Windows 11</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-best-student-friendly-history-vid-hubs-1-10/"><u>[Updated] 2024 Approved Best Student-Friendly History Vid Hubs (#1-10)</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/25672328-updated-2024-approved-free-fx-library-to-enhance-youtube-productions/"><u>[Updated] 2024 Approved Free FX Library to Enhance YouTube Productions!</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-beyond-blockbuster-horizons-favorite-films/"><u>[Updated] Beyond Blockbuster Horizons Favorite Films</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-cultivate-creativity-best-video-concepts-for-viewers/"><u>[Updated] Cultivate Creativity Best Video Concepts for Viewers</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-exemplary-audio-enhancing-programs-for-youtube-artists/"><u>[Updated] Exemplary Audio-Enhancing Programs for YouTube Artists</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-boost-views-through-effective-youtube-thumbnail-selection/"><u>[Updated] In 2024, Boost Views Through Effective YouTube Thumbnail Selection</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-mastering-the-art-of-viral-videos-for-higher-youtube-popularity/"><u>[Updated] In 2024, Mastering The Art of Viral Videos for Higher YouTube Popularity</u></a></li>
-<li><a href="https://tiktok-video-files.techidaily.com/updated-unlock-innovative-tiktok-edits-with-leading-windows-tools/"><u>[Updated] Unlock Innovative TikTok Edits with Leading Windows Tools</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-transforming-self-doubt-into-youtube-dominance/"><u>2024 Approved Transforming Self-Doubt Into YouTube Dominance</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/re-stillness-on-the-go-without-tripods-for-2024/"><u>Capture Stillness on the Go without Tripods for 2024</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-3-ways-to-unlock-apple-iphone-xs-max-without-passcode-or-face-id-by-drfone-ios/"><u>In 2024, 3 Ways to Unlock Apple iPhone XS Max without Passcode or Face ID</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-android-to-apple-how-to-transfer-photos-from-honor-x50-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Android to Apple How To Transfer Photos From Honor X50 to iPad Easily | Dr.fone</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-rapid-expansion-youtube-channels-boosting-brainpower/"><u>In 2024, Rapid Expansion YouTube Channels Boosting Brainpower</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-supports-education-by-investing-in-state-of-the-art-apple-technology-for-students/"><u>Mondly Supports Education by Investing in State-Of-The-Art Apple Technology for Students</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-behind-the-scenes-the-top-7-studio-programs-for-animators/"><u>[New] 2024 Approved Behind the Scenes The Top 7 Studio Programs for Animators</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-peeling-back-layers-of-the-apple-m1-chip/"><u>[New] 2024 Approved Peeling Back Layers of the Apple M1 Chip</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/oosting-your-channel-strategies-for-skyrocketing-view-counts-for-2024/"><u>[New] Boosting Your Channel Strategies for Skyrocketing View Counts for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-elite-aerial-camera-assistants-for-gopro-enthusiasts/"><u>[New] In 2024, Elite Aerial Camera Assistants for GoPro Enthusiasts</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/1717255008397-new-watch-9-free-full-length-christmas-movies-on-youtube/"><u>[New] Watch 9 Free Full Length Christmas Movies On Youtube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-ignite-interest-top-tier-content-to-motivate-viewers/"><u>[Updated] 2024 Approved Ignite Interest Top-Tier Content to Motivate Viewers</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-ace-your-iphones-advanced-tactics-for-downloading-podcasts/"><u>[Updated] Ace Your iPhones Advanced Tactics for Downloading Podcasts</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-average-revenue-what-every-view-contributes-to-creators-for-2024/"><u>[Updated] Average Revenue What Every View Contributes to Creators for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-i-transferred-messages-from-oppo-find-x7-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How I Transferred Messages from Oppo Find X7 to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/switch-cards-between-apple-iphone-14-pro-and-other-iphones-will-move-all-phone-services-drfone-by-drfone-transfer-from-ios/"><u>Switch Cards Between Apple iPhone 14 Pro and other iPhones Will Move All Phone Services? | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/worthy-tactics-for-multiplying-a-million-views-on-youtube/"><u>Trustworthy Tactics for Multiplying a Million Views on YouTube</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/webcam-video-production-record-edit-and-export-guide-for-2024/"><u>Webcam Video Production Record, Edit & Export Guide for 2024</u></a></li>
 </ul></div>
 

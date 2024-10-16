@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Boost Your Blogging Bravery  Following YouTuber Leaders\""
-date: 2024-09-10T19:41:40.303Z
-updated: 2024-09-17T22:50:50.507Z
+date: 2024-10-14T00:20:00.644Z
+updated: 2024-10-15T16:39:10.281Z
 tags:
   - ai video
   - ai youtube
@@ -55,6 +55,13 @@ Once all the pieces of the story are captured — including your storytelling, b
 
 Take a look at this example from [Tiffany Alvord](https://www.youtube.com/user/TiffanyAlvord) and notice how there are jump cuts both to skip information that can be assumed by the audience and add the tension to the story she’s telling.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **3\. Surprise and Delight Your Audience**
 
 There is a saying that a great ending to a story is that it is [surprising, yet inevitable](https://www.huffingtonpost.com/david-kudler/writing-the-inevitable-bu%5Fb%5F1630419.html).
@@ -62,13 +69,6 @@ There is a saying that a great ending to a story is that it is [surprising, yet 
 The ending needs to be justified even if there is a twist. Everything before that had worked to build up the tension and when it concludes it needs to be logical. However, the ending cannot be something that the audience can guess. Remember those mystery movies where you know who the murderer is after the first few scenes? Yeah… those aren’t satisfying. A good story ends with a surprise, and with everything prior leading up to it.
 
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115925/19272" target="_top" id="2115925">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115925" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115925/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **4\. Be Inviting**
 
@@ -79,10 +79,10 @@ Unlike being invited to a party, there is no obligation when it comes to YouTube
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115918/19272" target="_top" id="2115918">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115918" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115918/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **5\. Compose the Shot**
@@ -96,6 +96,13 @@ The great thing about vlogging is that you will get a lot of practice framing sh
 Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UCjwmbv6NE4mOh8Z8VhPUx1Q), where she gives a tour of her bedroom.
 
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **6\. Be Prepared**
 
@@ -141,14 +148,14 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -169,5 +176,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/iscover-12-cutting-edge-flip-screen-cams-for-video-content-for-2024/"><u>[New] Discover 12 Cutting-Edge Flip-Screen Cams for Video Content for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-from-watcher-to-participant-facebook-live-on-roku-devices-for-2024/"><u>[New] From Watcher to Participant Facebook LIVE on Roku Devices for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-stabilizing-your-stream-avoid-dropped-frame-errors/"><u>[New] In 2024, Stabilizing Your Stream Avoid Dropped Frame Errors</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-professional-filmmaking-essentials-ideal-lenses-to-consider/"><u>[Updated] 2024 Approved Professional Filmmaking Essentials Ideal Lenses to Consider</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-elevate-your-asmr-sessions-with-these-microphones-for-2024/"><u>[Updated] Elevate Your ASMR Sessions with These Microphones for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-ideal-audio-transformer-devices-for-youtube-experts/"><u>[Updated] Ideal Audio Transformer Devices for YouTube Experts</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-the-components-that-lift-you-in-youtube-viewership/"><u>[Updated] In 2024, The Components That Lift You in YouTube Viewership</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-nightmares-unleashed-8-must-play-zombie-games-explored/"><u>[Updated] Nightmares Unleashed 8 Must-Play Zombie Games Explored</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-shutterbug-simplified-iphone-tools-for-effective-cropping-for-2024/"><u>[Updated] Shutterbug Simplified IPhone Tools for Effective Cropping for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-echoes-of-the-past-the-top-10-youtube-sources-for-history-lovers/"><u>2024 Approved Echoes of the Past The Top 10 YouTube Sources for History Lovers</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/evite-la-copia-ilegal-de-discos-por-que-no-convertir-tu-dvd-a-disco-duro-legalmente/"><u>Evite La Copia Ilegal De Discos, ¿Por Qué No Convertir Tu DVD a Disco Duro Legalmente?</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-is-greyed-out-on-apple-iphone-x-how-to-bypass-by-drfone-ios/"><u>In 2024, Apple ID is Greyed Out On Apple iPhone X How to Bypass?</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-iconic-highlights-from-the-2022-figure-skate-world/"><u>In 2024, Iconic Highlights From the 2022 Figure Skate World</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-revisiting-old-photos-sending-them-as-snaps-on-snapchat/"><u>In 2024, Revisiting Old Photos Sending Them as Snaps on Snapchat</u></a></li>
+<li><a href="https://extra-support.techidaily.com/protect-privacy-with-fast-facial-masking-on-piscart-for-2024/"><u>Protect Privacy with Fast Facial Masking on PiscArt for 2024</u></a></li>
+</ul></div>
 

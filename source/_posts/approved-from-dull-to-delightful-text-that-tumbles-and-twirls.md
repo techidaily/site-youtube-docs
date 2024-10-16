@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  From Dull to Delightful  Text that Tumbles and Twirls\""
-date: 2024-09-10T17:15:17.506Z
-updated: 2024-09-17T19:47:32.578Z
+date: 2024-10-09T02:24:42.224Z
+updated: 2024-10-15T18:06:00.283Z
 tags:
   - ai video
   - ai youtube
@@ -75,6 +75,13 @@ As explained before, Wondeshare Filmora makes the entire process of creating and
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Method 2: Generate Animated Bouncing Texts Online
 
 If you don’t want any heavy and resource-intensive app on your PC merely for some special text effects, you can try any of the online solutions instead. The benefit of using any such web app is that all the processing is done on site’s server, and it is only a web browser and an Internet connection that you need to have at your side.
@@ -86,6 +93,19 @@ Some most trusted websites to generate **bounce text** are listed below:
 Website: <https://engfto.com/index/create%5Fanimated%5Fbouncing%5Ftext/0-26>
 
 ![Create Animated Bouncing Text with ENGFTO](https://images.wondershare.com/filmora/article-images/engfto-create-animated-bouncing-text.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1542129">
+					<video width="864" height="1152" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 You can follow the instructions given below to use Engfto to generate bouncing text for your footages:
 
@@ -113,6 +133,13 @@ Launch your favorite web browser and go to <https://loading.io/animation/text/>.
 
 ![Create Animated Bouncing Text with Loading.io](https://images.wondershare.com/filmora/article-images/create-bouncing-text-with-loadingio.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Use the options available on the webpage to type your text, and change its font, color, background, transparency level etc. Select **Bounce** (or any of its variants) from the **Animation** drop-down list, and adjust the speed using the **Speed** slider.
 
 **Step 3: Obtain the Text**
@@ -126,6 +153,13 @@ Click your preferred option from next to the **Download As** section to download
 Generating **bounce text** effect is much simpler when you use Wondershare Filmora or any of the online solutions as explained in Method 2\. While the former gives you more flexibility when it comes to customizations, the latter doesn’t require any app to be installed on your PC. In addition, many times the web apps offer their services for free, and therefore they are preferred by the novice users who are not much into post-production processes.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -146,12 +180,20 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-top-8-best-fbx-game-recorder-alternatives/"><u>[New] 2024 Approved Top 8 Best FBX Game Recorder Alternatives</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-light-up-your-feed-expert-tips-for-instagram-highlights-3-steps-for-2024/"><u>[New] Light Up Your Feed Expert Tips for Instagram Highlights (3 Steps) for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-exploring-the-power-of-yi-4k-cameras/"><u>[Updated] Exploring the Power of YI 4K Cameras</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-guide-turning-insta-vids-to-mp3-tracks-for-2024/"><u>[Updated] Guide Turning Insta Vids to MP3 Tracks for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-instantaneous-viewership-metering/"><u>[Updated] In 2024, Instantaneous Viewership Metering</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-loves-cinematic-journey-youtube-and-vimeos-top-premium-marriage-videos-for-2024/"><u>[Updated] Love's Cinematic Journey YouTube & Vimeo's Top Premium Marriage Videos for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-sourav-joshis-guide-to-earning-for-2024/"><u>[Updated] Sourav Joshi's Guide to Earning for 2024</u></a></li>
+<li><a href="https://win-exceptional.techidaily.com/44cm44kq44oz44op44kk44oz44gn44gu5a6j5ywo44gq44ov44kh44kk44or5lplusd5a2yic0g54sh6zmq44oh44kj44k544kv44g444gu6ieq5yuv44k744o844ot44oz44kw5oml6acg44cn/"><u>「オンラインでの安全なファイル保存 - 無限ディスクへの自動セービング手順」</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ing-brand-voice-via-micro-business-videos/"><u>Building Brand Voice via Micro-Business Videos</u></a></li>
+<li><a href="https://games-able.techidaily.com/essential-8-lite-android-simulators-for-pc-and-mac-gamers/"><u>Essential 8 Lite Android Simulators for PC and Mac Gamers</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-full-tutorial-to-bypass-your-realme-11-5g-face-lock-by-drfone-android/"><u>In 2024, Full Tutorial to Bypass Your Realme 11 5G Face Lock?</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/maximizing-performance-crucial-hits-the-target-with-ddr5-6000-professional-memory-overclock-edition/"><u>Maximizing Performance: Crucial Hits the Target with DDR5-6000 Professional Memory Overclock Edition</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-steps-for-battled-field-4-wont-boot-up-error/"><u>Troubleshooting Steps for Battled Field 4 Won't Boot Up Error</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Revolutionize Video Closings - Exclusive End Screen Templates for 2024\""
-date: 2024-09-12T18:34:38.955Z
-updated: 2024-09-17T23:09:40.986Z
+date: 2024-10-12T18:49:05.736Z
+updated: 2024-10-15T20:15:47.287Z
 tags:
   - ai video
   - ai youtube
@@ -90,11 +90,25 @@ Here’s one for the Minecraft fans:
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
 
 1\. First, you have to sign up with an e-mail address
 
 ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
@@ -105,6 +119,13 @@ Another way to get your YouTube end screens for free, of course, is to make them
 4\. Next, do an image search for “YouTube End Screen,” choose an end screen with a layout that you would like to build off of, and save the image onto your computer.
 
 ![download-youtube-outro-end-screen](https://images.wondershare.com/filmora/article-images/download-youtube-outro-end-screen.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 5\. Upload the image onto your Canva project.
 
@@ -125,6 +146,13 @@ Another way to get your YouTube end screens for free, of course, is to make them
 If you're looking for other options to design your end screen, make sure to also check out our article on [The YouTube Outro Guide](https://tools.techidaily.com/wondershare/filmora/download/). To edit the YouTube video with more effects and templates, you can try [Wondershare Filmora video editor.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -147,12 +175,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115927/19272" target="_top" id="2115927">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115927" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115927/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-video-snippet-creator/"><u>[New] In 2024, Video Snippet Creator</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/aster-your-youtube-content-with-superior-webm-converters-for-2024/"><u>[New] Master Your YouTube Content with Superior WebM Converters for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-craft-cinematic-magic-learn-green-screen-wonders-with-youtube-for-2024/"><u>[Updated] Craft Cinematic Magic Learn Green Screen Wonders with YouTube for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-perfect-your-video-cropping-technique-for-instagram-sharing/"><u>[Updated] In 2024, Perfect Your Video Cropping Technique for Instagram Sharing</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-step-by-step-screenshot-procedures-for-hp-devices/"><u>[Updated] In 2024, Step-by-Step Screenshot Procedures for HP Devices</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-twitch-live-recording-made-simple/"><u>[Updated] In 2024, Twitch Live Recording Made Simple</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-maximize-engagement-with-these-9-youtube-thumbnail-creators-for-2024/"><u>[Updated] Maximize Engagement with These 9 YouTube Thumbnail Creators for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-strategies-to-avoid-copyright-strikes-on-youtube-videos/"><u>2024 Approved Strategies to Avoid Copyright Strikes on YouTube Videos</u></a></li>
+<li><a href="https://extra-information.techidaily.com/craft-captivating-gopro-time-lapse-footage-hacks-for-2024/"><u>Craft Captivating GoPro Time-Lapse Footage Hacks for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ing-the-wealth-of-mr-beast/"><u>Decoding the Wealth of Mr. Beast</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/and-inexpensive-techniques-for-youtube-cards-for-2024/"><u>Easy and Inexpensive Techniques for YouTube Cards for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/te-your-content-writability-with-these-best-fonts-for-2024/"><u>Elevate Your Content' Writability with These Best Fonts for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/enhance-your-computers-performance-with-these-15-recommended-free-uninstall-apps/"><u>Enhance Your Computer's Performance with These 15 Recommended Free Uninstall Apps</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fixing-foneazy-mockgo-not-working-on-infinix-hot-30i-drfone-by-drfone-virtual-android/"><u>Fixing Foneazy MockGo Not Working On Infinix Hot 30i | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/speech-to-text-a-complete-free-workshop-on-youtube-transcription-for-2024/"><u>From Speech to Text A Complete, FREE Workshop on YouTube Transcription for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-vivo-v27-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Vivo V27 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-motorola-edge-40-neo-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Motorola Edge 40 Neo? | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-nostruggle-livecast-how-to-simplify-your-podcast-broadcast/"><u>In 2024, NoStruggle Livecast How to Simplify Your Podcast Broadcast</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/navigating-spotifys-ad-landscape-a-beginners-guide-for-2024/"><u>Navigating Spotify's Ad Landscape A Beginner's Guide for 2024</u></a></li>
+</ul></div>
 

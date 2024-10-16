@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, DIY Filmmaking for YouTube Personalities"
-date: 2024-10-07T20:02:24.555Z
-updated: 2024-10-09T19:38:56.979Z
+date: 2024-10-12T00:08:10.534Z
+updated: 2024-10-15T21:06:28.526Z
 tags:
   - ai video
   - ai youtube
@@ -43,20 +43,13 @@ We’ve summarized the key points about setting up talking head style video shot
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
 
@@ -71,6 +64,13 @@ In the video above, Sean Cannell demonstrates this set-up. As you can see from t
 Objects and people that just make it into the sides of the frame will appear more stretched out as the wide-angle causes distortion and enhances perspectives.
 
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2.  Medium Vlog Set-Up
 
@@ -111,10 +111,10 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
-  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Tips for Making a Talking Head Video Better
@@ -126,10 +126,10 @@ To make a talking-head video more interesting, you can add some background music
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -153,14 +153,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-the-gastronomes-blueprint-filming-feasts/"><u>[New] 2024 Approved The Gastronome’s Blueprint Filming Feasts</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-the-ultimate-checklist-for-youtube-rule-adherence/"><u>[New] 2024 Approved The Ultimate Checklist for YouTube Rule Adherence</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-video-pioneer-record-pcmac-screens-youtube-uploading-made-easy/"><u>[New] 2024 Approved Video Pioneer Record PC/Mac Screens, YouTube Uploading Made Easy</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-video-sharing-showdown-20-decoding-the-platform-preferences-vimeo-youtubes-and-dailymotions/"><u>[New] Video Sharing Showdown 2.0 Decoding the Platform Preferences - Vimeo, YouTubes & DailyMotions</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-elevating-video-marketing-with-youtube-thumbnails/"><u>[Updated] In 2024, Elevating Video Marketing with YouTube Thumbnails</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-the-journey-to-profitable-youtube-video-creation/"><u>2024 Approved The Journey to Profitable YouTube Video Creation</u></a></li>
-<li><a href="https://driver-download.techidaily.com/get-the-latest-hp-officejet-pro-uge-driver-software-for-windows-computers/"><u>Get the Latest HP Officejet Pro Uge Driver Software for Windows Computers</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-beauty-breakdown-mastering-makeup-and-hauls-online/"><u>In 2024, Beauty Breakdown Mastering Makeup and Hauls Online</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-tecno-spark-20c-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Tecno Spark 20C? | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/omprehensive-list-of-top-9-free-video-channel-branding-aids/"><u>[New] Comprehensive List of Top 9 Free Video Channel Branding Aids</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-how-to-quality-recording-of-your-roblox-journeys-on-mac-for-2024/"><u>[New] How-To Quality Recording of Your Roblox Journeys on Mac for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-youtube-taping-permissibility-concerns/"><u>[Updated] 2024 Approved YouTube Taping Permissibility Concerns</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-evaluating-ffmpeg-for-pure-audio-recapture/"><u>[Updated] Evaluating FFmpeg for Pure Audio Recapture</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-expert-advice-enhancing-your-screen-capture-game-with-mobizen-tools/"><u>[Updated] Expert Advice Enhancing Your Screen Capture Game with Mobizen Tools</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-the-insiders-tips-for-youtube-shorts-mastery/"><u>2024 Approved The Insider's Tips for YouTube Shorts Mastery</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-stream-anything-from-oppo-reno-10-5g-to-apple-tv-drfone-by-drfone-android/"><u>In 2024, How To Stream Anything From Oppo Reno 10 5G to Apple TV | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-uncover-hubs-sites-that-connect-you-with-youtube-branding-deals/"><u>In 2024, Uncover Hubs Sites That Connect You with YouTube Branding Deals</u></a></li>
+<li><a href="https://discover-guides.techidaily.com/introducing-macxdvd-the-ultimate-iphone-data-transfer-solution-now-compatible-with-ios-10-exclusive-giveaway-of-few-available-units/"><u>Introducing MacXDVD: The Ultimate iPhone Data Transfer Solution Now Compatible with iOS 10 – Exclusive Giveaway of Few Available Units!</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/izing-views-6-simple-strategies-for-youtube-success/"><u>Maximizing Views 6 Simple Strategies for YouTube Success</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/pixel-9-pro-xl-vs-iphone-15-pro-a-detailed-camera-comparison-reveals-the-victor-and-an-unexpected-outcome-in-depth-analysis/"><u>Pixel 9 Pro XL vs iPhone 15 Pro: A Detailed Camera Comparison Reveals the Victor & an Unexpected Outcome In-Depth Analysis</u></a></li>
 </ul></div>
 

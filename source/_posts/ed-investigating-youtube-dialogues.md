@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Investigating YouTube Dialogues"
-date: 2024-09-12T16:14:07.046Z
-updated: 2024-09-17T17:31:47.520Z
+date: 2024-10-11T00:22:52.158Z
+updated: 2024-10-15T20:16:47.654Z
 tags:
   - ai video
   - ai youtube
@@ -78,6 +78,13 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 
 ![ YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: Using Comments Search for YouTube Extension
 
 If you are looking for an easy method to search YouTube comments, you can use the Comments Search for YouTube extension. Google Chrome supports this extension that allows you to search comments on YouTube without leaving the website.
@@ -104,18 +111,18 @@ This mode allows you to enter special commands to carry out an advanced search. 
 2. ‘:all’ to see all comments
 3. ‘:creator’ to get comments made by the creator
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 4: How Do You Search Comments You Have Posted on YouTube?
 
 Did you post a comment on your favorite celebrity’s video? Do you think it may be embarrassing and want to delete it now but cannot find it now amidst so many comments? It is where you can make use of YouTube’s Comment History feature.
 
 YouTube has now added this feature which you can see all the comments you ever posted on YouTube in one place.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Use the Comment History feature to Search Comments?
 
@@ -130,10 +137,16 @@ You can see all the comments you have posted in the Comment History in a few qui
 You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424528">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 5: How to Find Out Who Posts the Most Comments on Your YouTube Videos?
@@ -159,6 +172,13 @@ Find feedback or questions. Report offensive comments. If you are a regular YouT
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -178,5 +198,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-top-quality-sd-card-for-sony-alpha-7s-ii/"><u>[New] 2024 Approved Top Quality SD Card for Sony Alpha 7S II</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/recision-and-proficiency-youtube-edits-in-adobe-premiere/"><u>[New] Precision & Proficiency YouTube Edits in Adobe Premiere</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/kyrocket-viewer-count-the-most-proven-ways-to-enhance-views-for-2024/"><u>[New] Skyrocket Viewer Count The Most Proven Ways to Enhance Views for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-women-at-war-yts-top-10-gamers/"><u>[New] Women at War YT's #Top 10 Gamers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-clearing-up-that-persistent-green-tint-in-youtube-videos-on-mac/"><u>[Updated] Clearing Up that Persistent Green Tint in YouTube Videos on Mac</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-discover-review-and-compare-with-az-screenshotter/"><u>[Updated] Discover, Review & Compare with AZ Screenshotter</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-guide-to-recording-tv-screens-with-ease-and-precision/"><u>[Updated] Guide to Recording TV Screens with Ease and Precision</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-youtube-mastery-creating-quality-videos-on-phones-for-2024/"><u>[Updated] YouTube Mastery Creating Quality Videos on Phones for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/a-comprehensive-list-of-excellent-fb-cover-photo-creators/"><u>A Comprehensive List of Excellent FB Cover Photo Creators</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ing-channels-tiktok-vs-youtube-shorts-insights/"><u>Choosing Channels TikTok vs YouTube Shorts Insights</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/declutter-your-digital-mailroom-with-this-quick-email-hack-no-complex-rules-or-extra-accounts-needed/"><u>Declutter Your Digital Mailroom with This Quick Email Hack - No Complex Rules or Extra Accounts Needed</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/h-your-brain-with-these-15-ultimate-science-youtubes/"><u>Enrich Your Brain with These 15 Ultimate Science Youtubes</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-elevating-your-vlog-with-proper-tripod-angles/"><u>In 2024, Elevating Your Vlog with Proper Tripod Angles</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-enhancing-viewers-staying-power-top-6-strategies-for-youtube-success/"><u>In 2024, Enhancing Viewers' Staying Power Top 6 Strategies for YouTube Success</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-key-takeaways-on-youtube-tv-an-overview-of-its-advantages/"><u>In 2024, Key Takeaways on YouTube TV An Overview of Its Advantages</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-top-12-prominent-realme-gt-5-pro-fingerprint-not-working-solutions-by-drfone-android/"><u>In 2024, Top 12 Prominent Realme GT 5 Pro Fingerprint Not Working Solutions</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/astronomes-blueprint-filming-feasts-for-2024/"><u>The Gastronome’s Blueprint Filming Feasts for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/top-5-nokia-c02-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>Top 5 Nokia C02 Bypass FRP Tools for PC That Actually Work</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/upgrade-alert-wonderfox-now-fully-compatible-with-iphone-5s-and-iphone-5c-top-rated-dvd-to-ios-converter/"><u>Upgrade Alert: WonderFox Now Fully Compatible with iPhone 5S & iPhone 5C - Top-Rated DVD to iOS Converter!</u></a></li>
+</ul></div>
 

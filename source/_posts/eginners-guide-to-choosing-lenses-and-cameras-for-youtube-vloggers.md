@@ -1,7 +1,7 @@
 ---
 title: "[New] Beginner's Guide to Choosing Lenses and Cameras for YouTube Vloggers"
-date: 2024-10-05T19:20:24.849Z
-updated: 2024-10-09T19:44:41.271Z
+date: 2024-10-15T01:27:33.297Z
+updated: 2024-10-16T00:37:42.888Z
 tags:
   - ai video
   - ai youtube
@@ -62,10 +62,10 @@ With standard lenses or normal lenses, you won’t get the stretched out objects
 Out of all the other ranges in focal lengths, telephoto lenses will appear the most zoomed in. This can be beneficial for the shooter who wants to get a closer shot of a scene without having to physically be in close proximity to the scene. Objects that are further away in the background also appear larger and closer than they would appear on wide-angle or standard lenses.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Vlogging With Each Focal Length Group
@@ -90,6 +90,19 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
 
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
+<!-- affiliate ads begin -->
+<span id="1983588">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Crop Factor
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
@@ -113,34 +126,13 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 100mm      | 63mm  | 50mm      |
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Aperture
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
 
@@ -162,6 +154,13 @@ But do you even need a fast lens?
 * Moving subjects more likely to get out of focus when shooting with a large aperture
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Optical Image Stabilization
 
 Finally, you’ll have to decide whether or not you want your lens to have built-in optical image stabilization (OIS).
@@ -175,6 +174,13 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
  Looking for ways to set up your talking-head shot for YouTube with any of these lenses? Check out our post on [4 Ways To Set Up Your Talking-Head Shots For YouTube](https://tools.techidaily.com/wondershare/filmora/download/).
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -197,20 +203,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/1-popular-video-extractors-online/"><u>[New] 11 Popular Video Extractors Online</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-worldwide-leaders-in-short-video-download-hubs-free/"><u>[New] 2024 Approved Worldwide Leaders in Short Video Download Hubs (FREE)</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-young-prodigys-riches-soar-in-digital-world-fame/"><u>[New] 2024 Approved Young Prodigy's Riches Soar in Digital World Fame</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-incorporating-b-footage-a-filmmakers-guide/"><u>2024 Approved Incorporating B-Footage A Filmmaker's Guide</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/automatic-caption-makers-discover-these-3-complimentary-solutions-to-add-subtitles-instantly/"><u>Automatic Caption Makers: Discover These 3 Complimentary Solutions to Add Subtitles Instantly!</u></a></li>
-<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-vpna-to-fake-gps-location-on-oppo-a38-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use VPNa to Fake GPS Location On Oppo A38 | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/does-motorola-g24-power-support-avchd-video-by-aiseesoft-video-converter-play-mts-on-android/"><u>Does Motorola G24 Power support AVCHD video?</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/cing-engagement-imovie-techniques-for-youtube-intros-for-2024/"><u>Enhancing Engagement IMovie Techniques for YouTube Intros for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/galaxy-s24-vs-s23-head-to-head-comparison-of-the-latest-flagship-smartphones/"><u>Galaxy S24 vs S23: Head-to-Head Comparison of the Latest Flagship Smartphones</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-break-down-barriers-streaming-google-meet-on-youtube-stepwise/"><u>In 2024, Break Down Barriers Streaming Google Meet on YouTube, Stepwise</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-characters-that-convert-ideal-story-strategies/"><u>In 2024, Characters That Convert Ideal Story Strategies</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-crafting-collabs-that-attract-and-retain-viewers/"><u>In 2024, Crafting Collabs that Attract and Retain Viewers</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-make-the-most-of-your-apple-iphone-15-lock-screen-with-notifications-by-drfone-ios/"><u>In 2024, How to Make the Most of Your Apple iPhone 15 Lock Screen with Notifications?</u></a></li>
-<li><a href="https://some-tips.techidaily.com/unleashing-iphones-potential-for-dynamic-shots-for-2024/"><u>Unleashing iPhone’s Potential for Dynamic Shots for 2024</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-pro-grade-video-stabilization-in-fcpx-a-step-by-step-guide/"><u>Updated In 2024, Pro-Grade Video Stabilization in FCPX A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-decoding-youtubes-mystery-a-sequential-exploration-guide-for-2024/"><u>[New] Decoding YouTube's Mystery A Sequential Exploration Guide for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/levate-your-presence-the-best-5-practices-for-max-viewers/"><u>[New] Elevate Your Presence The Best 5 Practices for Max Viewers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ssential-history-series-youtube-recommendations-for-learners-for-2024/"><u>[New] Essential History Series YouTube Recommendations for Learners for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-explore-the-richest-historical-content-with-these-top-10-yt-groups/"><u>[New] In 2024, Explore the Richest Historical Content with These Top 10 YT Groups</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-swift-guide-eliminating-images-backdrops-with-affinity-photo/"><u>[New] Swift Guide Eliminating Images' Backdrops with Affinity Photo</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-become-a-youtube-star-essential-skills-training/"><u>[Updated] 2024 Approved Become a YouTube Star Essential Skills Training</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-generating-funny-images-through-adobe/"><u>[Updated] Generating Funny Images Through Adobe</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-laughter-loops-scouring-the-best-chuckles-in-youtube-worlds/"><u>[Updated] In 2024, Laughter Loops Scouring the Best Chuckles in YouTube Worlds</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-mastering-digital-creation-complete-guide-to-picsart/"><u>[Updated] In 2024, Mastering Digital Creation Complete Guide to PicsArt</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ing-identity-erasing-faces-from-video-content/"><u>Blurring Identity Erasing Faces From Video Content</u></a></li>
+<li><a href="https://program-issues.techidaily.com/call-of-duty-warzone-display-troubles-a-step-by-step-solution-to-graphics-loading-failures/"><u>Call of Duty Warzone Display Troubles? A Step-by-Step Solution to Graphics Loading Failures</u></a></li>
+<li><a href="https://fox-access.techidaily.com/digital-picture-perfect-with-audio-touches-for-2024/"><u>Digital Picture Perfect with Audio Touches for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/fixed-cannot-insert-object-error-in-excel-2016-step-by-step-guide-by-stellar-guide/"><u>Fixed Cannot Insert Object Error in Excel 2016 | Step-by-Step Guide</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-oppo-a1-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Oppo A1 5G | Dr.fone</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/updated-2024-approved-free-tv-streaming-9-sites-you-need-to-know/"><u>Updated 2024 Approved Free TV Streaming 9 Sites You Need To Know</u></a></li>
 </ul></div>
 

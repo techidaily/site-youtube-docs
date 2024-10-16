@@ -1,7 +1,7 @@
 ---
 title: "[New] Free DIY Approaches to Design Your Own YouTube Cards for 2024"
-date: 2024-09-15T17:38:28.442Z
-updated: 2024-09-17T21:55:54.963Z
+date: 2024-10-14T01:44:15.117Z
+updated: 2024-10-15T21:18:21.979Z
 tags:
   - ai video
   - ai youtube
@@ -82,6 +82,13 @@ You can create a simple intro card in **Filmora**.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -117,6 +124,13 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -136,18 +150,20 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="1982570">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-whos-watching-your-guide-to-instagram-eye-rolls-count/"><u>[Updated] 2024 Approved Who's Watching? Your Guide to Instagram Eye-Rolls Count</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-creative-components-free-youtube-visual-resources-for-2024/"><u>[Updated] Creative Components FREE YouTube Visual Resources for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-extracting-fb-video-files-from-pcmac-for-2024/"><u>[Updated] Extracting FB Video Files From PC/Mac for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-how-to-craft-an-engaging-solo-auditory-adventure/"><u>[Updated] How to Craft an Engaging Solo Auditory Adventure</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-uniting-creative-minds-a-guide-to-selecting-youtube-pairings/"><u>[Updated] Uniting Creative Minds A Guide to Selecting YouTube Pairings</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-journey-through-the-stars-with-these-innovative-science-youtubers/"><u>2024 Approved Journey Through the Stars with These Innovative Science YouTubers</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-samsungs-image-crafting-app-benefits-and-insights/"><u>2024 Approved Samsung's Image Crafting App Benefits & Insights</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-transforming-data-into-strategic-content-moves/"><u>2024 Approved Transforming Data Into Strategic Content Moves</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-what-are-the-best-sites-to-download-text-effects/"><u>2024 Approved What Are The Best Sites To Download Text Effects?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/free-online-conversion-transform-qt-files-into-mp3-format-with-ease-movavi/"><u>Free Online Conversion: Transform QT Files Into MP3 Format with Ease - Movavi</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/riding-secure-the-creme-de-la-cam-selection-for-motorcyclists/"><u>Riding Secure - The Crème De La Cam Selection for Motorcyclists</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1722197525125-unlock-smooth-functionality-solve-iphones-chatgpt-problem-with-these-9-handy-tips/"><u>Unlock Smooth Functionality: Solve iPhone's ChatGPT Problem with These 9 Handy Tips!</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/your-complete-guide-to-whats-new-in-snappy-driver-installer-v113-thorough-review-and-tips/"><u>Your Complete Guide to What's New in Snappy Driver Installer v1.13 - Thorough Review and Tips</u></a></li>
+</ul></div>
 

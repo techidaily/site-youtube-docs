@@ -1,7 +1,7 @@
 ---
 title: "[New] The Ultimate DIY Guide for Building Powerful YouTube Ad Videos"
-date: 2024-10-07T16:40:28.894Z
-updated: 2024-10-09T20:07:35.088Z
+date: 2024-10-10T02:30:57.212Z
+updated: 2024-10-15T18:39:39.637Z
 tags:
   - ai video
   - ai youtube
@@ -82,10 +82,16 @@ Because YouTube Video Builder is in its Beta phase, at the time of this writing 
 Once your request is approved, you can then use the same Google account to sign in to the **YouTube Video Builder** portal, and start preparing your video advertisements. Here, it is important to understand that the Google account that you use to send an access request and prepare the videos must be the same ID that has your active and functional YouTube Channel.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1542129">
+					<video width="864" height="1152" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: How to Make Video Ads for Free with YouTube Video Builder?
@@ -106,6 +112,13 @@ After this, insert an image of your brand logo in the block under the **Logos** 
 
 ![Create video with YouTube Video Builder ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-insert-brand-logo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Step 2: Add the Ingredients
 
 When you are on the **Images & Text** section of the navigation bar, pick the high-definition photos from the **Storyboard** at the bottom, and add them to the **Image 1**, **Image 2**, and **Image 3** boxes accordingly.
@@ -113,10 +126,10 @@ When you are on the **Images & Text** section of the navigation bar, pick the hi
 ![Create video with YouTube Video Builder ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-insert-images-texts.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Now, scroll down to the **Text** section, and add the relevant content in the available text input fields. Make sure to add a compelling **Call to action** text to give the viewers a free passage to connect with you.
@@ -133,23 +146,9 @@ Alternatively, you can leave the default one selected. When on the **Select Musi
 
 ![Create video with YouTube Video Builder with music ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-select-music-for-video.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Finally, click **Create video**, and wait while **YouTube Video Builder** takes you to the **Preview, Save, Share** section, and generates your video.
 
 ![ YouTube Video Builder Video create video  ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-create-video.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### Step 4: Save the Video and Begin Promotion
 
@@ -158,10 +157,10 @@ After the video is generated, play to preview the film. If everything looks good
 ![ YouTube Video Builder Video Preview and Save  ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-save-preview-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 On the next page, click **Copy** to copy the video link, and share it with your friends, colleagues, and family members for their feedback.
@@ -190,6 +189,13 @@ The bitter truth is, producing videos, especially for brand promotions requires 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -211,21 +217,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-streaming-to-start-reversing-order-on-your-youtube-watch-list/"><u>[New] 2024 Approved Streaming to Start Reversing Order on Your YouTube Watch List</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-ultimate-user-handbook-youtube-conduct-codes/"><u>[New] 2024 Approved Ultimate User Handbook YouTube Conduct Codes</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-what-every-independent-youtuber-should-know-about-mcns/"><u>[New] 2024 Approved What Every Independent YouTuber Should Know About MCNs</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-optimal-steps-livestream-and-preserve-real-time-sports-events-for-2024/"><u>[New] Optimal Steps Livestream and Preserve Real-Time Sports Events for 2024</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/new-prime-selection-of-top-20-humorous-lockdown-memes-lifting-spirits-on-facebook/"><u>[New] Prime Selection of Top 20 Humorous Lockdown Memes, Lifting Spirits on Facebook</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-a-celebs-brief-appearance-scrutiny/"><u>[Updated] A Celeb’s Brief Appearance Scrutiny</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-linkedin-live-clarity-ending-the-partially-muted-frustration/"><u>[Updated] In 2024, LinkedIn Live Clarity - Ending the Partially Muted Frustration</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/bypass-icloud-activation-lock-with-imei-code-on-your-apple-iphone-14-pro-by-drfone-ios/"><u>Bypass iCloud Activation Lock with IMEI Code On your Apple iPhone 14 Pro</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/create-compelling-images-on-iphone-with-these-10-principles-for-2024/"><u>Create Compelling Images on iPhone with These 10 Principles for 2024</u></a></li>
-<li><a href="https://win-blog.techidaily.com/how-to-stop-rainbow-six-siege-from-crashing-on-your-desktop-computer/"><u>How to Stop Rainbow Six: Siege From Crashing on Your Desktop Computer</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-basics-of-online-videos-the-easiest-10-ideas-for-beginners-on-youtube/"><u>In 2024, Basics of Online Videos The Easiest 10 Ideas for Beginners on YouTube</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-break-free-from-the-norms-crafting-your-own-streamer-identity/"><u>In 2024, Break Free From The Norms Crafting Your Own Streamer Identity</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-charting-a-path-to-youtube-wealth-cpm-analysis/"><u>In 2024, Charting a Path to YouTube Wealth CPM Analysis</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-curated-online-cinema-top-youtube-essentials/"><u>In 2024, Curated Online Cinema Top YouTube Essentials</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/in-2024-from-live-to-recorded-using-obs-for-games/"><u>In 2024, From Live to Recorded Using OBS for Games</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/tablet-tech-insights-evaluating-devices-by-processing-performance-and-power/"><u>Tablet Tech Insights: Evaluating Devices by Processing Performance and Power</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/rafting-prime-valorant-video-thumbnails-on-youtube/"><u>[New] Crafting Prime Valorant Video Thumbnails on YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-overcome-artificial-watches-for-natural-views/"><u>[New] In 2024, Overcome Artificial Watches for Natural Views</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-slumber-screen-chronicles-evaluations/"><u>[New] In 2024, Slumber Screen Chronicles Evaluations</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-synchronized-screen-serenity-youtube-loops-on-television/"><u>[Updated] 2024 Approved Synchronized Screen Serenity YouTube Loops on Television</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-boosting-engagement-perfect-time-stamping-techniques-for-videos/"><u>[Updated] In 2024, Boosting Engagement Perfect Time-Stamping Techniques for Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-leveraging-famebit-strategies-for-effective-youtube-sponsors/"><u>2024 Approved Leveraging FameBit Strategies for Effective YouTube Sponsors</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/discover-lost-alerts-with-these-simple-iphone-tricks/"><u>Discover Lost Alerts with These Simple iPhone Tricks</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-chromatic-mastery-bridging-theory-and-art/"><u>In 2024, Chromatic Mastery Bridging Theory and Art</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-generate-brand-identity-accessible-logo-templates-and-editing/"><u>In 2024, Generate Brand Identity Accessible Logo Templates & Editing</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/pc-volume-issues-resolve-them-with-these-simple-steps/"><u>PC Volume Issues? Resolve Them with These Simple Steps!</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/unveiling-the-truth-about-bingchatgpt-crypto-tokens-spotting-scams-effectively/"><u>Unveiling the Truth About BingChatGPT Crypto Tokens – Spotting Scams Effectively</u></a></li>
 </ul></div>
 
