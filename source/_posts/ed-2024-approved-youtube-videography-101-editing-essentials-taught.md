@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  YouTube Videography 101  Editing Essentials Taught\""
-date: 2024-09-11T14:04:17.351Z
-updated: 2024-09-12T14:04:17.351Z
+date: 2024-10-20T18:08:15.330Z
+updated: 2024-10-21T18:52:57.483Z
 tags:
   - ai video
   - ai youtube
@@ -34,13 +34,6 @@ Want to make your YouTube video more attractive and beautiful? here I recommend 
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## YouTube Video Editor Review
 
 **Note:** From 20th September 2017 users will no longer be able to use the complimentary editing suite. Check the best [YouTube video editor alternatives](https://tools.techidaily.com/wondershare/filmora/download/) from this complete guide.
@@ -55,37 +48,11 @@ This simplicity makes it very easy and quick to use. Unlike desktop editors, the
 
 ![YouTube Video Editor review and guide](https://images.wondershare.com/filmora/article-images/add-music-to-youtube-video-6.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1770526">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 The YouTube Video Editor does come with some standard video editing functions like video splicing, Audioswap, and cropping videos. The video editor needs to have the videos already uploaded to YouTube. Along with using your own videos, you have the option to use videos that are part of the Creative Commons library. There transitions, and other features that other standard video editors have. Audioswap is easy to use, and there is access to the Creative Commons library in the editor.
 
 #### 2. The Enhancements
 
 ![YouTube video editor review](https://images.wondershare.com/filmora/article-images/quick-fix.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 The Enhancements that are included in the YouTube Video Editor are not the best tools, but they are still pretty good overall. Enhancements can be found by clicking on a video picture after it has been added to the project. Enhancements are broken into four categories: Quick Fixes, Filters, Text, and Audio. Quick fixes are basic adjustments for small issues like the contrast and saturation of the video. YouTube added an auto-fix button and stabilize video button to make it quick to fix these issues. The filters, text, and audio, are about the same that you would find with any other video editing software.
 
@@ -107,19 +74,6 @@ Many YouTubers and everyday people like the YouTube Video Editor, for its ease o
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -139,5 +93,28 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-how-to-automate-iphones-video-repetition/"><u>[New] In 2024, How to Automate iPhone's Video Repetition</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-top-11-insider-secrets-for-windows-11-mastery-for-2024/"><u>[New] Top 11 Insider Secrets for Windows 11 Mastery for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-become-a-freelance-transcriber-tips-and-tricks-for-youtube-content/"><u>[Updated] In 2024, Become a Freelance Transcriber Tips and Tricks for YouTube Content</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-12-premier-video-game-entrances-by-top-youtubers-free-and-paid-analysis/"><u>2024 Approved 12 Premier Video Game Entrances by Top Youtubers Free & Paid Analysis</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/el-flair-free-download-templates/"><u>Channel Flair Free Download Templates</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/haunting-horrors-the-ultimate-list-of-engaging-zombie-games-for-2024/"><u>Haunting Horrors The Ultimate List of Engaging Zombie Games for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/hidden-horizons-in-hand-drawn-harmony-for-2024/"><u>Hidden Horizons in Hand-Drawn Harmony for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/43001433-how-to-stream-to-youtube-facebook-twitch-and-over-30-platforms/"><u>How to Stream to YouTube, Facebook, Twitch and Over 30 Platforms</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-nubia-red-magic-8s-proplus-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Nubia Red Magic 8S Pro+ Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-track-imei-number-of-honor-70-lite-5g-through-google-earth-by-drfone-android/"><u>In 2024, How To Track IMEI Number Of Honor 70 Lite 5G Through Google Earth?</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-2024-approved-mastering-amr-files-comprehensive-amr-file-conversion-handbook/"><u>New 2024 Approved Mastering AMR Files Comprehensive AMR File Conversion Handbook</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/spearheading-development-mastery-in-using-the-chatgpt-api/"><u>Spearheading Development: Mastery in Using the ChatGPT API</u></a></li>
+<li><a href="https://dvd-bd.techidaily.com/speed-up-dvd-ripping-with-handbrakes-quick-sync-feature-convert-dvds-to-mp4mkv-in-record-time/"><u>Speed Up DVD Ripping with HandBrake's Quick Sync Feature: Convert DVDs to MP4/MKV in Record Time</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/king-youtubes-potential-essential-tactics-and-strategies/"><u>Unlocking YouTube's Potential Essential Tactics and Strategies</u></a></li>
+</ul></div>
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
+  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

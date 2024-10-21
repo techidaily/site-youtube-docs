@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Make Video Thumbnails for YouTube for 2024"
-date: 2024-10-14T02:45:41.751Z
-updated: 2024-10-15T23:36:43.326Z
+date: 2024-10-15T16:41:17.155Z
+updated: 2024-10-21T18:39:53.218Z
 tags:
   - ai video
   - ai youtube
@@ -48,10 +48,10 @@ Here are 5 easy tips for creating thumbnails that get views.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 1\. Have a Consistent Layout
@@ -63,10 +63,10 @@ An example of a standard layout could be you in the middle of the screen wearing
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **2\. Use Your Face**
@@ -81,13 +81,6 @@ Anybody can take a screenshot of themselves in their video and use it as a thumb
 
 Make sure the images you choose are relevant to the topic of your video.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 4\. Make Your Text Huge
 
 If you use text in your thumbnail (you don’t have to) then it should be to add context. For example, if the main image is just you smiling then you might need some text to let viewers know the video is a makeup tutorial.
@@ -95,10 +88,16 @@ If you use text in your thumbnail (you don’t have to) then it should be to add
 Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
-  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5\. Keep it Clutter-Free
@@ -112,6 +111,13 @@ A good rule for text is to use only 1-3 words. That way they won’t clutter you
 Use these tips to make video thumbnails for YouTube, and tell us what kind of results you get!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -134,22 +140,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-sonic-sculpture-how-to-mold-soundscapes-with-cost-free-effect-tools/"><u>[New] 2024 Approved Sonic Sculpture How to Mold Soundscapes with Cost-Free Effect Tools</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ow-to-add-youtube-annotations-and-cards/"><u>[New] How to Add YouTube Annotations and Cards?</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/avigate-your-path-to-prominence-a-precise-guide-to-youtubes-featured-listings-for-2024/"><u>[New] Navigate Your Path to Prominence A Precise Guide to Youtube's Featured Listings for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ptimize-for-popularity-top-youtube-seo-devices-unveiled/"><u>[New] Optimize for Popularity Top YouTube SEO Devices Unveiled</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-beginners-guide-to-zoom-breakout-rooms/"><u>[Updated] 2024 Approved Beginners Guide to Zoom Breakout Rooms</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-boosting-budgets-with-effective-youtube-marketing/"><u>[Updated] 2024 Approved Boosting Budgets with Effective YouTube Marketing</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-a-step-by-step-guide-share-youtube-vids-with-fb-friends/"><u>[Updated] A Step-by-Step Guide Share YouTube Vids with FB Friends</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-boosting-income-with-effective-youtube-short-strategies/"><u>[Updated] Boosting Income with Effective Youtube Short Strategies</u></a></li>
-<li><a href="https://fake-location.techidaily.com/can-life360-track-you-when-your-tecno-spark-10-4g-is-off-drfone-by-drfone-virtual-android/"><u>Can Life360 Track You When Your Tecno Spark 10 4G is off? | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-vpna-to-fake-gps-location-on-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use VPNa to Fake GPS Location On Poco M6 5G | Dr.fone</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/connect-your-mac-to-the-cloud-mapping-external-drives-tutorial/"><u>Connect Your Mac to the Cloud: Mapping External Drives Tutorial</u></a></li>
-<li><a href="https://extra-information.techidaily.com/crafting-captivating-time-lapse-videos-a-simple-guide-with-gopro-studio/"><u>Crafting Captivating Time-Lapse Videos A Simple Guide with GoPro Studio</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/casual-follower-to-dedicated-subscriber-inspirational-journey-for-2024/"><u>From Casual Follower to Dedicated Subscriber Inspirational Journey for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/in-2024-best-20-anime-song-opens-in-ranking/"><u>In 2024, Best 20 Anime Song Opens in Ranking</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/fied-invisible-shortcut-on-youtube-for-2024/"><u>Rectified Invisible Shortcut on YouTube for 2024</u></a></li>
-<li><a href="https://program-issues.techidaily.com/solving-the-issue-of-unsuccessful-connections-in-minecraft-playground/"><u>Solving The Issue of Unsuccessful Connections in Minecraft Playground</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ing-despite-cyberbullying-and-scathing-feedback-for-2024/"><u>Thriving Despite Cyberbullying and Scathing Feedback for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-unpacking-virtual-reality-its-upside-and-downside/"><u>[New] 2024 Approved Unpacking Virtual Reality Its Upside & Downside</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ynamic-viewership-statistics-platforms/"><u>[New] Dynamic Viewership Statistics Platforms</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nter-virtual-realms-top-10-immersive-videos/"><u>[New] Enter Virtual Realms Top 10 Immersive Videos</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-harmonizing-services-uniting-your-musical-lists/"><u>[New] Harmonizing Services Uniting Your Musical Lists</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/outube-monetization-carryminati-ajey-nagar-youtube-income/"><u>[New] YouTube Monetization CarryMinati (Ajey Nagar) YouTube Income</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-youtubers-unleashed-a-guide-to-creating-memorable-music-reaction-vids/"><u>[Updated] Youtubers Unleashed A Guide to Creating Memorable Music Reaction Vids</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-optimize-your-content-youtube-seo-techniques-and-gadgets/"><u>2024 Approved Optimize Your Content YouTube SEO Techniques and Gadgets</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/erate-engagement-the-best-12-ways-to-increase-video-popularity/"><u>Accelerate Engagement - The Best 12 Ways to Increase Video Popularity</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/bring-back-the-boom-how-to-fix-anthem-audio-issues-on-your-pc-with-windows-11/"><u>Bring Back the Boom! How to Fix Anthem Audio Issues on Your PC with Windows 11</u></a></li>
+<li><a href="https://games-able.techidaily.com/debating-the-importance-of-your-steam-score/"><u>Debating the Importance of Your Steam Score</u></a></li>
+<li><a href="https://fox-sys.techidaily.com/easy-steps-for-changing-avi-files-into-swf-format/"><u>Easy Steps for Changing AVI Files Into SWF Format</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/-walls-in-grey-buildings-a-step-towards-eco-cities-for-2024/"><u>Green Walls in Grey Buildings A Step Towards Eco-Cities for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-synchronized-success-audio-meets-visual-in-films/"><u>In 2024, Synchronized Success Audio Meets Visual in Films</u></a></li>
+<li><a href="https://change-location.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-vivo-s17t-drfone-by-drfone-virtual-android/"><u>Preparation to Beat Giovani in Pokemon Go For Vivo S17t | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/profit-potential-unveiled-making-money-via-youtube/"><u>Profit Potential Unveiled Making Money via YouTube</u></a></li>
+<li><a href="https://common-error.techidaily.com/solve-silent-acer-effective-tips-for-fixing-lack-of-sound-output/"><u>Solve Silent Acer: Effective Tips for Fixing Lack of Sound Output</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ltimate-size-solution-to-boost-your-videos-online-performance-for-2024/"><u>The Ultimate Size Solution to Boost Your Video's Online Performance for 2024</u></a></li>
 </ul></div>
 

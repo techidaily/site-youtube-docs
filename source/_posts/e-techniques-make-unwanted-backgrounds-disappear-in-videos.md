@@ -1,7 +1,7 @@
 ---
 title: "\"Subtle Techniques  Make Unwanted Backgrounds Disappear in Videos\""
-date: 2024-10-09T16:17:23.216Z
-updated: 2024-10-15T16:13:39.679Z
+date: 2024-10-16T18:18:07.987Z
+updated: 2024-10-21T18:24:57.666Z
 tags:
   - ai video
   - ai youtube
@@ -65,18 +65,18 @@ To get a shallow depth of field, make sure your aperture is wide. Do this by set
 
 Creating a bokeh effect is mostly the same, except that it works best when your subject/depth of field is very close to the camera, and you have a light source off in the background. Zoom Lenses do not usually have wide enough apertures to create bokeh backgrounds.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
-  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Blur Video Background in Post-Production with [Wondershare Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
 
 If you need to blur the video background after shooting, you can use some video editing software to add the bokeh effect or the tilt-off effect in post-production. Here, I will show you how to do that in Filmora.
 
 Filmora is one of the most widely used video editing software among YouTubers. Its user-friendly interface and tutorial guide enables green-hands to start video editing quickly. Besides, you can find many free filters, effects, and elements pre-programmed, so you can use them directly without looking for presets and templates somewhere else.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. Add Bokeh Filter to Video in Filmora
 
@@ -87,10 +87,10 @@ Note: you should select **Included** to see all bokeh effects pre-programmed in 
 ![ Filmora Bokeh effect ](https://images.wondershare.com/filmora/article-images/filmora9-bokeh-effect.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Double click the bokeh effect to preview the result, and if you find the bokeh effect fits the video, just drop it to the track above the video. And the bokeh filter or overlay will be applied to the video automatically.
@@ -103,16 +103,16 @@ Go to the **Effects** tab and then switch to the **Utility** menu under **Includ
 
 ![ Filmora Tilt-Shift effects ](https://images.wondershare.com/filmora/article-images/tilt-shift-effects.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Here, I will select the **Tilt-Shift Circle** effect and drop it to the track above the video. Now, you can adjust the size, position, and intensity of the tilt-shift circle effect
 
 ![ Filmora Tilt-Shift Circle effect](https://images.wondershare.com/filmora/article-images/apply-tilt-shift-circle-effect.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 You see, the video background is blurred, and the people are highlighted. Now it's your turn to download the Filmora video editor and try it yourself.
 
@@ -121,10 +121,10 @@ You see, the video background is blurred, and the people are highlighted. Now it
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -148,22 +148,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-elevate-your-youtube-presence-with-masterful-editing-skills/"><u>[New] 2024 Approved Elevate Your YouTube Presence with Masterful Editing Skills</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ssential-steps-to-designing-exceptional-youtube-thumbnails-for-2024/"><u>[New] Essential Steps to Designing Exceptional YouTube Thumbnails for 2024</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/new-framefusion-creator/"><u>[New] FrameFusion Creator</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/95600551-new-in-2024-collect-premium-audio-for-video-editors/"><u>[New] In 2024, Collect Premium Audio for Video Editors</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-rapid-reclamation-of-elusive-videos/"><u>[New] In 2024, Rapid Reclamation of Elusive Videos</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-blurred-lines-the-art-of-anonymizing-youtube-content/"><u>[Updated] 2024 Approved Blurred Lines The Art of Anonymizing YouTube Content</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-leverage-seo-power-secrets-of-effective-youtube-backlink-building/"><u>[Updated] Leverage SEO Power Secrets of Effective YouTube Backlink Building</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-small-channels-big-opportunities-an-affiliate-approach-for-2024/"><u>[Updated] Small Channels, Big Opportunities An Affiliate Approach for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-youtube-subscriber-chart-the-5-most-subscribed-youtube-channels/"><u>[Updated] YouTube Subscriber Chart - The 5 Most Subscribed YouTube Channels</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/el-artistry-in-a-click-10-prime-apps-for-banner-crafting/"><u>Channel Artistry in a Click 10 Prime Apps for Banner Crafting</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-enable-usb-debugging-on-a-locked-nubia-phone-by-drfone-android/"><u>How To Enable USB Debugging on a Locked Nubia Phone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-practical-steps-for-disabling-youtube-channels-on-devices/"><u>In 2024, Practical Steps for Disabling YouTube Channels on Devices</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-zte-axon-40-lite-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On ZTE Axon 40 Lite? | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-visual-snips-tool/"><u>In 2024, Visual Snips Tool</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/leap-from-youtube-to-dailymotion-with-ease/"><u>Leap From YouTube to Dailymotion with Ease</u></a></li>
-<li><a href="https://extra-information.techidaily.com/metaverse-vs-multiverse-understanding-the-distinctions/"><u>Metaverse Vs. Multiverse Understanding the Distinctions</u></a></li>
-<li><a href="https://techidaily.com/why-can-t-i-play-mp4-files-on-my-moto-g04-by-aiseesoft-video-converter-play-mp4-on-android/"><u>Why can’t I play MP4 files on my Moto G04?</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/-dreamy-winter-scenes-as-youtube-backdrops-for-2024/"><u>[New] 5 Dreamy Winter Scenes as YouTube Backdrops for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-boosting-video-scale-in-youtube-recordings/"><u>[New] Boosting Video Scale in YouTube Recordings</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ltimate-movie-watchlists-streamlining-screen-time/"><u>[New] Ultimate Movie Watchlists Streamlining Screen Time</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-everyday-epics-in-a-lens-tips-to-avoid-common-mistakes/"><u>[Updated] 2024 Approved Everyday Epics in a Lens Tips to Avoid Common Mistakes</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-charting-a-course-essential-equipment-for-youtube-enthusiasts/"><u>[Updated] Charting a Course Essential Equipment for YouTube Enthusiasts</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-the-secrets-of-effective-free-youtube-video-transcriptions-revealed/"><u>2024 Approved The Secrets of Effective, FREE YouTube Video Transcriptions Revealed</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-uniting-subscribers-through-shared-playlists/"><u>2024 Approved Uniting Subscribers Through Shared Playlists</u></a></li>
+<li><a href="https://common-error.techidaily.com/fix-successful-for-new-world-addressing-the-easy-anti-cheat-problems/"><u>Fix Successful for 'New World': Addressing the Easy Anti-Cheat Problems</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/free-m-audio-fast-track-drivers-compatible-with-win107881-download-now/"><u>Free M-Audio Fast Track Drivers: Compatible with Win10/7/8/8.1 - [Download Now]</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-can-we-unlock-our-sony-xperia-10-v-phone-screen-by-drfone-android/"><u>In 2024, How Can We Unlock Our Sony Xperia 10 V Phone Screen?</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-change-your-apple-id-on-iphone-13-with-or-without-password-drfone-by-drfone-ios/"><u>In 2024, How To Change Your Apple ID on iPhone 13 With or Without Password | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/tart-your-youtube-venture-top-equipment-choices-for-2024/"><u>Jumpstart Your YouTube Venture Top Equipment Choices for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/al-video-sharing-experience-decide-between-tiktok-and-youtubes-shorts/"><u>Optimal Video-Sharing Experience Decide Between TikTok & YouTubes' Shorts</u></a></li>
+<li><a href="https://data-recovery.techidaily.com/reliable-partition-repair-tools-bring-back-lost-and-corrupted-drives/"><u>Reliable Partition Repair Tools: Bring Back Lost & Corrupted Drives</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/secure-your-sabrent-rocket-5-nvme-m2-pcie-gen4-internal-solid-state-drive-with-1-tb-storage-up-to-7000-mbs-read-and-write-speeds-for-only-179-on-amazon/"><u>Secure Your Sabrent Rocket 5 NVMe M.2 PCIe Gen4 Internal Solid State Drive with 1 TB Storage - Up to 7000 MB/S Read & Write Speeds for Only $179 on Amazon</u></a></li>
+<li><a href="https://windows11.techidaily.com/the-quickest-way-to-shift-your-windows-qbittorrent-software/"><u>The Quickest Way to Shift Your Windows qBittorrent Software</u></a></li>
+<li><a href="https://fox-http.techidaily.com/top-5-inspiring-book-trailers/"><u>Top 5 Inspiring Book Trailers</u></a></li>
 </ul></div>
 

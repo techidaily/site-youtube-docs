@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Advanced Filmmaking Techniques  Selecting Top-Notch Lenses\""
-date: 2024-10-09T02:19:12.415Z
-updated: 2024-10-15T22:18:10.193Z
+date: 2024-10-20T16:19:16.564Z
+updated: 2024-10-21T16:49:42.251Z
 tags:
   - ai video
   - ai youtube
@@ -40,10 +40,10 @@ We have explained the differences between Fixed lens and Zoom lens and advantage
 Before we get into the recommendations here is a little background information on lenses in general:
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Beginner's Guide to Aperture and F-Stops
@@ -63,6 +63,13 @@ Light passes through your lens’s aperture on its way to your camera’s sensor
 F-stops are written like ‘f/1.8’ or ‘f/4’ on your lens. For more information on f-stops and blurring your background read “The Best Bokeh Lens - How to Get the Blurred Background for YouTube Videos” and watch Tasha’s video.
 
 **F-stops** or f-numbers indicate how open the aperture is, so for example if your camera is displaying f/32 value it means that your camera is letting very little light to get through to the camera's sensor. The f-number depends on a few other parameters such as shutter speed, exposure or ISO values. Large apertures provide a shallow depth of field which creates a smooth and artistic background blur, while a small aperture enables you to keep both the background and the foreground of your shot in focus.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2: Types of Camera Lenses
 
@@ -87,19 +94,6 @@ Recording videos of vast open spaces, breathtaking vistas or beautiful city view
 #### Specialist lenses
 
 YouTubers who are working on demanding projects can try to solve their troubles by using a specialist lens. Soft-focus lenses can help you take better portraits while tilt-shift lenses allow you to control the perspective. However, it is hard to imagine a scenario in which you'll need a specialist lense if you are just starting out since even experienced videographers only use special lenses when they have absolutely no better way to record a scene.
-
-<!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: Recommended Best Camera Lenses for Shooting YouTube Videos
 
@@ -139,10 +133,10 @@ Recording **moving objects** from a distance requires you to have a lens that al
 ![camera lens rec02](https://images.wondershare.com/filmora/article-images/camera-lens-rec02.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 The Tamron's standard zoom lens offers good value at a very reasonable price. The maximum aperture is f/2.8, while the minimum aperture value this lens supports is f/32, which means that its users can easily experiment with different **depths of field.** The lens is **compatible with most Canon cameras** so if you have a camera from another manufacturer you may have to use the lens adapter in order to mount it onto your camera. Like most standard zoom lenses, Tamron SP AF model is **highly versatile** and you can use it to record **a wide range of different scenes**.
@@ -158,10 +152,16 @@ If you are using a 4k camera to shoot your YouTube video, check out [best camera
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -185,22 +185,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-in-2024-the-ultimate-handbook-obspluszoom-collaboration/"><u>[New] In 2024, The Ultimate Handbook OBS+Zoom Collaboration</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/our-next-travel-companion-best-youtubers-list-for-2024/"><u>[New] Your Next Travel Companion Best Youtubers' List for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-crafting-compelling-youtube-profile-definitions/"><u>[Updated] Crafting Compelling YouTube Profile Definitions</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-simplify-your-life-with-these-tips-on-free-youtube-transcription/"><u>[Updated] In 2024, Simplify Your Life with These Tips on Free YouTube Transcription</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-optimize-engagement-and-analytics-harnessing-tubebuddys-insights/"><u>[Updated] Optimize Engagement & Analytics - Harnessing TubeBuddy's Insights</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-photoshops-power-shifting-hues-at-your-fingertips/"><u>[Updated] Photoshop's Power Shifting Hues at Your Fingertips</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-smallscope-snag-watch-reviews/"><u>[Updated] SmallScope Snag Watch Reviews</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-how-to-get-just-the-essentials-from-youtube-videos/"><u>2024 Approved How to Get Just the Essentials From YouTube Videos</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-inshot-vs-other-editors-comprehensive-analysis/"><u>2024 Approved InShot vs Other Editors Comprehensive Analysis</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/adapt-windows-sleep-timer-to-suit-you/"><u>Adapt Window's Sleep Timer to Suit You</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-location-on-facebook-dating-for-your-oneplus-open-drfone-by-drfone-virtual-android/"><u>How to Change Location On Facebook Dating for your OnePlus Open | Dr.fone</u></a></li>
-<li><a href="https://windows11.techidaily.com/how-to-fix-the-your-windows-license-will-expire-soon-error-on-windows-11-and-11/"><u>How to Fix the “Your Windows License Will Expire Soon” Error on Windows 11 and 11</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-optimize-youtube-submission-swift-rendering-and-uploading-methods/"><u>In 2024, Optimize YouTube Submission - Swift Rendering and Uploading Methods</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-unveiling-the-best-cinematic-love-top-8-premium-wedding-videos-online/"><u>In 2024, Unveiling the Best Cinematic Love Top 8 Premium Wedding Videos Online</u></a></li>
-<li><a href="https://win-forum.techidaily.com/securing-your-documents-a-step-by-step-guide-to-encrypting-text-files/"><u>Securing Your Documents: A Step-by-Step Guide to Encrypting Text Files</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/by-step-guide-to-saving-your-youtube-playlists-for-2024/"><u>Step-by-Step Guide to Saving Your YouTube Playlists for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/king-youtube-success-top-10-keyword-research-utilities-listed-for-2024/"><u>Unlocking YouTube Success Top 10 Keyword Research Utilities Listed for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ackwards-viewing-a-new-lens-for-analyzing-youtube-content/"><u>[New] Backwards Viewing A New Lens for Analyzing YouTube Content</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-best-8-subtitle-transformers-seamless-switch-from-sub-to-srtr-in-seconds-on-windowsmacos/"><u>[New] Best 8 Subtitle Transformers Seamless Switch From SUB to SRTR in Seconds on Windows/MacOS</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ptimize-youtube-traffic-select-best-rankers-explained/"><u>[New] Optimize YouTube Traffic Select Best Rankers Explained</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/outube-editing-made-easy-shortening-video-lengths/"><u>[New] YouTube Editing Made Easy Shortening Video Lengths</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-maximize-your-green-screen-potential-with-these-top-8-download-sites/"><u>[Updated] 2024 Approved Maximize Your Green Screen Potential with These Top 8 Download Sites</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-crafting-the-perfect-binge-worthy-mukbang-experience/"><u>[Updated] Crafting the Perfect Binge-Worthy Mukbang Experience</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-sparkle-with-screenshots-vlogging-for-value-creation/"><u>[Updated] In 2024, Sparkle with Screenshots Vlogging for Value Creation</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-leveraging-youtubes-adsense-for-maximum-profits-for-2024/"><u>[Updated] Leveraging YouTube's AdSense for Maximum Profits for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-boost-visibility-with-these-20-best-thumbnail-fonts/"><u>2024 Approved Boost Visibility with These 20 Best Thumbnail Fonts</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-extended-review-easy-dynamic-range-explained/"><u>2024 Approved Extended Review Easy Dynamic Range Explained</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-keyword-optimization-for-higher-youtube-viewership/"><u>2024 Approved Keyword Optimization for Higher YouTube Viewership</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/2024-approved-livetv-prowess-elevating-facebook-live-broadcasts/"><u>2024 Approved LiveTV Prowess Elevating Facebook Live Broadcasts</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/fives-finest-tools-for-rapid-video-frame-capturing-for-2024/"><u>Five's Finest Tools for Rapid Video Frame Capturing for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-expert-strategy-for-intertwining-gopro-footage-in-full-circle-cinematographic-works/"><u>In 2024, Expert Strategy for Intertwining GoPro Footage in Full-Circle Cinematographic Works</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/izing-your-channels-earnings-a-guide-to-creating-impactful-trailers/"><u>Maximizing Your Channel's Earnings A Guide to Creating Impactful Trailers</u></a></li>
+<li><a href="https://location-social.techidaily.com/proven-ways-in-how-to-hide-location-on-life360-for-sony-xperia-1-v-drfone-by-drfone-virtual-android/"><u>Proven Ways in How To Hide Location on Life360 For Sony Xperia 1 V | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/recovery-of-windows-photo-viewer-functionality-on-win10-for-2024/"><u>Recovery of Windows Photo Viewer Functionality on Win10 for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/small-business-reviews-how-the-fujitsu-scansnap-ix1400-streamlines-document-handling/"><u>Small Business Reviews: How the Fujitsu ScanSnap iX1400 Streamlines Document Handling</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/unlocking-the-secrets-of-ffxp-mode/"><u>Unlocking the Secrets of FFXP Mode</u></a></li>
 </ul></div>
 

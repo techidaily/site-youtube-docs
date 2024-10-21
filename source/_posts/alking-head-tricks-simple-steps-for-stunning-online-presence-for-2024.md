@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Talking-Head Tricks  Simple Steps for Stunning Online Presence for 2024\""
-date: 2024-10-10T03:59:53.411Z
-updated: 2024-10-16T00:55:07.552Z
+date: 2024-10-17T18:48:00.241Z
+updated: 2024-10-21T16:20:10.350Z
 tags:
   - ai video
   - ai youtube
@@ -42,20 +42,14 @@ We’ve summarized the key points about setting up talking head style video shot
 
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
-<!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
 
@@ -86,16 +80,10 @@ You can see from how even the background and couch looks across the entire camer
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
 <!-- affiliate ads begin -->
-<span id="1975636">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3.  Two Person Vlog Set-Up
@@ -123,10 +111,16 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Tips for Making a Talking Head Video Better
@@ -135,14 +129,14 @@ To make a talking-head video more interesting, you can add some background music
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -165,14 +159,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-crafting-content-that-captivates-the-square-video-formula-on-fb/"><u>[New] Crafting Content That Captivates The Square Video Formula on FB</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ltimate-list-10-costless-video-caption-extractors/"><u>[New] Ultimate List 10 Costless Video Caption Extractors</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-how-to-embed-a-youtube-playlist-on-a-website/"><u>[Updated] 2024 Approved How to Embed A YouTube Playlist On a Website</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-light-up-the-screen-tips-and-steps-for-adding-gifs-to-snapchats/"><u>[Updated] In 2024, Light Up the Screen Tips and Steps for Adding GIFs to Snapchats</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-maximize-view-count-responsibly-legal-avenues-to-a-million-fans/"><u>[Updated] Maximize View Count Responsibly Legal Avenues to a Million Fans</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/w-your-favorites-top-6-mobile-apps-for-downloading-youtube-beats/"><u>Follow Your Favorites Top 6 Mobile Apps for Downloading YouTube Beats</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-unlock-apple-id-on-your-iphone-15-pro-without-security-questions-by-drfone-ios/"><u>How to Unlock Apple ID On your iPhone 15 Pro without Security Questions?</u></a></li>
-<li><a href="https://windows11.techidaily.com/tailoring-new-interface-redesigned-widgets-chooser-for-win11/"><u>Tailoring New Interface: Redesigned Widgets Chooser for Win11</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/ultimate-solution-easily-connect-usb-to-rs232-with-our-fast-download-driver/"><u>Ultimate Solution: Easily Connect USB to RS232 with Our Fast-Download Driver!</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-from-solo-streamer-to-global-content-powerhouse/"><u>[New] 2024 Approved From Solo Streamer to Global Content Powerhouse</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-unleashing-potential-a-deep-dive-into-intova-x/"><u>[New] 2024 Approved Unleashing Potential A Deep Dive Into Intova X</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/inge-watching-to-billions-jake-pauls-video-venture-for-2024/"><u>[New] Binge-Watching to Billions Jake Paul's Video Venture for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ro-tips-for-utilizing-green-screen-effects-professionally-for-2024/"><u>[New] Pro Tips for Utilizing Green Screen Effects Professionally for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-exploring-youtubes-earnings-mechanism-through-cpm-analysis-for-2024/"><u>[Updated] Exploring YouTube's Earnings Mechanism Through CPM Analysis for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-video-integration-youtube-images-in-slide-decks/"><u>[Updated] In 2024, Video Integration YouTube Images in Slide Decks</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-mastering-youtube-autoplay-on-mobile-devices/"><u>2024 Approved Mastering YouTube Autoplay on Mobile Devices</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-taking-your-footage-up-a-notch-advanced-techniques-for-360-videos-on-youtube/"><u>2024 Approved Taking Your Footage Up a Notch Advanced Techniques for 360° Videos on YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ating-tseries-business-model-with-youtube-viewership-metrics/"><u>Evaluating TSeries' Business Model with YouTube Viewership Metrics</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-become-an-iconic-crafter-kapwings-meme-toolkit/"><u>In 2024, Become an Iconic Crafter Kapwing's Meme Toolkit</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-exploring-the-top-hashtags-for-a-boost-on-ig/"><u>In 2024, Exploring the Top Hashtags for a Boost on IG</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-maximize-engagement-discover-the-8-best-timers-for-android-and-iphone/"><u>In 2024, Maximize Engagement Discover the 8 Best Timers for Android & iPhone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/introducing-macos-15-sequoia-launch-date-approaching-and-a-look-at-its-revolutionary-features/"><u>Introducing MacOS 15 Sequoia: Launch Date Approaching and a Look at Its Revolutionary Features</u></a></li>
+<li><a href="https://win-lab.techidaily.com/sichere-speicherung-von-windows-11-dateien-auf-onedrive-mit-kostenlosen-tools-zwei-effiziente-methoden-erklart/"><u>Sichere Speicherung Von Windows 11 Dateien Auf OneDrive Mit Kostenlosen Tools: Zwei Effiziente Methoden Erklärt</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/omplete-wm-maker-playbook-for-youtube-clips-perfection/"><u>The Complete WM Maker Playbook for YouTube Clips Perfection</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-future-at-your-fingertips-testing-the-latest-in-virtual-reality-by-lg/"><u>The Future at Your Fingertips Testing the Latest in Virtual Reality by LG</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-top-reaction-video-creators-you-need-to-know/"><u>Updated In 2024, Top Reaction Video Creators You Need to Know</u></a></li>
 </ul></div>
 

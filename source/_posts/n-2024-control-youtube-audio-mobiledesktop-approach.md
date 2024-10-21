@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Control YouTube Audio  Mobile/Desktop Approach\""
-date: 2024-10-14T17:33:15.841Z
-updated: 2024-10-16T04:13:05.643Z
+date: 2024-10-18T18:40:23.226Z
+updated: 2024-10-21T17:32:46.027Z
 tags:
   - ai video
   - ai youtube
@@ -55,6 +55,13 @@ To do this, go back to playback speed. Select **custom** in the top-right side o
 
 **Related**: [How to Make a YouTube Video](https://tools.techidaily.com/wondershare/filmora/download/).
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Change Video Speed with Keyboard Shortcuts on YouTube
 
 If you are watching a YouTube Video on your computer and want to adjust the playback speed, you can change the speed with keyboard shortcuts.
@@ -113,13 +120,6 @@ Also, you can slow down a tutorial or the video you are watching if you feel the
 
 05 [How to Change a YouTube Video's Speed Online](#part5)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 1: How to Change YouTube's Playback Speed on Computer
 
 To **fast-forward YouTube** playback videos or slow it down on the computer, you must follow the proper steps. Changing **YouTube's playback speed** on a computer is not a complex thing to do. You can achieve it if you follow the steps we will show you.
@@ -131,13 +131,6 @@ To start, at the bottom right corner of your YouTube video, click the **gear whe
 Select **playback speed,** and you will see a list of speeds from 0.25x, 0.5x, 0.75x, normal, 1.25x, 1.5x, 1.75 x to 2.0x.
 
 ![change youtube video playback speed option](https://images.wondershare.com/filmora/article-images/change-youtube-video-playback-speed-option.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 These are preset speeds. If they are not suitable for you, you will have to select a custom speed, but they must be in the same range of 0.25x to 2.0x.
 
@@ -158,13 +151,6 @@ To reduce the **playback speed YouTube** videos, the reverse is the case. Press 
 Changing the playback speed using these keyboard shortcuts increases by 0.25 increments. You have to use custom if you want other values, as earlier mentioned.
 
 The best thing about this method of changing the speed is that you can do it while watching the movie or while paused.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: How to Change YouTube's Video Playback Speed on Mobile
 
@@ -187,10 +173,10 @@ Then you will see a list containing the preset speed provided by YouTube.
 Once done, close the menu, and the video will resume from where it stopped.
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: How YouTube's Playback Speed Controls Work?
@@ -229,38 +215,45 @@ Select **playback speed,** and you will see a list of speeds from 0.25x, 0.5x, 0
 
 ![change youtube video playback speed option](https://images.wondershare.com/filmora/article-images/change-youtube-video-playback-speed-option.jpg)
 
-These are preset speeds. If they are not suitable for you, you will have to select a custom speed, but they must be in the same range of 0.25x to 2.0x.
-
-To do this, go back to playback speed. Select **custom** in the top-right side of the pop-up menu**,** then adjust the speed using a slider that you will see there.
-
-**Related**: [How to Make a YouTube Video](https://tools.techidaily.com/wondershare/filmora/download/).
-
-## Part 2: How to Change Video Speed with Keyboard Shortcuts on YouTube
-
-If you are watching a YouTube Video on your computer and want to adjust the playback speed, you can change the speed with keyboard shortcuts.
-
-Here's another way to adjust the **playback speed of YouTube** videos more quickly.
-
-To **fast-forward the YouTube** video, press your shift button and hold down, then tap your greater than(>) symbol on your keyboard. Your **YouTube playback speed** will increase by 0.25 as you keep tapping.
-
-To reduce the **playback speed YouTube** videos, the reverse is the case. Press and hold down the shift tab, then tap less than the (<) symbol.
-
-Changing the playback speed using these keyboard shortcuts increases by 0.25 increments. You have to use custom if you want other values, as earlier mentioned.
-
-The best thing about this method of changing the speed is that you can do it while watching the movie or while paused.
-
 <!-- affiliate ads begin -->
-<span id="1982457">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
+<span id="1702748">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+These are preset speeds. If they are not suitable for you, you will have to select a custom speed, but they must be in the same range of 0.25x to 2.0x.
+
+To do this, go back to playback speed. Select **custom** in the top-right side of the pop-up menu**,** then adjust the speed using a slider that you will see there.
+
+**Related**: [How to Make a YouTube Video](https://tools.techidaily.com/wondershare/filmora/download/).
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## Part 2: How to Change Video Speed with Keyboard Shortcuts on YouTube
+
+If you are watching a YouTube Video on your computer and want to adjust the playback speed, you can change the speed with keyboard shortcuts.
+
+Here's another way to adjust the **playback speed of YouTube** videos more quickly.
+
+To **fast-forward the YouTube** video, press your shift button and hold down, then tap your greater than(>) symbol on your keyboard. Your **YouTube playback speed** will increase by 0.25 as you keep tapping.
+
+To reduce the **playback speed YouTube** videos, the reverse is the case. Press and hold down the shift tab, then tap less than the (<) symbol.
+
+Changing the playback speed using these keyboard shortcuts increases by 0.25 increments. You have to use custom if you want other values, as earlier mentioned.
+
+The best thing about this method of changing the speed is that you can do it while watching the movie or while paused.
 
 ## Part 3: How to Change YouTube's Video Playback Speed on Mobile
 
@@ -281,13 +274,6 @@ Then you will see a list containing the preset speed provided by YouTube.
 1 is the average speed. Any value below than 1 will slow down the video, while any value above it will increase it.
 
 Once done, close the menu, and the video will resume from where it stopped.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4: How YouTube's Playback Speed Controls Work?
 
@@ -313,6 +299,13 @@ Also, you can slow down a tutorial or the video you are watching if you feel the
 
 05 [How to Change a YouTube Video's Speed Online](#part5)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 1: How to Change YouTube's Playback Speed on Computer
 
 To **fast-forward YouTube** playback videos or slow it down on the computer, you must follow the proper steps. Changing **YouTube's playback speed** on a computer is not a complex thing to do. You can achieve it if you follow the steps we will show you.
@@ -326,10 +319,10 @@ Select **playback speed,** and you will see a list of speeds from 0.25x, 0.5x, 0
 ![change youtube video playback speed option](https://images.wondershare.com/filmora/article-images/change-youtube-video-playback-speed-option.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 These are preset speeds. If they are not suitable for you, you will have to select a custom speed, but they must be in the same range of 0.25x to 2.0x.
@@ -337,6 +330,19 @@ These are preset speeds. If they are not suitable for you, you will have to sele
 To do this, go back to playback speed. Select **custom** in the top-right side of the pop-up menu**,** then adjust the speed using a slider that you will see there.
 
 **Related**: [How to Make a YouTube Video](https://tools.techidaily.com/wondershare/filmora/download/).
+
+<!-- affiliate ads begin -->
+<span id="701707">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2: How to Change Video Speed with Keyboard Shortcuts on YouTube
 
@@ -351,13 +357,6 @@ To reduce the **playback speed YouTube** videos, the reverse is the case. Press 
 Changing the playback speed using these keyboard shortcuts increases by 0.25 increments. You have to use custom if you want other values, as earlier mentioned.
 
 The best thing about this method of changing the speed is that you can do it while watching the movie or while paused.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: How to Change YouTube's Video Playback Speed on Mobile
 
@@ -374,6 +373,13 @@ At the top right corner, select the vertically aligned three dots. This will bri
 Then you will see a list containing the preset speed provided by YouTube.
 
 ![change youtube video speed mobile](https://images.wondershare.com/filmora/article-images/change-youtube-video-speed-mobile.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 1 is the average speed. Any value below than 1 will slow down the video, while any value above it will increase it.
 
@@ -416,24 +422,19 @@ Also, you can slow down a tutorial or the video you are watching if you feel the
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-mastering-instagram-stories-your-complete-tune-up-guide/"><u>[New] 2024 Approved Mastering Instagram Stories Your Complete Tune-Up Guide</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-best-study-partners-in-history-top-10-youtubers-and-channels/"><u>[New] In 2024, Best Study Partners in History Top 10 Youtubers & Channels</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-complete-dynamics-review-2023/"><u>[New] In 2024, Complete Dynamics Review 2023</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-discovering-the-top-8-truly-efficient-advancement-services/"><u>[Updated] Discovering the Top 8 Truly Efficient Advancement Services</u></a></li>
-<li><a href="https://location-fake.techidaily.com/10-best-fake-gps-location-spoofers-for-huawei-nova-y91-drfone-by-drfone-virtual-android/"><u>10 Best Fake GPS Location Spoofers for Huawei Nova Y91 | Dr.fone</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-jailbreak-comedy-hour-best-fb-moments-of-amusement-and-awe/"><u>2024 Approved Jailbreak Comedy Hour Best FB Moments of Amusement and Awe</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ing-motivational-life-vlogs-for-fan-engagement-for-2024/"><u>Crafting Motivational Life Vlogs for Fan Engagement for 2024</u></a></li>
-<li><a href="https://fox-that.techidaily.com/dealing-with-persistent-app-issues-fixing-spotifys-unwanted-shutdowns-on-locked-iphones/"><u>Dealing with Persistent App Issues: Fixing Spotify's Unwanted Shutdowns on Locked iPhones</u></a></li>
-<li><a href="https://driver-error.techidaily.com/easy-fix-for-devices-without-proper-drivers-in-windows-10-8-and-operating-systems/"><u>Easy Fix for Devices Without Proper Drivers in Windows 10, 8 & ^ Operating Systems</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-infinix-smart-8-is-unlocked-by-drfone-android/"><u>How To Check if Your Infinix Smart 8 Is Unlocked</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-fix-apple-iphone-7-plus-unavailable-issue-with-ease-drfone-by-drfone-ios/"><u>How To Fix Apple iPhone 7 Plus Unavailable Issue With Ease | Dr.fone</u></a></li>
-<li><a href="https://iphone-location.techidaily.com/how-to-fix-the-apple-iphone-13-mini-gps-not-working-issue-drfone-by-drfone-virtual-ios/"><u>How to Fix the Apple iPhone 13 mini GPS not Working Issue | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-harnessing-youtubes-true-potential-in-studio/"><u>In 2024, Harnessing YouTube's True Potential in Studio</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-seamless-video-transfer-from-youtube-to-instagram/"><u>In 2024, Seamless Video Transfer From YouTube to Instagram</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-showcase-your-brand-with-our-50-free-youtube-banners/"><u>In 2024, Showcase Your Brand with Our 50 Free YouTube Banners!</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-streamlining-earnings-with-youtube-studio-techniques/"><u>In 2024, Streamlining Earnings with Youtube Studio Techniques</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/king-the-secrets-of-creative-youtube-channel-names-for-vloggers-and-filmmakers-maximum-length-156-characters-for-2024/"><u>Unlocking the Secrets of Creative YouTube Channel Names for Vloggers & Filmmakers (Maximum Length 156 Characters) for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/zing-youtubes-cc-to-enhance-your-videography-for-2024/"><u>Utilizing YouTube's CC to Enhance Your Videography for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/be-seo-guide-how-to-improve-youtube-videos-rankings-for-2024/"><u>YouTube SEO Guide How to Improve YouTube Videos Rankings for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/-secrets-for-adding-online-vids-seamlessly-in-ppt-for-2024/"><u>[New] 4 Secrets for Adding Online Vids Seamlessly in PPT for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ivestream-titans-clash-facebook-live-and-youtube-vs-twitter-spaces-for-2024/"><u>[New] Livestream Titans Clash Facebook LIVE & YouTube Vs. Twitter Spaces for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-stopwatch-like-pauses-tackling-frozen-photobooths/"><u>[New] Stopwatch-Like Pauses Tackling Frozen Photobooths</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-best-collection-sites-for-quick-access-to-youtube-vids/"><u>[Updated] Best Collection Sites for Quick Access to YouTube Vids</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-elite-10-volume-augmenters-for-all-os/"><u>[Updated] In 2024, Elite 10 Volume Augmenters for All OS</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-disrupted-beats-best-mobile-music-distortors/"><u>2024 Approved Disrupted Beats Best Mobile Music Distortors</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-gamer-friendly-video-capture-apps/"><u>2024 Approved Gamer-Friendly Video Capture Apps</u></a></li>
+<li><a href="https://fox-info.techidaily.com/achieving-flawless-fb-live-via-zoom-streaming-for-2024/"><u>Achieving Flawless FB Live via Zoom Streaming for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/create-immersive-gaming-opt-for-big-box-framing/"><u>Create Immersive Gaming - Opt for Big Box Framing</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/how-to-amplify-sound-on-iphone-calls-easy-fixes-and-advice/"><u>How to Amplify Sound on iPhone Calls – Easy Fixes and Advice</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-apple-iphone-14-pro-max-backup-password-never-set-but-still-asking-heres-the-fix-by-drfone-ios/"><u>In 2024, Apple iPhone 14 Pro Max Backup Password Never Set But Still Asking? Heres the Fix</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/mastering-domain-safelisting-on-the-macos-mail-application-a-step-by-step-guide/"><u>Mastering Domain Safelisting on the MacOS Mail Application: A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-video-and-picture-capturing-tools-for-smartphones/"><u>Top 5 Video & Picture Capturing Tools for Smartphones</u></a></li>
+<li><a href="https://change-location.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-samsung-galaxy-m34-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Samsung Galaxy M34 | Dr.fone</u></a></li>
 </ul></div>
 

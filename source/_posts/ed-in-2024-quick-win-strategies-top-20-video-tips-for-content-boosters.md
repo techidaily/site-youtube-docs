@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Quick-Win Strategies  Top 20 Video Tips for Content Boosters\""
-date: 2024-10-10T22:23:57.095Z
-updated: 2024-10-16T04:32:13.165Z
+date: 2024-10-17T18:35:43.920Z
+updated: 2024-10-21T16:56:56.623Z
 tags:
   - ai video
   - ai youtube
@@ -37,13 +37,6 @@ With that said, the following two-columned tables give you detailed information 
 
 To make things convenient for you, the shortcut keys are placed under their corresponding categories, where each category is in the form of a two-columned table.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Category 1: YouTube Playback Hotkeys
 
 While watching a YouTube video, there might be instances when you want to pause and resume the playback. This category teaches how this can be done using the keyboard:
@@ -72,13 +65,6 @@ If you’re watching videos on YouTube mobile app, you can use double-tap on the
 
 Long press the Video Player and swipe right will navigate the video forward; and long press the video player and wwipe left will navigate the video backward.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Category 3: Manage Playback Speed
 
 This category contains information on increasing or decreasing the playback speed of a YouTube video:
@@ -87,6 +73,13 @@ This category contains information on increasing or decreasing the playback spee
 | ---------------------- | ----------------------- |
 | 'SHIFT' + '.' (Period) | Increase playback speed |
 | 'SHIFT' + ',' (Comma)  | Decrease playback speed |
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Category 4: Managing the Captions
 
@@ -110,6 +103,19 @@ This category shows the shortcut keys to manage audio for a YouTube video:
 | '↑'               | Increase volume by 5% |
 | '↓'               | Decrease volume by 5% |
 
+<!-- affiliate ads begin -->
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Category 6: Switching Between Screen Modes
 
 The shortcut keys given in this table enable you to switch between different screen modes:
@@ -124,6 +130,13 @@ Double press F/T/I on the keyboard will exit the full-screen/theater model/indep
 
 If you are watching video on YouTube mobile app, you can swipe up the video slightly to enter the full screen mode, and swipe down the video slightly to exit the full screen.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Category 7: Viewing 360o/VR Videos
 
 In this category, the navigation and management of shortcut keys for 360o and Virtual Reality (VR) view are discussed:
@@ -135,6 +148,13 @@ In this category, the navigation and management of shortcut keys for 360o and Vi
 | '-' (Minus Key on Numpad)   | Zoom out                                              |
 | '-' (Minus Key on Keyboard) | Decrease font size                                    |
 | '+' (Plus Key on Keyboard)  | Increase font size                                    |
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Bonus: How to Get the YouTube Shortcut List with One-Click
 
@@ -148,19 +168,6 @@ So, when you press the Shift+? on YouTube, you will see a full list of shortcuts
 
 ![YouTube Shortcut List](https://images.wondershare.com/filmora/article-images/youtube-keyboard-shortcuts-list.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Conclusion**
 
 Watching videos on YouTube is fun, and you can enjoy the clips, movies, tutorials, etc. more if you are well-aware of the important shortcut keys. This not only helps you navigate through the videos faster but also gives you relief from the additional efforts that you would otherwise have to make while grabbing the mouse, and then looking for and using the correct option.
@@ -170,13 +177,6 @@ As one of the most popular video editing software among YouTubers, Filmora provi
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
-  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -199,18 +199,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/astering-the-location-of-youtubes-creator-dashboard-for-2024/"><u>[New] Mastering the Location of YouTube's Creator Dashboard for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-unboxing-ubiquity-the-profitable-vloggers-playbook/"><u>[Updated] 2024 Approved Unboxing Ubiquity The Profitable Vlogger's Playbook</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-expert-picks-premium-costless-screencasting-apps-reviewed/"><u>[Updated] In 2024, Expert Picks Premium, Costless Screencasting Apps Reviewed</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-utilizing-textual-elements-a-guide-to-augmenting-video-content-on-youtube/"><u>[Updated] In 2024, Utilizing Textual Elements A Guide to Augmenting Video Content on YouTube</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-pinterest-video-extraction-the-ultimate-guide-to-the-best-tools/"><u>[Updated] Pinterest Video Extraction The Ultimate Guide to the Best Tools</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-mac-users-path-to-professional-audio-with-audacity/"><u>2024 Approved Mac Users' Path to Professional Audio with Audacity</u></a></li>
-<li><a href="https://win-latest.techidaily.com/1728477222770-ssdwindows-11/"><u>再インストールせずにSSDへWindows 11を移行するコツとテクニック</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/htful-yuletide-cinema-on-youtube-savor-nine-whole-film-gems/"><u>Delightful Yuletide Cinema on YouTube Savor Nine Whole-Film Gems</u></a></li>
-<li><a href="https://some-skills.techidaily.com/exploring-the-differences-between-arm-based-windows-11-and-traditional-windows-systems/"><u>Exploring the Differences Between ARM-Based Windows 11 and Traditional Windows Systems</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/free-conference-call-ultimate-guide-to-recording-calls-without-fuss/"><u>Free Conference Call: Ultimate Guide to Recording Calls Without Fuss</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/raw-footage-to-polished-content-youtube-studio-edition/"><u>From Raw Footage to Polished Content YouTube Studio Edition</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/motherboard-matters-a-comprehensive-look-at-the-7-paramount-factors-when-shopping/"><u>Motherboard Matters: A Comprehensive Look at the 7 Paramount Factors When Shopping</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/nfographic-yearbook-of-2017s-youtube-insights-and-trends-for-2024/"><u>The Infographic Yearbook of 2017'S Youtube Insights & Trends for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-elevate-your-game-strategies-for-stellar-gaming-youtube-banners/"><u>[New] In 2024, Elevate Your Game Strategies for Stellar Gaming YouTube Banners</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-flv-video-unification-techniques/"><u>[New] In 2024, FLV Video Unification Techniques</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-universal-templates-galore-for-youtube-crafting/"><u>[New] In 2024, Universal Templates Galore – For YouTube Crafting</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ecure-extraction-converting-youtube-to-trusted-mp4/"><u>[New] Secure Extraction Converting YouTube to Trusted MP4</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-a-beginners-guide-to-embedding-youtube-playlists-in-code/"><u>[Updated] 2024 Approved A Beginner's Guide to Embedding YouTube Playlists in Code</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-key-youtube-policies-every-channel-owner-must-understand/"><u>[Updated] In 2024, Key YouTube Policies Every Channel Owner Must Understand</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/15-snapchat-mastery-techniques-you-cant-miss/"><u>15 Snapchat Mastery Techniques You Can't Miss</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/lling-darkness-enhancing-youtube-views/"><u>Dispelling Darkness, Enhancing Youtube Views</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-avoid-these-8-steps-that-newcomers-often-miss-on-youtube/"><u>In 2024, Avoid These 8 Steps that Newcomers Often Miss on YouTube</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/no-more-hassle-record-games-like-pros-for-2024/"><u>No More Hassle Record Games Like Pros for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/proven-ways-in-how-to-hide-location-on-life360-for-itel-p40-drfone-by-drfone-virtual-android/"><u>Proven Ways in How To Hide Location on Life360 For Itel P40 | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/step-by-step-tutorial-how-to-bypass-tecno-spark-10-5g-frp-by-drfone-android/"><u>Step-by-Step Tutorial How To Bypass Tecno Spark 10 5G FRP</u></a></li>
+<li><a href="https://common-error.techidaily.com/streamline-your-files-essential-techniques-for-using-file-explorer-in-widows-11/"><u>Streamline Your Files: Essential Techniques for Using File Explorer In Widows 11</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/rt-of-adding-emojis-to-youtube-comments-for-2024/"><u>The Art of Adding Emojis to YouTube Comments for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/unlocking-the-power-of-component-services-in-windows-11/"><u>Unlocking the Power of Component Services in Windows 11</u></a></li>
 </ul></div>
 

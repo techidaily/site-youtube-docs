@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Navigating YouTube Comment Settings  Tips and Tricks\""
-date: 2024-10-12T23:00:50.655Z
-updated: 2024-10-15T21:44:38.921Z
+date: 2024-10-20T16:54:26.115Z
+updated: 2024-10-21T17:46:08.533Z
 tags:
   - ai video
   - ai youtube
@@ -96,10 +96,10 @@ Selecting this option holds all the comments from all the users, and waits for y
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Turn on or Turn off Comments for Specific Videos
@@ -123,10 +123,10 @@ From under the **Audience** section in the right window of the **Video details**
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
@@ -148,10 +148,10 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
@@ -169,10 +169,10 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -196,17 +196,20 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-top-film-artist-fusion-of-footage-and-tunes/"><u>[Updated] 2024 Approved Top Film Artist Fusion of Footage & Tunes</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-visual-sizzle-how-to-make-your-youtube-logo-pop/"><u>[Updated] 2024 Approved Visual Sizzle How to Make Your YouTube Logo Pop</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-boost-engagement-through-best-thumbnail-practices/"><u>[Updated] Boost Engagement Through Best Thumbnail Practices</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-snapchat-savvy-elevating-your-photographic-style-with-app-edits/"><u>[Updated] Snapchat Savvy Elevating Your Photographic Style with App Edits</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-step-by-step-embedding-youtube-content-in-slideshows/"><u>2024 Approved Step-by-Step Embedding YouTube Content in Slideshows</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-ultimate-compilation-of-ios-compatible-ps2-games/"><u>2024 Approved Ultimate Compilation of iOS-Compatible PS2 Games</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-oppo-a78-phone-without-pin-by-drfone-android/"><u>How to Unlock Oppo A78 Phone without PIN</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/movavigif/"><u>MovaviでシームレスなオンラインGIFファイル変換: 完全無料サービス</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/reassessing-government-use-of-major-it-companies-following-microsofts-outages-time-for-change/"><u>Reassessing Government Use of Major IT Companies Following Microsoft's Outages – Time For Change?</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/seeing-beyond-our-elite-rankings-of-camera-lenses-1-10/"><u>Seeing Beyond Our Elite Rankings of Camera Lenses #1-10</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/the-angle-advantage-guide-mastering-the-art-of-spinning-photos-for-social-media-triumphs/"><u>The Angle Advantage Guide Mastering the Art of Spinning Photos for Social Media Triumphs</u></a></li>
-<li><a href="https://techidaily.com/your-complete-guide-to-reset-tecno-spark-10-pro-drfone-by-drfone-reset-android-reset-android/"><u>Your Complete Guide To Reset Tecno Spark 10 Pro | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-effective-ways-to-archive-and-record-youtube-events/"><u>[New] Effective Ways to Archive and Record Youtube Events</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-transform-canvas-into-magic-the-best-mac-drawing-apps/"><u>[New] Transform Canvas Into Magic - The Best Mac Drawing Apps</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-easy-peasy-the-route-to-past-facebook-stories/"><u>[Updated] 2024 Approved Easy Peasy The Route to Past Facebook Stories</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-enhance-content-reach-and-impact-social-blades-role-in-youtube-analytics/"><u>[Updated] 2024 Approved Enhance Content Reach and Impact - Social Blade's Role in YouTube Analytics</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-best-skype-recorders-for-quality-compiled/"><u>[Updated] Best Skype Recorders for Quality Compiled</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-hide-identity-blurred-face-artistry/"><u>[Updated] Hide Identity Blurred Face Artistry</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-affluent-streaming-stars/"><u>2024 Approved Affluent Streaming Stars</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-finding-and-accessing-your-personalized-musical-selection-zone-on-youtube/"><u>2024 Approved Finding and Accessing Your Personalized Musical Selection Zone on Youtube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-structuring-engaging-online-vignettes/"><u>2024 Approved Structuring Engaging Online Vignettes</u></a></li>
+<li><a href="https://win-able.techidaily.com/how-to-stop-maplestory-from-crashing-on-windows-11-top-fixes/"><u>How To Stop MapleStory From Crashing on Windows 11 – Top Fixes</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/e-tips-creating-engaging-youtube-video-intros-for-2024/"><u>IMovie Tips Creating Engaging YouTube Video Intros for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-essential-tech-for-new-channel-launches/"><u>In 2024, Essential Tech for New Channel Launches</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-reset-a-locked-nokia-g22-phone-by-drfone-android/"><u>In 2024, How to Reset a Locked Nokia G22 Phone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/top-5-reliable-replacements-for-the-pirate-bay-when-its-offline/"><u>Top 5 Reliable Replacements for The Pirate Bay When It's Offline</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/tweet-trends-unveiled-top-videos-of-the-twittersphere/"><u>Tweet Trends Unveiled Top Videos of the Twittersphere</u></a></li>
 </ul></div>
 

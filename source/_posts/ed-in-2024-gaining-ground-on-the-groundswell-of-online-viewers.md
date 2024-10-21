@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Gaining Ground on the Groundswell of Online Viewers"
-date: 2024-10-13T22:32:05.531Z
-updated: 2024-10-16T03:18:40.039Z
+date: 2024-10-17T16:18:07.207Z
+updated: 2024-10-21T16:09:00.790Z
 tags:
   - ai video
   - ai youtube
@@ -45,13 +45,6 @@ There will be an urge for you to mimic other vloggers, talking and acting the wa
 
 Don’t focus on your image, but instead focus on your voice. What makes you different? That is how you will build a proper reputation.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **2\. Tell A Story**
 
 A vlog is not an assortment of footage haphazardly put together. A successful vlog must have a story: a conflict told with a beginning, middle, and end.
@@ -63,10 +56,10 @@ Once all the pieces of the story are captured — including your storytelling, b
 Take a look at this example from [Tiffany Alvord](https://www.youtube.com/user/TiffanyAlvord) and notice how there are jump cuts both to skip information that can be assumed by the audience and add the tension to the story she’s telling.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **3\. Surprise and Delight Your Audience**
@@ -77,13 +70,6 @@ The ending needs to be justified even if there is a twist. Everything before tha
 
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **4\. Be Inviting**
 
 A common trait of successful vloggers is that they are welcoming. They share their passion and encourage others to join in. Vlogging is about being a guide. It doesn’t matter if you are leading a tour of your home or showing your viewer an interesting new skill, it is important for you to approach the whole process with open arms.
@@ -91,6 +77,19 @@ A common trait of successful vloggers is that they are welcoming. They share the
 Unlike being invited to a party, there is no obligation when it comes to YouTube. Your viewers can continue to live vicariously through you or they may be inspired by your experience and dare to try it themselves.
 
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
+
+<!-- affiliate ads begin -->
+<span id="1983588">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **5\. Compose the Shot**
 
@@ -113,6 +112,19 @@ Additionally, knowing what to say makes you a better host for your vlog. Watch y
 Good preparation includes having all your gear ready for filming when you need it. There is nothing worse than being set to shoot and running out of battery or memory.
 
 Take a look at [Ashley Nichole](https://www.youtube.com/channel/UC8GTe3Wn7dtWXf3B%5Fv5gm9w) in this vlog and notice that although she sounds spontaneous, it is also evident that she knows what she is going to talk about next.
+
+<!-- affiliate ads begin -->
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **7\. Be Expressive**
 
@@ -151,10 +163,16 @@ If you want to find a video editing solution that empowers your imagination and 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983551">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -178,22 +196,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-watch-without-limits-15plus-free-apps-to-save-your-favorite-content/"><u>[New] In 2024, Watch Without Limits 15+ Free Apps to Save Your Favorite Content</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/avigate-your-net-worth-with-youtube-the-threefold-approach-to-assessing-earnings/"><u>[New] Navigate Your Net Worth with YouTube The Threefold Approach to Assessing Earnings</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-obs-broadcasting-your-skype-voice-capture-methods-for-2024/"><u>[New] OBS Broadcasting Your Skype Voice Capture Methods for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/outube-music-hits-2023s-most-praised-video-responses-for-2024/"><u>[New] YouTube Music Hits 2023'S Most Praised Video Responses for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-demystifying-facebooks-use-of-blue-video-icons-for-communication-for-2024/"><u>[Updated] Demystifying Facebook's Use of Blue Video Icons for Communication for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-innovating-your-videos-first-impression-on-youtube/"><u>2024 Approved Innovating Your Video's First Impression on YouTube</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-stream-video-smoothly-save-pcmac-screens-to-youtube/"><u>2024 Approved Stream Video Smoothly Save PC/Mac Screens to YouTube</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-viral-flair-identifying-powerful-tags-for-youtube-short-success/"><u>2024 Approved Viral Flair Identifying Powerful Tags for YouTube Short Success</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ve-uninterrupted-youtube-experience-across-os-platforms-for-2024/"><u>Achieve Uninterrupted YouTube Experience Across OS Platforms for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ssing-your-creative-potential-an-exhaustive-tutorial-for-youtube-video-submission-for-2024/"><u>Harnessing Your Creative Potential An Exhaustive Tutorial for YouTube Video Submission for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/identifying-2022s-top-technology-gaffes/"><u>Identifying 2022'S Top Technology Gaffes</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-androids-top-video-recording-options-5-excellent-picks/"><u>In 2024, Android's Top Video Recording Options - 5 Excellent Picks</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-nokia-c12-plus-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Nokia C12 Plus | Dr.fone</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-2024-unmatched-video-capture-selecting-the-best-pc-and-mac-recorder/"><u>In 2024, Unmatched Video Capture Selecting the Best PC & Mac Recorder</u></a></li>
-<li><a href="https://fox-that.techidaily.com/quick-fixes-getting-rid-of-water-trapped-in-your-phones-speakers/"><u>Quick Fixes: Getting Rid of Water Trapped in Your Phone's Speakers</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/unlock-enhanced-online-performance-with-our-secret-sauce-cookiebot-technology/"><u>Unlock Enhanced Online Performance with Our Secret Sauce - Cookiebot Technology</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/virtual-horizons-explored-essential-vr-peripherals/"><u>Virtual Horizons Explored Essential VR Peripherals</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-achieving-professional-bokeh-on-mobile-phones/"><u>[New] 2024 Approved Achieving Professional Bokeh on Mobile Phones</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-essential-10-history-youtube-feeds-for-learners/"><u>[New] In 2024, Essential 10 History YouTube Feeds For Learners</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-triple-tactic-tracker-how-to-scrutinize-your-subscriber-earnings-on-googles-platform-youtube/"><u>[New] In 2024, Triple Tactic Tracker How to Scrutinize Your Subscriber Earnings on Google's Platform, YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/vering-synergistic-partnerships-on-youtube-platforms/"><u>Discovering Synergistic Partnerships on YouTube Platforms</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-itel-s23plus-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos From Itel S23+ to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-evaluating-rapid-subscriptions-impact-on-video-engagement/"><u>In 2024, Evaluating Rapid Subscription's Impact on Video Engagement</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-unveiling-the-power-of-the-participant-grids-in-google-meet/"><u>In 2024, Unveiling the Power of the Participant Grids in Google Meet</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/initially-yours-the-ultimate-gear-list-for-gopros-for-2024/"><u>Initially Yours The Ultimate Gear List for GoPros for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ative-nomadism-how-to-stand-out-as-a-modern-travel-videographer-for-2024/"><u>Innovative Nomadism How To Stand Out as A Modern Travel Videographer for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/mass-effect-legendary-collection-addressing-game-performance-hiccups/"><u>Mass Effect Legendary Collection: Addressing Game Performance Hiccups</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/whip-up-a-fresh-web-comedic-bite-sized-delight/"><u>Whip Up a Fresh Web Comedic Bite-Sized Delight</u></a></li>
 </ul></div>
 

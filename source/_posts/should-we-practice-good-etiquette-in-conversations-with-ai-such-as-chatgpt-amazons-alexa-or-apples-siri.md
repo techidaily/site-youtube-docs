@@ -1,7 +1,7 @@
 ---
 title: Should We Practice Good Etiquette in Conversations with AI Such as ChatGPT, Amazon's Alexa or Apple’s Siri?
-date: 2024-10-13T01:36:51.373Z
-updated: 2024-10-15T20:05:31.444Z
+date: 2024-10-16T17:07:04.399Z
+updated: 2024-10-21T17:38:00.176Z
 tags:
   - chatgpt
   - open-ai
@@ -32,16 +32,16 @@ thumbnail: https://thmb.techidaily.com/5b0ce9c020094ad31bdc87530c31e032109184ed9
 
  PaLM 2 also offers Codey, a specialized AI model for coding and debugging. Codey will be a part of PaLM 2's generation and code completion service, among other functions. Already there are several ways Bard AI is overtaking ChatGPT in the AI chatbots league, like being free to use, connected to the internet, and accessible in over 180 countries.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2\. Multilingual Capabilities
 
 ![Different language dictionaries](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Different-language-dictionaries.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  PaLM 2 will expand the multilingual capabilities of Bard AI, making it perform well with multilingual tasks, as it is being trained with diverse texts from over 100 languages.
 
@@ -52,10 +52,10 @@ thumbnail: https://thmb.techidaily.com/5b0ce9c020094ad31bdc87530c31e032109184ed9
 ![thinking man sitting on chair](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/thinking-man-sitting-on-chair.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [Large language models](https://www.makeuseof.com/what-are-large-langauge-models-how-do-they-work/) emphasize language, which is why computing mathematical questions and queries can be challenging. They need to use third-party plugins to circumvent this challenge.
@@ -71,22 +71,15 @@ thumbnail: https://thmb.techidaily.com/5b0ce9c020094ad31bdc87530c31e032109184ed9
  According to[Google](https://blog.google/technology/health/ai-llm-medpalm-research-thecheckup/) , Med-PaLM 2 can provide answers to medical exam problems at the expert level of a doctor, with an accuracy level of 85%. As of the time of writing, Google is opening up Med-PaLM 2 to a closed group of Google Cloud customers for testing and feedback.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5\. Sec-PaLM 2
 
 ![a padlock on a computer keyboard](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/computer-and-web-security-lock.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Besides Med-PaLM 2, there's Sec-PaLM 2, dedicated to security applications. This AI tool is designed to detect security threats.
 
@@ -94,16 +87,16 @@ thumbnail: https://thmb.techidaily.com/5b0ce9c020094ad31bdc87530c31e032109184ed9
 
  With this, it can understand and generate security-related text and code in different languages and formats.
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 6\. Third-Party Extension Support
 
 ![Adobe apps on a MacBook Pro](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/adobe-apps-on-a-macbook-pro.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  PaLM 2 will bring third-party extensions to Bard, connecting Google with third-party brands like Adobe, Spotify, Khan Academy, and Uber Eats. For example, with Adobe integration, Bard can access Firefly, Adobe's image-generating tool. This will help you export images you generate into Adobe Express.
 
@@ -116,6 +109,13 @@ thumbnail: https://thmb.techidaily.com/5b0ce9c020094ad31bdc87530c31e032109184ed9
  Another key area the company plans to upgrade Bard with PaLM 2 is the "Workspace AI collaborator." PaLM 2 will feature on the company's full product range—in Cloud, Colab, Meet, Docs, Maps, Sheets, and others.
 
  The process will become even more seamless as Google promises upgrades for exporting data. You can write codes with Bard and export them into Replit or Google Colab.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## PaLM 2 WIll Revolutionize Google Bard
 
@@ -138,24 +138,24 @@ thumbnail: https://thmb.techidaily.com/5b0ce9c020094ad31bdc87530c31e032109184ed9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-digital-domination-diaries/"><u>[New] 2024 Approved Digital Domination Diaries</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ow-to-rediscover-the-past-watching-youtubes-lost-footage-for-2024/"><u>[New] How to Rediscover the Past Watching Youtube's Lost Footage for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-mastering-creative-content-for-fb-video-advertising/"><u>[New] Mastering Creative Content for Fb Video Advertising</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/he-ultimate-strategy-for-elevating-your-video-visibility/"><u>[New] The Ultimate Strategy for Elevating Your Video Visibility</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-from-basics-to-blockbusters-building-an-audience-on-gaming-channels-for-2024/"><u>[Updated] From Basics to Blockbusters Building an Audience on Gaming Channels for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-angled-artistry-a-guide-for-social-media-users-to-spin-their-photos-on-the-fly/"><u>[Updated] In 2024, Angled Artistry A Guide for Social Media Users to Spin Their Photos on the Fly</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-dynamic-duo-display-youtubes-way-of-creative-splitting/"><u>[Updated] In 2024, Dynamic Duo Display YouTube’s Way of Creative Splitting</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-mr-beasts-financial-landscape/"><u>[Updated] Mr. Beast’s Financial Landscape</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-youtube-shorts-a-beginners-guide/"><u>[Updated] YouTube Shorts A Beginner's Guide</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-youtube-star-level-stabilization-tools-listed/"><u>2024 Approved YouTube Star-Level Stabilization Tools Listed</u></a></li>
-<li><a href="https://games-able.techidaily.com/bringing-books-and-battles-back-home/"><u>Bringing Books and Battles Back Home</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/enhancing-video-file-performance/"><u>Enhancing Video File Performance</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/in-2024-how-to-detect-and-remove-spyware-on-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Detect and Remove Spyware on Apple iPhone 14? | Dr.fone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-instagram-innovation-how-final-cut-x-shapes-your-tall-screen-footage/"><u>In 2024, Instagram Innovation How Final Cut X Shapes Your Tall-Screen Footage</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-seamless-time-logging-on-youtube-desktopmobile/"><u>In 2024, Seamless Time Logging on YouTube (Desktop/Mobile)</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-top-screen-recorders-reviewed-elevate-your-virtual-meeting-game/"><u>In 2024, Top Screen Recorders Reviewed Elevate Your Virtual Meeting Game</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/new-mastering-iphone-voice-recording-a-comprehensive-tutorial-for-2024/"><u>New Mastering iPhone Voice Recording A Comprehensive Tutorial for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/nsiders-guide-to-frame-by-frame-video-examination-free/"><u>The Insider's Guide to Frame-by-Frame Video Examination (Free)</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/ultimate-guide-to-the-best-free-image-overlay-tools-for-mobile/"><u>Ultimate Guide to the Best Free Image Overlay Tools for Mobile</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-enhance-visual-appeal-edit-videos-for-instagram-success/"><u>[New] 2024 Approved Enhance Visual Appeal Edit Videos for Instagram Success</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-from-raw-footage-to-cinematic-success-in-your-youtube-channel/"><u>[New] 2024 Approved From Raw Footage to Cinematic Success in Your YouTube Channel</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-avatar-genius-the-easy-guide-to-metaverse-creation/"><u>[New] Avatar Genius The Easy Guide to Metaverse Creation</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/harting-success-understanding-youtube-insights-for-2024/"><u>[New] Charting Success Understanding YouTube Insights for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-compilation-worlds-leading-youtube-mp3-downloaders/"><u>[New] In 2024, Compilation World's Leading YouTube Mp3 Downloaders</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-elevate-your-channel-hit-the-10000-view-mark-fast/"><u>[New] In 2024, Elevate Your Channel Hit the 10,000 View Mark Fast!</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/he-non-indexable-world-of-youtube-a-compreayer-guide-to-unlisted-videos-for-2024/"><u>[New] The Non-Indexable World of YouTube A Compreayer Guide to ‘Unlisted’ Videos for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-visual-vibrancy-theory-turned-practice/"><u>[New] Visual Vibrancy Theory-Turned-Practice</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-essential-tips-for-producing-high-quality-youtube-videos/"><u>[Updated] In 2024, Essential Tips for Producing High-Quality YouTube Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-exploring-t-series-youtube-profit-strategy/"><u>[Updated] In 2024, Exploring T-Series YouTube Profit Strategy</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/iuoajowlleeuuplusobqplusobiuobkeociplusacgomrmoobruwtlplusw5leeuoeeqhjog44kr44k544k44oe44kk44k65pa55rovic0g5paw44gx44ge6lplus95yqg44cb5yplusk44ge6zmk5y6744c87/"><u>「動画における最高の字幕管理: カスタマイズ方法 - 新しい追加、古い除去、必要な抽出」</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/conquer-update-errors-on-your-windows-11-system-a-comprehensive-fix-for-the-notorious-error-0x8020390541-issue/"><u>Conquer Update Errors on Your Windows 11 System: A Comprehensive Fix for the Notorious Error 0X80^20390541 Issue</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-8-ways-to-transfer-photos-from-infinix-hot-40i-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 8 Ways to Transfer Photos from Infinix Hot 40i to iPhone Easily | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-google-pixel-8-phone-without-password-by-drfone-android/"><u>In 2024, How To Unlock Google Pixel 8 Phone Without Password?</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-optimize-your-viewing-experience-on-youtube-with-speed-settings/"><u>In 2024, Optimize Your Viewing Experience on YouTube with Speed Settings</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-play-and-save-nvidias-simple-screen-recorder/"><u>In 2024, Play and Save NVIDIA's Simple Screen Recorder</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-secretive-approach-to-watching-insta-stories/"><u>In 2024, Secretive Approach to Watching Insta-Stories</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ating-youtubes-algorithm-as-a-game-streamer/"><u>Navigating YouTube's Algorithm as a Game Streamer</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/guide-to-50-creative-free-youtube-advertising-options/"><u>Your Guide to 50 Creative, Free YouTube Advertising Options</u></a></li>
 </ul></div>
 
