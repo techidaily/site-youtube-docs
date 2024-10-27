@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Illuminating Ideas  The Basics of Video Setup\""
-date: 2024-09-11T14:02:28.820Z
-updated: 2024-09-12T14:02:28.820Z
+date: 2024-10-24T16:49:56.414Z
+updated: 2024-10-26T19:01:07.429Z
 tags:
   - ai video
   - ai youtube
@@ -33,29 +33,9 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Video Lighting Basics: Three Point Lighting
 
 ![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1498635">
-					<video width="320" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
@@ -70,26 +50,13 @@ The **fill light** is less bright than the primary source of light and it is pla
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Watch Video! Top Lighting Tips for Vlogging
-
-<!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
 
@@ -118,10 +85,10 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
@@ -131,10 +98,10 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
@@ -142,6 +109,13 @@ If you are using all of the lighting options available to you and your video sti
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -162,5 +136,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-crafting-a-viral-narrative-on-social-media/"><u>[New] 2024 Approved Crafting a Viral Narrative on Social Media</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-gamers-sound-showdown-the-top-5-headset-list/"><u>[New] In 2024, Gamers' Sound Showdown The Top 5 Headset List</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-amazon-prime-and-tweet-fandom-most-appreciated-videos-2023/"><u>[Updated] 2024 Approved Amazon Prime and Tweet Fandom - Most Appreciated Videos, 2023</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-chuckle-campaign-7-ingenious-ideas-for-funny-youtube-videos/"><u>[Updated] 2024 Approved Chuckle Campaign 7 Ingenious Ideas for Funny YouTube Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-permanent-deactivation-the-ultimate-guide-to-youtube-shorts/"><u>[Updated] 2024 Approved Permanent Deactivation The Ultimate Guide to YouTube Shorts</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-elevate-your-video-rankings-with-effective-seo-tactics/"><u>[Updated] Elevate Your Video Rankings with Effective SEO Tactics</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-investigating-the-economics-of-t-series-on-youtube/"><u>[Updated] Investigating the Economics of T-Series on YouTube</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-ultimate-visual-fidelity-in-a-box-eizos-cg318-4k/"><u>2024 Approved The Ultimate Visual Fidelity in a Box – EIZO's CG318-4K</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/akers-toolkit-making-compelling-youtube-trailers/"><u>Filmmaker's Toolkit Making Compelling YouTube Trailers</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-google-pixel-8-pro-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Google Pixel 8 Pro Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/how-to-make-your-content-explode-10-tips-for-instagram-fame/"><u>How to Make Your Content Explode: 10 Tips for Instagram Fame</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-mobile-filmmaking-tips-designing-engaging-youtubes-thumbnails/"><u>In 2024, Mobile Filmmaking Tips Designing Engaging YouTubes Thumbnails</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-nailing-the-perfect-shot-expert-tips-for-android-time-lapse-videography/"><u>In 2024, Nailing the Perfect Shot Expert Tips for Android Time-Lapse Videography</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ring-chroma-key-techniques-for-professional-videos-for-2024/"><u>Mastering Chroma Key Techniques for Professional Videos for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/t-playlist-portraits-actors-and-audio-art/"><u>Pocket Playlist Portraits Actors & Audio Art</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/top-farm-games-for-social-play-with-peers/"><u>Top Farm Games for Social Play with Peers</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/troubleshooting-itunes-when-it-cant-link-to-your-iphone-due-to-a-missing-value/"><u>Troubleshooting iTunes When It Can’t Link to Your iPhone Due to a Missing Value</u></a></li>
+</ul></div>
 

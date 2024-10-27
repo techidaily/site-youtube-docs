@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Easing Into Public Speaking  10 Common Video Blogger Fears\""
-date: 2024-09-11T13:59:21.174Z
-updated: 2024-09-12T13:59:21.174Z
+date: 2024-10-24T13:36:12.745Z
+updated: 2024-10-27T06:32:47.190Z
 tags:
   - ai video
   - ai youtube
@@ -39,13 +39,6 @@ Below is a list of 10 of the most common fears people have with vlogging and way
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1. Fear of Looking Stupid Talking To Your Camera
 
 It can be nerve-racking to talk to your camera in public, especially if your vlog set-up attracts a lot of attention (Casey Neistat’s famous rig consisting of a DSLR camera with a GorillaPod tripod and a Rode shotgun mic attached to it definitely attracts more attention than just your everyday smartphone). Despite a lot of vloggers suggesting that people don’t care as much as you think they care, it still is an activity that stands out, gets noticed, and creates curiosity, which is plenty to feel nervous about.
@@ -53,6 +46,13 @@ It can be nerve-racking to talk to your camera in public, especially if your vlo
 My advice is to start with shorter conversations with your camera in public and gradually build your way up to longer ones or save all your longer talks for when you’re in a more private setting. Short conversations may include one simple sentence about where you are going. Then, in another separate recording, in a different setting with different people, you can explain why you’re going there. If you’ve never broken up your speech like this for your vlogs, you might wonder if this will make your vlogs look disjointed. But this is actually a technique (below) that can enhance your vlogs.
 
 As you continue to vlog in public more, you’ll become increasingly comfortable with it.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2. Fear of Being Judged by Others
 
@@ -65,16 +65,10 @@ You just need to be strongly grounded in your intrinsic worth and not take too s
 A lot of people fear that they aren’t interesting enough to watch. This fear stops many people from vlogging. Some people get around this self-doubt by focusing their content on something other than themselves. But people are so much more interesting than the tools and objects that they test out and review on YouTube. Even if you’re unable to secure the interest of the masses, there are bound to be a handful of people from all around the world who do find you interesting.
 
 <!-- affiliate ads begin -->
-<span id="701707">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4. Fear of Your Lifestyle Not Being Exciting Enough
@@ -84,13 +78,6 @@ When you look at the vlogs of many of the top YouTubers, their lives appear so a
 ### 5. Fear of Losing Your Authenticity
 
 When you have the ability to control what others see, you may be tempted to present yourself and your life in the most likable way to avoid disapproval and rejection. But the further away from your true self that you fabricate your story, the more inauthentic you’ll feel. Embrace disapproval and rejection and understand that, no matter how perfectly you present yourself, you just can’t avoid disapproval and rejection. It’s going to happen no matter what! So you might as well present yourself just as you are.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 6. Fear of Your Production Not Being Good Enough
 
@@ -102,6 +89,13 @@ Getting a lot of subscribers is a common end goal for many who go into vlogging.
 
 How can you know for sure that you won’t be wasting your time and effort trying? The truth is… you can’t know for sure. But dismissing all of your time and effort as a waste just because you’re not at the end yet will take away from the joy you could have with vlogging. Rather than focusing on getting big, focus on enjoying the process of vlogging.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 8. Fear of Being Distracted From the Moment
 
 Whether you’re vlogging or not, living in the present moment can already be a challenge with a smartphone. When something exhilarating happens, many of us feel compelled to pull out our phone to capture it, only to experience that fleeting moment through a small preview screen.
@@ -111,13 +105,6 @@ Vlogging appears to take that to another level, especially if you’re using com
 Well, like all hobbies, activities, and passions, vlogging does take time and you’re going to have to accept that it does. You may not know it now, but after giving vlogging a try, you may discover that you really enjoy it. And if you do, you won’t worry about missing out on life just as a painter who happens to be in the middle of his painting during a sunset wouldn’t worry about the sunset he’s missing out on.
 
 If, in the end, you realize you don’t enjoy vlogging, then at least you’re left with a documented piece of a memory that you can relive again and again, which can actually help you appreciate your past moments even more.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 9. Fear of Making Others Uncomfortable
 
@@ -135,20 +122,13 @@ In post-production, you can use some video editing software to [delete unwanted 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -170,5 +150,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-cut-to-perfection-editing-video-duration-on-youtube/"><u>[New] In 2024, Cut to Perfection Editing Video Duration on YouTube</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-cutting-edge-techniques-quickly-developing-quality-captions-for-facebook-posts/"><u>[New] In 2024, Cutting-Edge Techniques Quickly Developing Quality Captions for Facebook Posts</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-design-channels-get-free-visuals-now/"><u>[New] In 2024, Design Channels - Get Free Visuals Now</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-secure-story-spectatorship-techniques-for-desktopandroidios-devices-at-no-cost/"><u>[New] In 2024, Secure Story Spectatorship Techniques for Desktop/Android/iOS Devices (At No Cost)</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ourney-of-a-movie-maker-youtube-tutorials-and-more-for-2024/"><u>[New] Journey of a Movie Maker YouTube Tutorials & More for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-pushing-boundaries-merging-hdr-photos-with-lightroom/"><u>[New] Pushing Boundaries Merging HDR Photos with Lightroom</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-the-essential-handbook-for-iphone-time-reversal/"><u>[Updated] 2024 Approved The Essential Handbook for iPhone Time-Reversal</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-sierra-sovereign-dvd-and-media-cutting-tools-for-2024/"><u>[Updated] Sierra Sovereign Dvd & Media Cutting Tools for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-visualizing-the-most-influential-23-social-trends-for-2024/"><u>[Updated] Visualizing the Most Influential '23 Social Trends for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-precision-trimming-elevating-your-youtube-video-quality/"><u>2024 Approved Precision Trimming Elevating Your YouTube Video Quality</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/watch-dynamics-navigating-youtube-in-parallel-for-2024/"><u>Dual-Watch Dynamics Navigating YouTube in Parallel for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/economical-choice-for-superior-asmr-sound-experiencing/"><u>Economical Choice for Superior ASMR Sound Experiencing</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-android-app-not-installed-error-on-honor-play-8t-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android App Not Installed Error on Honor Play 8T Quickly? | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/o-post-youtube-videos-as-instagram-stories-for-2024/"><u>How to Post YouTube Videos as Instagram Stories for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-t-mobile-iphone-6-online-without-sim-card-by-drfone-ios/"><u>In 2024, How to Unlock T-Mobile iPhone 6 online without SIM Card?</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-movie-substitutes-that-shook-up-my-world-7-choices/"><u>In 2024, Movie Substitutes That Shook Up My World - #7 Choices</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-ultimate-chroma-spectrum-now-crystal-clear-on-4k-for-2024/"><u>The Ultimate Chroma Spectrum, Now Crystal Clear on 4K for 2024</u></a></li>
+</ul></div>
 

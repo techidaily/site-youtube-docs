@@ -1,7 +1,7 @@
 ---
 title: "\"Capturing Crisp Sound  A Guide to Superior Audio Recording\""
-date: 2024-10-17T16:28:04.395Z
-updated: 2024-10-21T18:31:45.089Z
+date: 2024-10-21T06:05:50.488Z
+updated: 2024-10-27T12:01:21.205Z
 tags:
   - ai video
   - ai youtube
@@ -54,16 +54,16 @@ Wondershare Filmora has great recording features that enable you to [record scre
 
 When you’re recording audio, you have to be more aware of the subtle sounds that drone on in your background. These sounds may include humming from machines with fans, buzzing from lights, and jingling from your pet’s collar. Observe your recording space and find ways to silence everything that you don’t want in your audio recording.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **2\. Put your mobile phone in airplane mode**
 
 Although it may be quite obvious to turn your phone’s ring tone off when you’re recording, it may not be as obvious to put your phone in airplane mode. When phones receive calls or perform searches as part of their background processes, they emit signals that can get picked up by your recording system. Avoid ruining good takes with unwanted sounds of phone signals by putting your phones in airplane mode.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **3\. Minimize echo**
 
@@ -74,10 +74,10 @@ If you are recording yourself talk or sing, make sure to set up your recording s
 Although it might not sound so loud and distracting to the naked ear, wind sounds terribly loud through a microphone recording and can cause your audio to clip (distortion of waveform due to output of sound exceeding maximum capacity or 0 dB point). This includes the “wind” that comes out of your mouth when you pronounce words starting with the letter “p.” Use pop filters, windscreens, and deadcats to block wind from reaching your microphone.
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **5\. Upgrade your microphone**
@@ -86,22 +86,15 @@ As much as you try to control all the noise in your surroundings, your greatest 
 
 Need help with deciding on a microphone to buy? Check out our recommended list of microphones.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **6\. Adjust your levels**
 
 Before pressing the record button, see how loudly your microphone picks up the sound you wish to record. Adjust your levels (sensitivity of your microphone) until the sound sits in between -6 dBs and -12dBs. This range gives the source of your sound some room to get louder without the recorded audio getting clipped. When you first listen to audio recorded within this range, it may sound very quiet. No need to worry though because you can increase the volume later in editing.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **7\. Start with a sound cue if you’re planning to do some syncing in post**
@@ -111,6 +104,13 @@ If you’re recording separate audio that you plan to sync to your video later i
 ### **8\. Get close to the sound**
 
 Unless you’re aiming to record ambient sound, bring your microphone close to the source of sound you are wanting to record. The closer your microphone is to the source of sound, the lower your sensitivity setting can be on your microphone. As a result of lowering your levels, sounds you are not meaning to record will also sound fainter.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **9\. ADR**
 
@@ -143,17 +143,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-exploring-the-top-7-voice-customization-applications-for-2024/"><u>[New] Exploring the Top 7 Voice Customization Applications for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-unleash-vintage-ps3-adventures-on-pc-with-leading-tools/"><u>[New] In 2024, Unleash Vintage PS3 Adventures on PC with Leading Tools</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-break-free-from-youtube-top-5-innovative-video-editing-tools-for-2024/"><u>[Updated] Break Free From Youtube Top 5 Innovative Video Editing Tools for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-creating-compelling-call-to-actions-utilizing-three-critical-copy-techniques-for-2024/"><u>[Updated] Creating Compelling Call-To-Actions Utilizing Three Critical Copy Techniques for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-hot-ticket-video-countdown-of-the-hour/"><u>[Updated] In 2024, Hot Ticket Video Countdown of the Hour</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-5-ways-to-track-sony-xperia-5-v-without-app-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Ways to Track Sony Xperia 5 V without App | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-expert-insights-for-youtube-end-credits-top-makers-advice/"><u>In 2024, Expert Insights for YouTube End Credits - Top Makers' Advice</u></a></li>
-<li><a href="https://fox-useful.techidaily.com/lichtkostens-beheer-creeren-van-usb-inhoud-over-schermen-met-gemak-en-effenziekte-ontsporing/"><u>Lichtkostens Beheer: Creëren Van USB Inhoud Over Schermen Met Gemak En Effenziekte Ontsporing!</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/new-in-2024-soundtracking-fear-ranking-websites-specializing-in-scary-sounds-and-effects/"><u>New In 2024, Soundtracking Fear Ranking Websites Specializing in Scary Sounds and Effects</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/quick-and-simple-tips-for-securing-an-apple-store-appointment-online/"><u>Quick and Simple Tips for Securing an Apple Store Appointment Online</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/teletraitement-assistance-et-services-de-formation-pour-lutilisation-du-winx-dvd-ripper-et-des-logiciels-convertisseurs-videos/"><u>Télétraitement Assistance Et Services De Formation Pour L'utilisation Du WinX DVD Ripper Et Des Logiciels Convertisseurs Vidéos</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ey-steps-to-composing-engaging-youtube-video-plans/"><u>The Key Steps to Composing Engaging YouTube Video Plans</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-master-the-art-of-captivating-audiences-in-tiktok-unpack-videos/"><u>[New] Master the Art of Captivating Audiences in TikTok Unpack Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/avigating-the-waters-of-youtube-broadcasting-via-google-meet-for-2024/"><u>[New] Navigating the Waters of Youtube Broadcasting via Google Meet for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-instagram-savings-direct-link-and-alternative-extraction/"><u>[Updated] 2024 Approved Instagram Savings Direct Link & Alternative Extraction</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-broadview-networks-navigating-mcn-choices/"><u>[Updated] In 2024, Broadview Networks Navigating MCN Choices</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-navigating-filmoras-fcc-initiative-a-guide/"><u>[Updated] Navigating Filmora's FCC Initiative A Guide</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unleash-your-inner-shutterbug-on-android/"><u>[Updated] Unleash Your Inner Shutterbug on Android</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-i-transferred-messages-from-oppo-a56s-5g-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How I Transferred Messages from Oppo A56s 5G to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-realme-gt-5-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Realme GT 5 | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ative-templates-to-amplify-yt-decks/"><u>Innovative Templates to Amplify YT Decks</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-oppo-reno-11f-5g-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Oppo Reno 11F 5G? | Dr.fone</u></a></li>
+<li><a href="https://win-special.techidaily.com/wiederherstellung-von-verlorenen-oder-geloschten-dateien-auf-ihrem-pc/"><u>Wiederherstellung Von Verlorenen Oder Gelöschten Dateien Auf Ihrem PC</u></a></li>
 </ul></div>
 

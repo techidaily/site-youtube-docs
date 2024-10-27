@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Learning to Let Go of Hurtful Comments"
-date: 2024-09-11T14:01:21.592Z
-updated: 2024-09-12T14:01:21.592Z
+date: 2024-10-20T15:28:25.553Z
+updated: 2024-10-27T13:57:59.989Z
 tags:
   - ai video
   - ai youtube
@@ -25,13 +25,6 @@ thumbnail: https://thmb.techidaily.com/95788679327077f3bf6744c4870d74096e3663b00
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123473/16836" target="_top" id="2123473">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123473" border="0" alt="https://techidaily.com" width="254" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123473/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -61,19 +54,6 @@ thumbnail: https://thmb.techidaily.com/95788679327077f3bf6744c4870d74096e3663b00
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1975658">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -93,5 +73,30 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/harting-a-path-to-success-exploring-15-top-youtube-beginnings-for-2024/"><u>[New] Charting a Path to Success Exploring 15 Top YouTube Beginnings for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/lean-soundscape-youtube-audio-enhancement-guide-for-2024/"><u>[New] Clean Soundscape YouTube Audio Enhancement Guide for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-easy-steps-how-to-master-the-best-of-9-free-youtube-logomakers/"><u>[New] In 2024, Easy Steps How to Master the Best of 9 Free YouTube Logomakers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/aunchpad-equipment-the-beginners-checklist-for-2024/"><u>[New] Launchpad Equipment The Beginner's Checklist for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-samsung-camera-toolkit-review-2023-edition/"><u>[Updated] In 2024, Samsung Camera Toolkit Review – 2023 Edition</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-shot-securement-keeping-cameras-still-on-arms-only/"><u>[Updated] In 2024, Shot Securement Keeping Cameras Still on Arms Only</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-viral-flair-identifying-powerful-tags-for-youtube-short-success/"><u>[Updated] Viral Flair Identifying Powerful Tags for YouTube Short Success</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-find-your-photo-oasis-a-guide-to-pexels/"><u>2024 Approved Find Your Photo Oasis A Guide to Pexels</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/inners-guide-to-elevating-auditory-experiences-on-youtube-for-2024/"><u>A Beginner's Guide to Elevating Auditory Experiences on YouTube for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/adobe-photoshop-crashes-eliminate-the-scratch-disk-full-message-effectively/"><u>Adobe Photoshop Crashes? Eliminate the 'Scratch Disk Full' Message Effectively</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/1723002891938-beat-the-leaf-challenge-in-apex-legends-expert-solutions/"><u>Beat the 'Leaf' Challenge in Apex Legends - Expert Solutions!</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/eling-success-navigating-the-new-youtube-membership-model/"><u>Channeling Success Navigating the New YouTube Membership Model</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-reset-gmail-password-on-infinix-note-30-5g-devices-by-drfone-android/"><u>How to Reset Gmail Password on Infinix Note 30 5G Devices</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-nokia-pin-codepattern-lockpassword-by-drfone-android/"><u>How to Unlock Nokia PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-masterclass-in-free-videochats-and-collaborative-screensharing/"><u>In 2024, Masterclass in FREE Videochats & Collaborative Screensharing</u></a></li>
+<li><a href="https://fox-that.techidaily.com/overcoming-obstacles-making-your-unsupported-accessory-function-with-an-iphone/"><u>Overcoming Obstacles: Making Your Unsupported Accessory Function with an iPhone</u></a></li>
+</ul></div>
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

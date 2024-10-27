@@ -1,7 +1,7 @@
 ---
 title: "[New] Embracing Constructive Feedback, Ignoring the Rest for 2024"
-date: 2024-09-11T13:57:44.941Z
-updated: 2024-09-12T13:57:44.941Z
+date: 2024-10-23T01:45:58.639Z
+updated: 2024-10-27T11:05:10.806Z
 tags:
   - ai video
   - ai youtube
@@ -25,13 +25,6 @@ thumbnail: https://thmb.techidaily.com/07cfabd2fe9acb782e30cca8205dc0f557a2c3371
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -61,13 +54,6 @@ thumbnail: https://thmb.techidaily.com/07cfabd2fe9acb782e30cca8205dc0f557a2c3371
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -87,5 +73,27 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-social-streaming-breaking-the-virality-chain-on-twitter/"><u>[New] 2024 Approved Social Streaming Breaking the Virality Chain on Twitter</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/apture-the-essence-extracting-youtube-audio-directly/"><u>[New] Capture the Essence Extracting YouTube Audio Directly</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-essential-tips-for-twitpic-uploads/"><u>[New] In 2024, Essential Tips for Twitpic Uploads</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-vector-graphics-101-overview-of-varieties-and-tools/"><u>[New] In 2024, Vector Graphics 101 Overview of Varieties & Tools</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-7-key-tools-to-convert-youtube-videos-easily-for-2024/"><u>[Updated] 7 Key Tools to Convert YouTube Videos Easily for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-facebooks-novelty-the-leading-five-new-features-unraveled-for-2024/"><u>[Updated] Facebook's Novelty The Leading Five New Features Unraveled for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-from-raw-to-refined-tailoring-youtube-videos-with-premiere-pro/"><u>[Updated] From Raw to Refined Tailoring YouTube Videos with Premiere Pro</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-mastering-the-art-of-discovering-elusive-youtube-videos/"><u>[Updated] In 2024, Mastering the Art of Discovering Elusive YouTube Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/out-the-best-8-youtube-engagement-tools-for-2024/"><u>Find Out The Best 8 Youtube Engagement Tools for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-your-camera-driver-ready-guided-steps-for-windows-users-11-10-8-7/"><u>Get Your Camera Driver Ready: Guided Steps for Windows Users (11, 10, 8, 7)</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-skyrocketing-popularity-youtube-visibility-techniques/"><u>In 2024, Skyrocketing Popularity YouTube Visibility Techniques</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/streamlining-win11-external-drive-access/"><u>Streamlining Win11 External Drive Access</u></a></li>
+<li><a href="https://fox-tls.techidaily.com/1728486677077-windows-10/"><u>Windows 10下的三星数据恢复解决方案及其无价格竞品</u></a></li>
+</ul></div>
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

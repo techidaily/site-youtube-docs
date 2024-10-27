@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Crafting Visuals  The Science of YouTube Banners & Thumbnails\""
-date: 2024-09-11T14:01:33.417Z
-updated: 2024-09-12T14:01:33.417Z
+date: 2024-10-20T17:33:07.659Z
+updated: 2024-10-27T07:40:57.674Z
 tags:
   - ai video
   - ai youtube
@@ -25,19 +25,6 @@ thumbnail: https://thmb.techidaily.com/5c068034f0080166994d164493cb808318b6f6a0f
  Mar 27, 2024• Proven solutions
 
 The art on your [YouTube channel](https://tools.techidaily.com/wondershare/filmora/download/) – banners, thumbnails, icons, and watermarks – will help to determine how viewers feel about your vlog. If your art does not look like it all goes together then people will get a sloppy, amateurish, impression of your channel. However, if your different pieces of channel art all seem to complement each other and match the tone and theme of your channel then it will help viewers to have a pleasant browsing experience. They will get the impression that you take your YouTube channel seriously and that they can trust you as a source of information, comedy, or general entertainment.
-
-<!-- affiliate ads begin -->
-<span id="1983582">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Make YouTube Banners and Thumbnails
 
@@ -78,40 +65,13 @@ There are sites online that will allow you to edit images and use them in templa
 
 ![banner n thumb Canva](https://images.wondershare.com/filmora/article-images/banner-n-thumb-Canva.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Canva** has templates you can use to create YouTube banners, as well as a variety of stock images you can use in combination with your own when creating channel art. It is free to edit images on Canva, but they do have some premium features which cost $1 each to access. This service has both a desktop version and an iPad app.
 
 ![banner n thumb PicMonkey](https://images.wondershare.com/filmora/article-images/banner-n-thumb-PicMonkey.JPG)
 
-<!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **PicMonkey** lets you import images from your computer or social media accounts, edit them, and use them in templates for YouTube banners or other kinds of social media graphics. PicMonkey is free to use, but you can only access their more advanced editing tools if you buy a paid subscription. Monthly subscriptions are $4.99 per month, and yearly subscriptions are $2.75 per month.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -132,5 +92,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/umpstart-your-channelstopwatch-seeking-viewers-with-these-youtube-seo-essentials/"><u>[New] Jumpstart Your Channel’stopwatch-Seeking Viewers with These YouTube SEO Essentials.</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/he-entrepreneurs-guide-to-mobility-launching-channels-with-minimal-hassle/"><u>[New] The Entrepreneur's Guide to Mobility Launching Channels with Minimal Hassle</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-online-gaming-earnings-in-the-future/"><u>[Updated] In 2024, Online Gaming Earnings in the Future</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-unseen-content-exposure-a-video-sharing-roadmap-for-2024/"><u>[Updated] Unseen Content Exposure A Video-Sharing Roadmap for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-closer-look-approach-to-team-collaboration/"><u>2024 Approved The Closer Look Approach to Team Collaboration</u></a></li>
+<li><a href="https://program-issues.techidaily.com/defeating-darkness-top-strategies-to-fix-call-of-duty-warzones-black-screen-problem-tips-and-tricks/"><u>Defeating Darkness: Top Strategies to Fix Call of Duty Warzone's Black Screen Problem (Tips & Tricks)</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/for-beginners-the-top-8-versatile-cameras-under-400-for-2024/"><u>For Beginners The Top 8 Versatile Cameras Under $400 for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ate-internet-income-low-cost-youtube-channel-buys-for-2024/"><u>Initiate Internet Income Low-Cost YouTube Channel Buys for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/scriptwriting-a-comprerancial-guide-to-slug-lines/"><u>Scriptwriting A Comprerancial Guide to Slug Lines</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/mov-to-mp4-movavi/"><u>오늘날 코스터를 위한 격시 무료 MOV to MP4 전환 - MOVAVI</u></a></li>
+</ul></div>
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "Shedding Light on Videography Excellence"
-date: 2024-10-14T18:26:38.417Z
-updated: 2024-10-21T17:07:05.121Z
+date: 2024-10-24T10:27:50.220Z
+updated: 2024-10-26T17:45:50.497Z
 tags:
   - ai video
   - ai youtube
@@ -50,19 +50,19 @@ The **fill light** is less bright than the primary source of light and it is pla
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Watch Video! Top Lighting Tips for Vlogging
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
@@ -91,18 +91,24 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
+<!-- affiliate ads begin -->
+<span id="1983545">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
 
 If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
 
@@ -111,10 +117,10 @@ If you are stuck shooting in **low light conditions** it is best to use a lens w
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -138,16 +144,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-smart-spending-strategies-on-youtube-vids/"><u>[Updated] 2024 Approved Smart Spending Strategies on YouTube Vids</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-creating-an-athletic-channel-on-apple-hardware/"><u>[Updated] Creating an Athletic Channel on Apple Hardware</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-cure-for-disconnected-channels-in-obs/"><u>[Updated] In 2024, Cure for Disconnected Channels in OBS</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-maximize-youtube-income-insights-and-techniques/"><u>[Updated] In 2024, Maximize Youtube Income Insights and Techniques</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-techniques-to-brighten-up-your-content-creation-spaces/"><u>[Updated] Techniques to Brighten Up Your Content Creation Spaces</u></a></li>
-<li><a href="https://howto.techidaily.com/cellular-network-not-available-for-voice-calls-on-vivo-y100-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Cellular Network Not Available for Voice Calls On Vivo Y100 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/elevate-your-videography-mastering-the-dimensions-for-2024/"><u>Elevate Your Videography Mastering the Dimensions for 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/fixing-slow-connections-by-flushing-dns-in-macos/"><u>Fixing Slow Connections by Flushing DNS in macOS</u></a></li>
-<li><a href="https://fake-location.techidaily.com/is-pgsharp-legal-when-you-are-playing-pokemon-on-poco-x6-pro-drfone-by-drfone-virtual-android/"><u>Is pgsharp legal when you are playing pokemon On Poco X6 Pro? | Dr.fone</u></a></li>
-<li><a href="https://ai-video-translation.techidaily.com/new-revealing-translation-methods-netflix-subtitle-software-comprehensive-guide-for-2024/"><u>New Revealing Translation Methods Netflix Subtitle Software Comprehensive Guide for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/unveiling-customizable-touches-for-your-windows-via-ms-store-themes/"><u>Unveiling Customizable Touches for Your Windows via MS Store Themes</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-prime-tools-turning-youtube-videos-into-text/"><u>[Updated] 2024 Approved Prime Tools Turning YouTube Videos Into Text</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-finding-the-funny-10-best-meme-blueprints-unveiled/"><u>[Updated] Finding the Funny #10 Best Meme Blueprints Unveiled</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-boost-your-igtv-presence-with-effective-title-and-summary-tweaks/"><u>[Updated] In 2024, Boost Your IGTV Presence with Effective Title & Summary Tweaks</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-elevate-engagement-youtube-insights-for-timing/"><u>[Updated] In 2024, Elevate Engagement Youtube Insights for Timing</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/beginners-blueprint-learning-how-to-navigate-pokemon-go-successfully/"><u>Beginner's Blueprint: Learning How to Navigate Pokémon Go Successfully</u></a></li>
+<li><a href="https://media-tips.techidaily.com/brace-yourself-prices-on-the-rise-for-premium-products/"><u>Brace Yourself – Prices on the Rise for Premium Products</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/core-skills-in-video-and-film-creation/"><u>Core Skills in Video and Film Creation</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-optimized-approach-to-delete-unwanted-youtube-posts/"><u>In 2024, Optimized Approach to Delete Unwanted YouTube Posts</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/splitcam-breakdown-best-or-not-amongst-recorders-for-2024/"><u>SplitCam Breakdown Best or Not Amongst Recorders for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/top-18-video-editing-tools-for-gaming-footage-simplify-and-enhance-your-gameplay-clips/"><u>Top 18 Video Editing Tools for Gaming Footage: Simplify and Enhance Your Gameplay Clips</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/d-the-clock-how-to-reverse-videos-online/"><u>Unwind the Clock How to Reverse Videos Online</u></a></li>
 </ul></div>
 

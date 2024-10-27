@@ -1,7 +1,7 @@
 ---
 title: "\"Unleashing YouTube Potential  The Best Shortcuts to Higher Views\""
-date: 2024-09-11T14:00:52.264Z
-updated: 2024-09-12T14:00:52.264Z
+date: 2024-10-20T15:08:13.244Z
+updated: 2024-10-26T23:15:58.374Z
 tags:
   - ai video
   - ai youtube
@@ -37,13 +37,6 @@ With that said, the following two-columned tables give you detailed information 
 
 To make things convenient for you, the shortcut keys are placed under their corresponding categories, where each category is in the form of a two-columned table.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Category 1: YouTube Playback Hotkeys
 
 While watching a YouTube video, there might be instances when you want to pause and resume the playback. This category teaches how this can be done using the keyboard:
@@ -52,6 +45,19 @@ While watching a YouTube video, there might be instances when you want to pause 
 | ----------------- | -------------------------------------- |
 | 'K'               | Play and Pause (Works as a toggle key) |
 | 'Spacebar'        | Play and Pause (Works as a toggle key) |
+
+<!-- affiliate ads begin -->
+<span id="1702748">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Category 2: Scrolling YouTube Videos Back and Forth
 
@@ -80,13 +86,6 @@ This category contains information on increasing or decreasing the playback spee
 | ---------------------- | ----------------------- |
 | 'SHIFT' + '.' (Period) | Increase playback speed |
 | 'SHIFT' + ',' (Comma)  | Decrease playback speed |
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115949/19272" target="_top" id="2115949">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115949" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115949/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Category 4: Managing the Captions
 
@@ -124,13 +123,6 @@ Double press F/T/I on the keyboard will exit the full-screen/theater model/indep
 
 If you are watching video on YouTube mobile app, you can swipe up the video slightly to enter the full screen mode, and swipe down the video slightly to exit the full screen.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Category 7: Viewing 360o/VR Videos
 
 In this category, the navigation and management of shortcut keys for 360o and Virtual Reality (VR) view are discussed:
@@ -144,10 +136,10 @@ In this category, the navigation and management of shortcut keys for 360o and Vi
 | '+' (Plus Key on Keyboard)  | Increase font size                                    |
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528681/16446" target="_top" id="1528681">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528681" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528681/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Bonus: How to Get the YouTube Shortcut List with One-Click
@@ -162,13 +154,6 @@ So, when you press the Shift+? on YouTube, you will see a full list of shortcuts
 
 ![YouTube Shortcut List](https://images.wondershare.com/filmora/article-images/youtube-keyboard-shortcuts-list.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Conclusion**
 
 Watching videos on YouTube is fun, and you can enjoy the clips, movies, tutorials, etc. more if you are well-aware of the important shortcut keys. This not only helps you navigate through the videos faster but also gives you relief from the additional efforts that you would otherwise have to make while grabbing the mouse, and then looking for and using the correct option.
@@ -178,13 +163,20 @@ As one of the most popular video editing software among YouTubers, Filmora provi
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -205,5 +197,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-the-prime-list-cutting-through-the-noise-to-find-top-9-free-tools/"><u>[New] In 2024, The Prime List Cutting Through the Noise to Find Top 9 FREE Tools</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-ultimate-guide-to-finding-free-video-subtitles/"><u>[New] In 2024, Ultimate Guide to Finding Free Video Subtitles</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/he-simple-steps-for-merging-youtube-media-files-for-2024/"><u>[New] The Simple Steps for Merging YouTube Media Files for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-boosting-your-windows-photos-feed-incorporating-audio-elements/"><u>[Updated] Boosting Your Windows Photos Feed Incorporating Audio Elements</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-cultivate-creativity-best-video-concepts-for-viewers-for-2024/"><u>[Updated] Cultivate Creativity Best Video Concepts for Viewers for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-boosting-engagement-with-effective-youtube-banners-and-thumbnails/"><u>[Updated] In 2024, Boosting Engagement with Effective YouTube Banners & Thumbnails</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-leveraging-virtual-collaboration-with-zoom-and-win11-tools/"><u>[Updated] Leveraging Virtual Collaboration with Zoom & Win11 Tools</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ellar-tools-that-amplify-your-videos-youtube-presence-for-2024/"><u>10 Stellar Tools That Amplify Your Video's YouTube Presence for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-straightforward-methods-for-recording-iphone-display/"><u>2024 Approved Straightforward Methods for Recording iPhone Display</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-understanding-the-economics-youtubes-new-model-for-content-creators-and-viewers/"><u>2024 Approved Understanding the Economics YouTube's New Model for Content Creators and Viewers</u></a></li>
+<li><a href="https://change-location.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-xiaomi-civi-3-disney-100th-anniversary-edition-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Xiaomi Civi 3 Disney 100th Anniversary Edition | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/immediate-enhancement-of-television-display-top-5-configuration-tweaks/"><u>Immediate Enhancement of Television Display: Top 5 Configuration Tweaks</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-nokia-by-drfone-android/"><u>In 2024, AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Nokia</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-how-to-kick-start-your-digital-broadcast-today/"><u>In 2024, How to Kick-Start Your Digital Broadcast Today</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/nubia-z50-ultra-not-receiving-texts-10-hassle-free-solutions-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Nubia Z50 Ultra Not Receiving Texts? 10 Hassle-Free Solutions Here | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/revitalize-your-vintage-pc-top-5-linux-os-choices/"><u>Revitalize Your Vintage PC: Top 5 Linux OS Choices</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ne-your-videos-reach-writing-captivating-youtube-descs-using-templates-for-2024/"><u>Skyline Your Video's Reach Writing Captivating Youtube Descs Using Templates for 2024</u></a></li>
+<li><a href="https://app-tips.techidaily.com/step-by-step-guide-sharing-images-from-iphone-to-windows-desktop/"><u>Step-by-Step Guide: Sharing Images From iPhone to Windows Desktop</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/apid-reverse-how-to-flip-your-stream-sides/"><u>The Rapid Reverse How to Flip Your Stream-Sides</u></a></li>
+</ul></div>
 

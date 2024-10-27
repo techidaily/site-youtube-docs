@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Perfect Thumbnail Size for Click-Through Rates for 2024\""
-date: 2024-09-11T13:59:50.378Z
-updated: 2024-09-12T13:59:50.378Z
+date: 2024-10-23T19:23:41.273Z
+updated: 2024-10-26T23:59:10.102Z
 tags:
   - ai video
   - ai youtube
@@ -37,19 +37,6 @@ Making better YouTube thumbnails will help you get more views, and knowing the b
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<span id="1993651">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **1\. What's the ideal YouTube thumbnail Size and Dimension?**
 
 An essential thing that every YouTube video developer needs to know is about the selection of the right side of the thumbnail for any video. As per the guidelines circulated by Google itself, the most appropriate size for the thumbnail image is 1280x720 pixels, where the recommended minimal pixel width is 640 pixels. Generally, the 16:9 ratio is considered as an ideal choice for Most of YouTube previews and players.
@@ -61,16 +48,10 @@ Here is one interesting thing that you need to know; the thumbnail of videos app
 [ How to Download YouTube Thumbnail in 3 Ways \[Online/Win/Mac\] >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **2\. Tips for Perfect Thumbnails**
@@ -96,10 +77,10 @@ Window users are advised to access Windows Key with Print Screen option to get t
 Once you are ready with your video specific still image, then simply get it uploaded on YouTube using the edit video page.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3\. Making Better Thumbnails for YouTube
@@ -133,19 +114,19 @@ If you want to find a video editing solution that empowers your imagination and 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
+  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -167,5 +148,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/he-dichotomy-of-digital-minis-youtubes-efficiency-versus-tiktoks-trendiness-for-2024/"><u>[New] The Dichotomy of Digital Minis YouTube's Efficiency Versus TikTok's Trendiness for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/inning-the-game-with-a-strong-video-game-youtube-presence-for-2024/"><u>[New] Winning the Game with a Strong Video Game Youtube Presence for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-mirrorless-vs-dslr-video-mastery-in-focus/"><u>[Updated] 2024 Approved Mirrorless vs DSLR Video Mastery in Focus</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-pinpointing-factors-that-influence-igtv-video-performance/"><u>[Updated] In 2024, Pinpointing Factors that Influence IGTV Video Performance</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-transforming-your-tiktok-profile-altering-account-numbers/"><u>2024 Approved Transforming Your TikTok Profile Altering Account Numbers</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-motorola-moto-e13-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Motorola Moto E13? | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-mastering-iphones-vr-video-viewing/"><u>In 2024, Mastering iPhone's VR Video Viewing</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-optimizing-video-focus-in-virtual-collaboration-spaces-google-meet-edition/"><u>In 2024, Optimizing Video Focus in Virtual Collaboration Spaces Google Meet Edition</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-xiaomi-redmi-note-13-5g-phones-by-drfone-android/"><u>In 2024, Top 11 Free Apps to Check IMEI on Xiaomi Redmi Note 13 5G Phones</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-unlocking-elusive-footage-the-systematic-guide-to-youtube-secrets/"><u>In 2024, Unlocking Elusive Footage The Systematic Guide to YouTube Secrets</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ating-content-approaches-to-stand-out-in-shorts-arenas/"><u>Innovating Content Approaches to Stand Out in Shorts Arenas</u></a></li>
+<li><a href="https://video-capture.techidaily.com/key-features-free-vs-pro-version-of-youtube-conversion-tools-for-ios-devices/"><u>Key Features: Free Vs. Pro Version of YouTube Conversion Tools for iOS Devices</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ring-vlog-production-top-8-mirrorless-cameras-ranked-for-2024/"><u>Mastering Vlog Production Top 8 Mirrorless Cameras Ranked for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ltimate-beginners-guide-to-creating-engaging-short-form-videos-for-2024/"><u>The Ultimate Beginner's Guide to Creating Engaging Short-Form Videos for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unlock-video-potential-leading-tools-turning-youtubes-to-avis-for-2024/"><u>Unlock Video Potential Leading Tools Turning YouTubes to Avis for 2024</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/unveiling-the-latest-in-technology-with-toms-hardware-guide/"><u>Unveiling the Latest in Technology with Tom's Hardware Guide</u></a></li>
+</ul></div>
 

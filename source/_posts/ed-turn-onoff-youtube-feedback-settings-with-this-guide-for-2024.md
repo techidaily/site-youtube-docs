@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Turn On/Off YouTube Feedback Settings With This Guide for 2024"
-date: 2024-10-18T19:17:40.392Z
-updated: 2024-10-21T18:13:15.979Z
+date: 2024-10-22T13:06:06.437Z
+updated: 2024-10-27T04:53:13.644Z
 tags:
   - ai video
   - ai youtube
@@ -96,10 +96,10 @@ Selecting this option holds all the comments from all the users, and waits for y
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Turn on or Turn off Comments for Specific Videos
@@ -123,20 +123,13 @@ From under the **Audience** section in the right window of the **Video details**
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
 
@@ -155,10 +148,10 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
@@ -174,6 +167,13 @@ That depends on the nature of the comments. For instance, if you modify the sett
 It is easy to understand **how to turn on comments on YouTube**. The best thing is, the comments are enabled by default, and if you don’t need them, you can simply disable them by configuring the videos or the entire channel as ‘Made for kids’. If the comments on any video were enabled previously, and are disabled later on, the existing comments automatically disappear. They reappear when the comments on the video are reenabled.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -196,18 +196,22 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/verlasting-deactivation-tactics-against-youtubes-sneaky-snack/"><u>[New] Everlasting Deactivation Tactics Against YouTube's Sneaky Snack</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-selecting-the-best-free-melodies-for-your-youtube-video/"><u>[New] In 2024, Selecting the Best Free Melodies for Your YouTube Video</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/nlock-the-youtube-algorithm-maximizing-viewership-with-strategic-featured-listings/"><u>[New] Unlock the Youtube Algorithm Maximizing Viewership with Strategic Featured Listings</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-the-instagram-photo-tap-guide/"><u>[Updated] In 2024, The Instagram Photo-Tap Guide</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-navigating-android-latest-tips-for-immersive-360-content/"><u>[Updated] Navigating Android Latest Tips for Immersive 360 Content</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-hear-the-difference-on-chrome-the-ultimate-guide-to-voice-alteration-apps/"><u>2024 Approved Hear the Difference on Chrome The Ultimate Guide to Voice Alteration Apps</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/1715859936644-2024-approved-top-ios-psp-games-and-emulators-revealed/"><u>2024 Approved Top iOS PSP Games & Emulators Revealed!</u></a></li>
-<li><a href="https://fox-links.techidaily.com/essential-techniques-for-color-correction-in-gopro-for-2024/"><u>Essential Techniques for Color Correction in GoPro for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/free-image-haven-best-10-sites-reviewed/"><u>Free Image Haven Best 10 Sites Reviewed</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-motorola-edge-40-neo-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Motorola Edge 40 Neo? | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-movie-buffs-secret-2023-recommendations/"><u>In 2024, Movie Buffs' Secret 2023 Recommendations</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-youtube-video-animation-tools-and-techniques-for-efficient-gif-making/"><u>In 2024, YouTube Video Animation Tools and Techniques for Efficient Gif Making</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-infinix-hot-30i-phone-frp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Infinix Hot 30i Phone FRP Lock</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/mpower-your-content-advanced-techniques-in-youtube-editing-for-2024/"><u>[New] Empower Your Content Advanced Techniques in YouTube Editing for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-state-of-the-art-gametime-documentation-tools-for-2024/"><u>[New] State-of-the-Art Gametime Documentation Tools for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-free-10-best-intro-maker-apps-for-iphone-and-android/"><u>[Updated] FREE 10 Best Intro Maker Apps for iPhone and Android</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-finding-and-exploring-your-own-music-selection-zone-on-youtube/"><u>[Updated] In 2024, Finding and Exploring Your Own Music Selection Zone on Youtube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-ideal-video-intros-selecting-from-top-15-youtube-sets/"><u>[Updated] In 2024, Ideal Video Intros Selecting From Top 15 YouTube Sets</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/2-ways-to-monitor-oppo-f23-5g-activity-drfone-by-drfone-virtual-android/"><u>2 Ways to Monitor Oppo F23 5G Activity | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-thriving-thumbnails-the-20-most-recommended-youtube-fonts/"><u>2024 Approved Thriving Thumbnails The 20 Most Recommended YouTube Fonts</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ing-intriguing-youtube-intros-without-spending/"><u>Crafting Intriguing YouTube Intros Without Spending</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-do-nokia-c32-screen-sharing-drfone-by-drfone-android/"><u>How To Do Nokia C32 Screen Sharing | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-your-samsung-galaxy-a23-5g-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>How to Mirror Your Samsung Galaxy A23 5G Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-8-safe-and-effective-methods-to-unlock-your-apple-iphone-xr-without-a-passcode-drfone-by-drfone-ios/"><u>In 2024, 8 Safe and Effective Methods to Unlock Your Apple iPhone XR Without a Passcode | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-mastering-youtube-audio-uploads/"><u>In 2024, Mastering YouTube Audio Uploads</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/pinnacle-pathfinders-the-ultimate-10-game-guide-for-2024/"><u>Pinnacle Pathfinders The Ultimate 10 Game Guide for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/utionizing-channel-presence-the-secret-of-higher-subscriber-numbers/"><u>Revolutionizing Channel Presence The Secret of Higher Subscriber Numbers</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/screenshare-catcher-fb-groups-for-2024/"><u>ScreenShare Catcher - Fb Groups for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/transforming-esd-format-to-compatible-windows-isos/"><u>Transforming ESD Format to Compatible Windows ISOs</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/unravel-the-mysteries-of-efficient-story-connectivity/"><u>Unravel the Mysteries of Efficient Story Connectivity</u></a></li>
 </ul></div>
 

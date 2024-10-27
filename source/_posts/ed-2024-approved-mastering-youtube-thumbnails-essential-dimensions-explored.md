@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Mastering YouTube Thumbnails  Essential Dimensions Explored\""
-date: 2024-09-11T13:58:49.388Z
-updated: 2024-09-12T13:58:49.388Z
+date: 2024-10-20T07:09:20.407Z
+updated: 2024-10-27T07:02:54.477Z
 tags:
   - ai video
   - ai youtube
@@ -37,13 +37,6 @@ So you may be wondering what the best **youtube thumbnail size** is, and how to 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Part 1: The Ultimate Guide of Youtube Thumbnail Size**
 
 Every content creator needs to select the right youtube thumbnail size for any given video.
@@ -65,16 +58,10 @@ The maximum YouTube thumbnail size must be below 2MB. Keeping the limit in mind 
 Usually, the 16:9 ratio is deemed an ideal choice for any YouTube video aiming high view volume. As it is most widely used in YouTube players and previews.
 
 <!-- affiliate ads begin -->
-<span id="2135472">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Upload and Change a Custom YouTube Thumbnail
@@ -89,16 +76,16 @@ YouTube makes it very simple and easy for any content creator to publish custom 
 
 ![change thumbnail size](https://images.wondershare.com/filmora/article-images/upload-thumbnail-image1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * When your upload to the YouTube is completed a section will appear at the down portion of the browser screen showing **Video Thumbnails**. Here YouTube automatically creates some thumbnail images from your uploaded video and shows them here. These are the screenshots from your video, and you can select any one of them to be your thumbnail.
 
 ![set video thumbnail](https://images.wondershare.com/filmora/article-images/video-thumbnail2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * You will be able to see a button right next to the image – **Custom thumbnail**. Click on the button and you can upload a set of images of your choice as the thumbnail of your video.
 * Once done you can see the custom image just uploaded as the thumbnail of your video.
@@ -118,30 +105,17 @@ To change the thumbnail on an already uploaded video you need to follow these st
 
 ![upload thumbnail image](https://images.wondershare.com/filmora/article-images/change-thumbnail5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Now in the thumbnail section if you already haven’t uploaded a custom thumbnail, click **Custom thumbnail**.
 * Select your intended thumbnail file and click **Save**.
 
 ![best thumbnail size](https://images.wondershare.com/filmora/article-images/change-thumbnail6.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<span id="1983473">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: Q&A-- About YouTube Thumbnail Images
 
@@ -149,6 +123,13 @@ You may want to know:
 
 * [**Question 1:** **How do I make my youtube thumbnail less than 2mb?**](#question1)
 * [**Question 2:** **How can I create an attractive youtube thumbnail?**](#question2)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. How do I make my youtube thumbnail less than 2mb?
 
@@ -160,16 +141,10 @@ YouTube will not allow you to upload a custom thumbnail image if it is bigger th
 * 4\. The thumbnail picture will be reduced to Kilobytes only while maintaining the image quality
 
 <!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. How can I create an attractive youtube thumbnail?
@@ -202,13 +177,6 @@ YouTube thumbnail plays an important part for the audience's first impression on
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -228,5 +196,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/et-clipped-onto-youtube-audio-submission-made-easy-for-2024/"><u>[New] Get Clipped Onto YouTube Audio Submission Made Easy for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-budget-friendly-microphones-for-online-broadcasters/"><u>[Updated] 2024 Approved Budget-Friendly Microphones for Online Broadcasters</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-simplified-steps-for-cutting-top-sports-videos/"><u>[Updated] 2024 Approved Simplified Steps for Cutting Top Sports Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-unearthing-popular-user-generated-speeches/"><u>[Updated] 2024 Approved Unearthing Popular User-Generated Speeches</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-clarity-cluster-essential-gadgets-for-pixels/"><u>[Updated] In 2024, Clarity Cluster Essential Gadgets for Pixels</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-streamlining-multiple-youtube-videos-into-one/"><u>[Updated] In 2024, Streamlining Multiple YouTube Videos Into One</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/1715860749577-2024-approved-expertly-capture-your-macs-display-with-no-cost/"><u>2024 Approved Expertly Capture Your Mac's Display with No Cost!</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-youtube-collaboration-for-effective-content-delivery/"><u>2024 Approved YouTube Collaboration for Effective Content Delivery</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/5-key-safety-measures-for-children-when-engaging-with-chatgpt-online/"><u>5 Key Safety Measures for Children When Engaging With ChatGPT Online</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/how-to-record-videos-on-windows-11-comprehensive-guide-to-built-in-tools/"><u>How to Record Videos on Windows 11 - Comprehensive Guide to Built-In Tools</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-advanced-visual-treatment-adding-effects-on-videos-pcmobile/"><u>In 2024, Advanced Visual Treatment Adding Effects on Videos (PC/Mobile)</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-best-ways-on-how-to-unlockbypassswiperemove-vivo-y36-fingerprint-lock-by-drfone-android/"><u>In 2024, Best Ways on How to Unlock/Bypass/Swipe/Remove Vivo Y36 Fingerprint Lock</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-elevate-your-channels-image-for-boosted-youtube-subscriptions/"><u>In 2024, Elevate Your Channels' Image for Boosted YouTube Subscriptions</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-vivo-s17e-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Vivo S17e Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-troubleshooting-iphone-camera-failing-to-autofocus/"><u>In 2024, Troubleshooting iPhone Camera Failing to Autofocus</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-unleashing-video-potential-efficiently-add-subtitlescc-to-your-youtube-videos/"><u>In 2024, Unleashing Video Potential Efficiently Add Subtitles/CC to Your YouTube Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-viral-vortex-a-guide-to-powerful-social-media-tags/"><u>In 2024, Viral Vortex A Guide to Powerful Social Media Tags</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/leading-innovative-smart-scale-models-for-health-tracking-2024-edition/"><u>Leading Innovative Smart Scale Models for Health Tracking - 2024 Edition</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/what-to-do-when-your-android-device-wont-get-any-texts-expert-advice/"><u>What To Do When Your Android Device Won't Get Any Texts: Expert Advice</u></a></li>
+</ul></div>
 

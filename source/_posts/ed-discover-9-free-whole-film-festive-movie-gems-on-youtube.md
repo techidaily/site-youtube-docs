@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Discover 9 Free, Whole-Film Festive Movie Gems on Youtube\""
-date: 2024-10-16T18:46:46.267Z
-updated: 2024-10-21T18:15:00.548Z
+date: 2024-10-24T10:18:02.560Z
+updated: 2024-10-27T08:15:26.307Z
 tags:
   - ai video
   - ai youtube
@@ -39,27 +39,20 @@ The Nutcracker is a holiday classic that many people seek out every year on the 
 
 A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and starring Lee Majors and Dolly Parton. The full musical fairy tale can be found online on YouTube and it's about a country singer who is trying to spend a quiet Christmas holiday at home. She suddenly becomes involved with a mysterious mountain man, an evil witch and is forced to protect seven orphans over the holidays. This film can be found at:
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044582/7443" target="_top" id="2044582">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044582" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044582/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3. Ernest saves Christmas
 
 This film from 1989 features Jim Varney and his most famous character Ernest in a holiday Christmas movie that is an instant classic. This film is very funny and a favorite amongst some of the Ernest films for many. This Christmas movie from 1989 can be found at:
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4. A Christmas story
 
 A Christmas story has long been one of the favorite Christmas movies for many families. In this film from 1983 we travel back in time to a traditional 1940s Christmas. In this film we follow the nine-year-old Ralphie who is looking for the famous red Ryder BB gun for Christmas and will stop at absolutely nothing to get it. A Christmas story can be found at:
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 5. Richie Rich's Christmas wish
 
@@ -69,20 +62,27 @@ In this film from 1998 we hear the story of the richest kid in the world on Chri
 
 This film stars the hulk Mark Ruffalo in one of his earlier roles as a store employee who catches a con woman trying to steal from a department store on Christmas. His character agrees to be responsible for the con woman and her niece over the holidays to prevent them from staying with social services. A romance develops! This 1997 film can be found at:
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 7. Santa Who?
 
 Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday classic Santa suffers a severe case of amnesia on Christmas Eve and needs to recover for Christmas day in order to make it through and deliver presents to all of the good children of the world. See if Santa gets his Christmas memories back by watching Santa Who here:
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 8. A Christmas Carol
 
 In this film from 1984 George C Scott brings to life the role of Ebenezer Scrooge from the perspective of the Charles Dickens novel. This is heavily been regarded as one of the most accurate versions to the Charles Dickens story. Although it may not have all of the special effects of some of the other versions of a Christmas carol this is still one of the favored versions of the story out there. You can watch this 1984 film here:
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 9. Miracle on 34th street
 
@@ -91,16 +91,10 @@ In this recreation of the original film from 1947 this shortened full-length ver
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -124,14 +118,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/he-power-of-precision-crafting-effective-video-titles-for-2024/"><u>[New] The Power of Precision Crafting Effective Video Titles for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-5-dreamy-winter-scenes-as-youtube-backdrops-for-2024/"><u>[Updated] 5 Dreamy Winter Scenes as YouTube Backdrops for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-ace-your-edits-youtube-studios-time-saving-secrets-revealed/"><u>[Updated] Ace Your Edits YouTube Studio's Time-Saving Secrets Revealed</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-the-commercial-viability-of-creative-video-content/"><u>[Updated] In 2024, The Commercial Viability of Creative Video Content</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/developing-mastery-in-professional-interview-processes/"><u>Developing Mastery in Professional Interview Processes</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/editing-to-sharing-using-premiere-with-youtube/"><u>From Editing to Sharing Using Premiere with YouTube</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-reset-iphone-14-pro-max-without-losing-data-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Reset iPhone 14 Pro Max without Losing Data? | Stellar</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-after-switching-from-realme-c67-5g-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data After Switching From Realme C67 5G to Latest Samsung | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-the-ultimate-guide-to-bypassing-icloud-activation-lock-from-apple-iphone-15-plus-by-drfone-ios/"><u>In 2024, The Ultimate Guide to Bypassing iCloud Activation Lock from Apple iPhone 15 Plus</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/reakdown-of-the-top-9-free-branding-platforms-for-youtube-channels-for-2024/"><u>[New] Breakdown of the Top 9 Free Branding Platforms for YouTube Channels for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-content-creators-arena-vs-beta-studio-evolutionary-path/"><u>[New] In 2024, Content Creator's Arena Vs. Beta Studio Evolutionary Path</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-top-15-video-vaults-for-science-buffs-online/"><u>[New] In 2024, Top 15 Video Vaults for Science Buffs Online</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-mastering-whatsapp-key-tricks-and-invisible-functions/"><u>[New] Mastering WhatsApp Key Tricks & Invisible Functions</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-from-zero-to-hero-in-the-youtube-world-starting-your-channel-and-earning-money/"><u>[Updated] In 2024, From Zero to Hero in the Youtube World Starting Your Channel & Earning Money</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-the-ultimate-guide-to-downloading-youtube-media/"><u>[Updated] In 2024, The Ultimate Guide to Downloading YouTube Media</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-your-path-to-uninterrupted-mobile-experience-with-these-7-apps/"><u>[Updated] Your Path to Uninterrupted Mobile Experience with These 7 Apps</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/bypassing-google-account-with-vnrom-bypass-for-xiaomi-redmi-a2-by-drfone-android/"><u>Bypassing Google Account With vnROM Bypass For Xiaomi Redmi A2</u></a></li>
+<li><a href="https://facebook.techidaily.com/design-your-own-content-formula-with-facebooks-reel-feature/"><u>Design Your Own Content Formula with Facebook's Reel Feature</u></a></li>
+<li><a href="https://location-social.techidaily.com/does-find-my-friends-work-on-nokia-g22-drfone-by-drfone-virtual-android/"><u>Does find my friends work on Nokia G22 | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/ensuring-safe-practices-leveraging-chatgpt-effectively-in-mental-health-counseling/"><u>Ensuring Safe Practices: Leveraging ChatGPT Effectively in Mental Health Counseling</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-dose-life360-notify-me-when-someone-checks-my-location-on-tecno-spark-20-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Dose Life360 Notify Me When Someone Checks My Location On Tecno Spark 20 Pro? | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-step-up-your-podcast-game-with-expert-guidance-on-zooming-into-quality/"><u>In 2024, Step Up Your Podcast Game with Expert Guidance on Zooming Into Quality</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/simple-solutions-resolving-avi-video-audio-issues-with-clear-steps/"><u>Simple Solutions: Resolving AVI Video Audio Issues with Clear Steps</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/tutorial-to-change-realme-10t-5g-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>Tutorial to Change Realme 10T 5G IMEI without Root A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/bers-unleashed-a-guide-to-creating-memorable-music-reaction-vids/"><u>Youtubers Unleashed A Guide to Creating Memorable Music Reaction Vids</u></a></li>
 </ul></div>
 

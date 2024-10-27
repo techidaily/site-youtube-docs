@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Elite Visionaries  Video Realm\""
-date: 2024-10-17T18:58:58.357Z
-updated: 2024-10-21T16:38:12.994Z
+date: 2024-10-26T16:00:15.478Z
+updated: 2024-10-27T16:00:12.755Z
 tags:
   - ai video
   - ai youtube
@@ -64,16 +64,16 @@ _Tess takes you to some of her favorite places in Dumbo._
 
 Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997690/19272" target="_top" id="1997690">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997690" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997690/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2\. Post Cards
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3\. S’well bottle
 
@@ -87,22 +87,21 @@ To help them relax after long days at the summit, YouTube provided creators with
 
 _thinknoodles wearing his YouTube slippers._
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 5\. Pins, pins, pins
 
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983545">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 6\. Denim jacket
@@ -110,6 +109,13 @@ There were numerous custom pins available at different events at the summit. Asi
 A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
 
 _![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
 
@@ -119,14 +125,14 @@ Want to join the YouTube Creator Summit in the future? We all know that there is
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -149,18 +155,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-unlock-youtube-collaboration-a-guide-to-partnering-and-producing-together/"><u>[New] In 2024, Unlock YouTube Collaboration A Guide to Partnering and Producing Together</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/op-pick-the-most-versatile-gif-software/"><u>[New] Top Pick The Most Versatile GIF Software</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-enhance-projects-no-cost-templates-for-pp-prodigies/"><u>[Updated] Enhance Projects No-Cost Templates for PP Prodigies</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-innovative-techniques-for-captivating-ae-titles/"><u>[Updated] In 2024, Innovative Techniques for Captivating AE Titles</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-seamlessly-incorporating-yt-clips-in-slideshows-via-ppt/"><u>[Updated] In 2024, Seamlessly Incorporating YT Clips in Slideshows via PPT</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-step-by-step-guide-to-effective-screen-recording-with-mobizen/"><u>[Updated] Step-by-Step Guide to Effective Screen Recording with Mobizen</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-voiceovers-unveiled-adding-depth-to-visual-storytelling-for-2024/"><u>[Updated] Voiceovers Unveiled Adding Depth to Visual Storytelling for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/dive-into-android-gaming-excellence-with-kinemaster-review/"><u>Dive Into Android Gaming Excellence with KineMaster Review</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/1726029529708-dvd/"><u>DVD編集専用の無料フリーアプリ！美しい動画を作り上げるステップ</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/expert-tips-and-techniques-for-resolving-code-43-malfunction-issues/"><u>Expert Tips and Techniques for Resolving Code 43 Malfunction Issues</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/from-broadcast-to-box-viewing-facebook-streams-on-roku-for-2024/"><u>From Broadcast to Box Viewing Facebook Streams on Roku for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/vision-to-value-an-all-inclusive-guide-on-analyzing-views-clicks-and-monetization-for-2024/"><u>From Vision to Value An All-Inclusive Guide on Analyzing Views, Clicks, & Monetization for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-essential-iphoneandroid-apps-for-aspiring-creators/"><u>In 2024, Essential iPhone/Android Apps for Aspiring Creators</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-facebooks-2023-icon-fix-your-hidden-watch-symbol-for-2024/"><u>[New] Facebook's 2023 Icon Fix Your Hidden Watch Symbol for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-boost-creativity-with-free-audio-effects-online/"><u>[New] In 2024, Boost Creativity with Free Audio Effects Online!</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-crafting-compelling-youtube-narratives-with-chapters-and-subsections/"><u>[Updated] 2024 Approved Crafting Compelling YouTube Narratives with Chapters and Subsections</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-cutting-edge-camera-and-recording-apps-for-smartphones-most-reliable-sources-for-2024/"><u>[Updated] Cutting-Edge Camera & Recording Apps for Smartphones' Most Reliable Sources for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-top-5-spotify-playlist-converters-for-creating-youtube-content/"><u>[Updated] In 2024, Top 5 Spotify Playlist Converters for Creating YouTube Content</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-mini-mic-marvels-affordable-sound-for-youtube-creators-for-2024/"><u>[Updated] Mini-Mic Marvels Affordable Sound for YouTube Creators for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-frosty-frameworks-for-warm-video-productions/"><u>2024 Approved Frosty Frameworks for Warm Video Productions</u></a></li>
+<li><a href="https://win-web3.techidaily.com/best-solutions-how-to-resolve-windows-11-error-code-0xc000000e-without-losing-your-data/"><u>Best Solutions: How to Resolve Windows 11 Error Code 0xC000000E without Losing Your Data</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/elevate-your-photo-projects-techniques-for-adding-text-to-digital-images/"><u>Elevate Your Photo Projects Techniques for Adding Text to Digital Images</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-alternatives-to-vlc-revealed-in-detailed-review/"><u>In 2024, Alternatives to VLC Revealed in Detailed Review</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-infinix-zero-5g-2023-turbo-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Infinix Zero 5G 2023 Turbo to Laptop Without USB | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-oppo-find-n3-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Oppo Find N3 Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-top-10-no-cost-youtube-sbd-tools/"><u>In 2024, Top 10 No-Cost YouTube SBD Tools</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ing-youtube-partnership-a-comprehensive-guide-for-video-creators-for-2024/"><u>Securing YouTube Partnership A Comprehensive Guide for Video Creators for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/tp-link-wireless-adapter-driver-update-latest-version-now-available-for-windows-1187-systems/"><u>TP-Link Wireless Adapter Driver Update - Latest Version Now Available for Windows 11/8/7 Systems</u></a></li>
+<li><a href="https://techidaily.com/xiaomi-redmi-13c-5g-won-t-play-avchd-mts-files-by-aiseesoft-video-converter-play-mts-on-android/"><u>Xiaomi Redmi 13C 5G won’t play AVCHD .mts files</u></a></li>
 </ul></div>
 

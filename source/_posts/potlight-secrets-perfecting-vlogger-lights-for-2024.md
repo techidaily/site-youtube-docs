@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Spotlight Secrets  Perfecting Vlogger Lights for 2024\""
-date: 2024-09-11T13:59:19.841Z
-updated: 2024-09-12T13:59:19.841Z
+date: 2024-10-25T13:17:36.112Z
+updated: 2024-10-26T22:44:14.354Z
 tags:
   - ai video
   - ai youtube
@@ -33,23 +33,9 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Video Lighting Basics: Three Point Lighting
 
 ![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
@@ -66,10 +52,10 @@ The final step to creating three point lighting is to set up another light behin
 ### Watch Video! Top Lighting Tips for Vlogging
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115925/19272" target="_top" id="2115925">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115925" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115925/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
@@ -99,10 +85,10 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
@@ -112,10 +98,10 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
@@ -125,10 +111,10 @@ If you are stuck shooting in **low light conditions** it is best to use a lens w
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -150,5 +136,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-mastering-youtube-srt-extracts-a-triad-approach/"><u>[New] 2024 Approved Mastering YouTube SRT Extracts A Triad Approach</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nalyzing-view-count-to-cash-out-on-youtube-for-2024/"><u>[New] Analyzing View Count to Cash Out on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/rchitects-crafting-fantasy-realms-for-marvel-for-2024/"><u>[New] Architects Crafting Fantasy Realms for Marvel for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-nurturing-audience-growth-mastering-live-streaming-with-onestream/"><u>[New] Nurturing Audience Growth Mastering Live Streaming with OneStream</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-brisk-blueprints-for-scribing-presentations/"><u>[Updated] 2024 Approved Brisk Blueprints for Scribing Presentations</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-navigating-new-waters-personalbusiness-youtube-channels-made-mobile-ready/"><u>[Updated] 2024 Approved Navigating New Waters Personal/Business YouTube Channels Made Mobile-Ready</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-dodging-doubts-a-guide-to-vloggings-most-common-anxieties/"><u>[Updated] In 2024, Dodging Doubts A Guide to Vlogging's Most Common Anxieties</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-unlocking-youtubes-potential-essential-tactics-and-strategies/"><u>[Updated] In 2024, Unlocking YouTube's Potential Essential Tactics and Strategies</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-prime-techniques-for-vhs-photo-effects-on-pconline-platforms/"><u>[Updated] Prime Techniques for VHS Photo Effects on PC/Online Platforms</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-voice-of-volume-6-free-apps-for-channeling-youtube-music-onto-android-devices/"><u>[Updated] Voice of Volume 6 Free Apps for Channeling YouTube Music Onto Android Devices</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/prehensive-guide-to-maximizing-channels-earnings-through-trailers/"><u>A Comprehensive Guide to Maximizing Channels' Earnings Through Trailers</u></a></li>
+<li><a href="https://fake-location.techidaily.com/best-10-mock-location-apps-worth-trying-on-motorola-defy-2-drfone-by-drfone-virtual-android/"><u>Best 10 Mock Location Apps Worth Trying On Motorola Defy 2 | Dr.fone</u></a></li>
+<li><a href="https://fox-tips.techidaily.com/erreur-technique-survenu-pendant-la-configuration-du-lecteur-de-reconstitution-avec-resolu/"><u>Erreur Technique Survenu Pendant La Configuration Du Lecteur De Reconstitution Avec Résolu</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ate-internet-income-low-cost-youtube-channel-buys-for-2024/"><u>Initiate Internet Income Low-Cost YouTube Channel Buys for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/mastering-screencastify-for-easy-video-capture/"><u>Mastering Screencastify for Easy Video Capture</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/en-entrepreneurial-youtube-outlets-and-tips-for-2024/"><u>Top Ten Entrepreneurial YouTube Outlets & Tips for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/transform-videos-made-easy-top-10-free-tools-to-enhance-your-tiktok-mac-for-2024/"><u>Transform Videos Made Easy - Top 10 Free Tools to Enhance Your TikTok (Mac) for 2024</u></a></li>
+</ul></div>
 
