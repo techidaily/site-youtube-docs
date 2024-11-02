@@ -1,7 +1,7 @@
 ---
 title: "[New] Easy and Inexpensive Techniques for YouTube Cards"
-date: 2024-10-20T16:00:55.956Z
-updated: 2024-10-27T16:12:05.545Z
+date: 2024-10-30T07:56:57.952Z
+updated: 2024-11-02T00:04:31.679Z
 tags:
   - ai video
   - ai youtube
@@ -83,10 +83,16 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1770526">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -125,10 +131,16 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977020">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -152,24 +164,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-4-free-apps-to-record-windows-8-content/"><u>[New] In 2024, 4 Free Apps to Record Windows 8 Content</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-the-beginners-blueprint-for-youtube-gear/"><u>[Updated] 2024 Approved The Beginner's Blueprint for YouTube Gear</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-picture-power-infusing-textual-elements-on-windows-and-mac-photo-canvas/"><u>[Updated] Picture Power Infusing Textual Elements on Windows & Mac Photo Canvas</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-samsung-gear-360-alternatives-updated-list-2023/"><u>[Updated] Samsung Gear 360 Alternatives Updated List 2023</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/7-ways-to-lock-apps-on-iphone-6-plus-and-ipad-securely-drfone-by-drfone-ios/"><u>7 Ways to Lock Apps on iPhone 6 Plus and iPad Securely | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/pnggif-movavi/"><u>免費線上自動更新PNG成GIF - 移除Movavi並採用其他工具</u></a></li>
-<li><a href="https://android-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-oneplus-11-5g-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your OnePlus 11 5G</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/p-by-step-guide-to-youtube-shorts-excellence-for-2024/"><u>A Step-by-Step Guide to YouTube Shorts Excellence for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/sible-video-ideas-the-simplest-10-concepts-everyone-can-learn-to-make-for-2024/"><u>Accessible Video Ideas The Simplest 10 Concepts Everyone Can Learn to Make for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/cing-video-experience-on-youtube-with-slower-playback-48-chars-for-2024/"><u>Enhancing Video Experience on YouTube with Slower Playback (48 Chars) for 2024</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/exclusive-black-friday-bargain-secure-the-79-lenovo-chromebook-now-before-its-gone-shop-smart-this-cyber-monday/"><u>Exclusive Black Friday Bargain! Secure the $79 Lenovo Chromebook Now Before It's Gone - Shop Smart This Cyber Monday</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ing-sham-numbers-the-danger-of-fabricated-youtube-views-for-2024/"><u>Exposing Sham Numbers The Danger of Fabricated YouTube Views for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-incorporate-no-cost-tunes-to-boost-your-vlogs/"><u>In 2024, Incorporate No-Cost Tunes to Boost Your Vlogs</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-overcoming-youtube-copyright-strikes-expert-advice-revealed/"><u>In 2024, Overcoming YouTube Copyright Strikes Expert Advice Revealed</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ate-thumbnails-discover-these-top-8-free-design-aids-for-2024/"><u>Innovate Thumbnails Discover These Top 8 Free Design Aids for 2024</u></a></li>
-<li><a href="https://discover-cloud.techidaily.com/pasos-a-seguir-para-la-reparacion-efectiva-de-una-memoria-sd-sandisk-guia-detallada/"><u>Pasos a Seguir Para La Reparación Efectiva De Una Memoria SD SanDisk: Guía Detallada</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ng-up-your-digital-stage-your-first-youtube-profile/"><u>Setting Up Your Digital Stage Your First YouTube Profile</u></a></li>
-<li><a href="https://windows11.techidaily.com/unleashing-the-potential-of-dism-on-windows-11-systems/"><u>Unleashing the Potential of Dism on Windows 11 Systems</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/visual-virtuosity-a-novices-journey-in-snapseed/"><u>Visual Virtuosity A Novice's Journey in Snapseed</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-iconic-creativity-unleashed-exploring-6-top-tier-symbol-sources/"><u>[New] 2024 Approved Iconic Creativity Unleashed Exploring 6 Top-Tier Symbol Sources</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-setting-up-zoom-like-a-pro/"><u>[New] 2024 Approved Setting Up Zoom Like a Pro</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ehind-the-scenes-creating-successful-youtube-shorts-videos-for-2024/"><u>[New] Behind the Scenes Creating Successful YouTube Shorts Videos for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ulti-platform-mastery-delivering-content-to-youtube-and-others/"><u>[New] Multi-Platform Mastery Delivering Content to YouTube & Others</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-unlocking-your-sound-potential-a-modern-look-at-pazeras-techniques/"><u>[New] Unlocking Your Sound Potential A Modern Look at Pazera's Techniques</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-enhance-your-chromebooks-speech-top-5-web-based-alterations/"><u>[Updated] 2024 Approved Enhance Your Chromebook’s Speech Top 5 Web-Based Alterations</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-the-ultimate-guide-to-youtube-earnings-across-devices/"><u>[Updated] 2024 Approved The Ultimate Guide to YouTube Earnings Across Devices</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-meme-magic-sending-laughs-across-fb-and-insta-with-video-content/"><u>[Updated] Meme Magic Sending Laughs Across FB & Insta with Video Content</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-the-ins-and-outs-of-earning-from-youtube/"><u>2024 Approved The Ins and Outs of Earning From YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/bits-of-bulb-tech-top-17-choices/"><u>Best Bits of Bulb Tech - Top 17 Choices</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/exploring-previous-images-3-inverse-search-methods-on-social-media-for-2024/"><u>Exploring Previous Images 3 Inverse Search Methods on Social Media for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/forgot-pattern-lock-heres-how-you-can-unlock-realme-11x-5g-pattern-lock-screen-by-drfone-android/"><u>Forgot Pattern Lock? Heres How You Can Unlock Realme 11X 5G Pattern Lock Screen</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-unleash-creativity-with-youtube-studio-editor/"><u>In 2024, Unleash Creativity with YouTube Studio Editor</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/maximizing-connectivity-with-asus-ax6000-rt-ax88u-smart-wi-fi-6-router-reviewed/"><u>Maximizing Connectivity with Asus AX6000 (RT-AX88U): Smart Wi-Fi 6 Router Reviewed</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/seamless-guide-to-saving-your-favorite-facebook-reels-instantly/"><u>Seamless Guide to Saving Your Favorite Facebook Reels Instantly!</u></a></li>
+<li><a href="https://games-able.techidaily.com/why-gamers-choose-edge-its-unmatched-browsing-skills/"><u>Why Gamers Choose Edge: Its Unmatched Browsing Skills</u></a></li>
 </ul></div>
 

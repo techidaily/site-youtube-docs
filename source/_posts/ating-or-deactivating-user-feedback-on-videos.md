@@ -1,7 +1,7 @@
 ---
 title: "Activating or Deactivating User Feedback on Videos"
-date: 2024-10-22T16:05:25.182Z
-updated: 2024-10-27T16:15:58.646Z
+date: 2024-10-27T05:44:32.942Z
+updated: 2024-11-01T21:10:33.239Z
 tags:
   - ai video
   - ai youtube
@@ -116,19 +116,19 @@ From under the **Audience** section in the right window of the **Video details**
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997657/19272" target="_top" id="1997657">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997657" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997657/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
@@ -148,10 +148,10 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
@@ -169,10 +169,10 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
+  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -196,15 +196,18 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://discord-videos.techidaily.com/new-2024-approved-how-to-elevate-your-profile-on-discord-with-custom-emoji-stamps/"><u>[New] 2024 Approved How to Elevate Your Profile on Discord with Custom Emoji Stamps</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/urning-your-youtube-views-into-a-screen-capture-made-simple-and-free-for-2024/"><u>[New] Turning Your YouTube Views Into a Screen Capture Made Simple and Free for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-hands-on-guide-to-optimize-your-youtube-channels-with-adsense/"><u>[Updated] Hands-On Guide to Optimize Your YouTube Channels with AdSense</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-visualize-your-vision-access-no-cost-templates-for-youtube-creators/"><u>[Updated] Visualize Your Vision – Access No-Cost Templates for YouTube Creators</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-crafting-captivating-youtube-closures-expert-guides-included/"><u>2024 Approved Crafting Captivating YouTube Closures - Expert Guides Included</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-top-6-ways-to-transfer-text-messages-from-xiaomi-redmi-note-13-pro-5g-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 6 Ways to Transfer Text Messages from Xiaomi Redmi Note 13 Pro 5G to Other Android Devices | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/moto-g-stylus-assessment-noteworthy-efficiency-and-reasonable-battery-duration-insights/"><u>Moto G Stylus Assessment: Noteworthy Efficiency and Reasonable Battery Duration Insights</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-the-best-of-the-best-top-5-ipad-video-editing-apps-for-2024/"><u>New The Best of the Best Top 5 iPad Video Editing Apps for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/pic-creators-colloquium-for-2024/"><u>The Epic Creator's Colloquium for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/upload-the-ultimate-guide-to-fast-youtube-video-rendering-for-2024/"><u>TurboUpload The Ultimate Guide to Fast YouTube Video Rendering for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-breaking-the-mold-unique-post-vidcon-events/"><u>[Updated] 2024 Approved Breaking the Mold Unique Post-VidCon Events</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-dive-into-the-dos-and-donts-of-youtube-beauty-channels/"><u>[Updated] 2024 Approved Dive Into the Do's and Don'ts of YouTube Beauty Channels</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-mobile-beat-benders-for-android-and-ios-devices/"><u>[Updated] In 2024, Mobile Beat Benders for Android and iOS Devices</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-pro-level-editing-10-must-have-applications-for-insta-videos/"><u>[Updated] In 2024, Pro-Level Editing 10 Must-Have Applications for Insta Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-pc-masterys-essential-list-for-video-download-enthusiasts-for-2024/"><u>[Updated] PC Mastery's Essential List for Video Download Enthusiasts for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-perfect-sound-devices-for-podcasters-for-2024/"><u>[Updated] Perfect Sound Devices for Podcasters for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-no-expense-yes-watch-one-frame-at-a-time-on-youtube/"><u>2024 Approved No Expense? Yes! Watch One Frame at a Time on YouTube</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/android-call-history-recovery-recover-deleted-call-logs-from-samsung-galaxy-s24-ultra-by-fonelab-android-recover-call-logs/"><u>Android Call History Recovery - recover deleted call logs from Samsung Galaxy S24 Ultra</u></a></li>
+<li><a href="https://win-dash.techidaily.com/basic-printer-and-scanner-support-added-directly-into-windows-10-operating-system/"><u>Basic Printer and Scanner Support Added Directly Into Windows 10 Operating System</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-essential-drivers-and-updates-for-your-hp-elitebook-x360-model-103atur-1030-g2/"><u>Download Essential Drivers and Updates for Your HP EliteBook X360 (Model 103Atur 1030-G2)</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/o-add-custom-youtube-shorts-thumbnails-with-ease-in-2024/"><u>How to Add Custom YouTube Shorts Thumbnails with Ease, In 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-with-location-spoofer-on-oppo-reno-10-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Simulate GPS Movement With Location Spoofer On Oppo Reno 10 5G? | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/nier-automata-pc-performance-optimized-no-more-game-crashes/"><u>Nier: Automata PC Performance Optimized: No More Game Crashes!</u></a></li>
 </ul></div>
 

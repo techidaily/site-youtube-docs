@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, The Blueprint for Successful YouTube Video Plans and Outlines"
-date: 2024-10-22T16:09:23.882Z
-updated: 2024-10-27T16:02:42.556Z
+date: 2024-10-30T01:12:01.790Z
+updated: 2024-11-01T21:34:26.912Z
 tags:
   - ai video
   - ai youtube
@@ -44,22 +44,22 @@ You have a great idea for a video, but you’re just not sure how to express it 
 
 Here are some things to do before you start writing your script for YouTube:
 
+<!-- affiliate ads begin -->
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Collect Ideas
 
 Before you write the script, it’s a good idea to gather ideas. If you think of something, or if something funny happens, write it down right away. Keep a pen and notebook handy that way you will not forget about it.
-
-<!-- affiliate ads begin -->
-<span id="1982570">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. Find an area that is not distracting
 
@@ -68,13 +68,6 @@ Once you have gathered enough ideas for the YouTube video, the next step is to f
 ## Writing a Script for a YouTube Video
 
 Now that you're ready to sit down and write, here's what you do:
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. Create an outline for your story
 
@@ -85,10 +78,10 @@ The first step in writing a script is to develop an outline for the story. You m
 The tone you pick for the video will depend on your audience. It’s safe to assume that viewers want something that’s unique, informative, and engaging. In some cases, they look for a video that’s personal, and they can relate to it. Humor is also something that you should consider when writing a script.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. Just keep writing
@@ -96,10 +89,10 @@ The tone you pick for the video will depend on your audience. It’s safe to ass
 When you start writing it is important that you keep on doing it no matter what happens. Just write down everything that comes into your mind. After that, read what you’ve written. If you think that something needs to be replaced, then replace it. If you get more inspiration and think that the script is lacking, then add to it.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959759/19272" target="_top" id="1959759">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959759" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959759/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. Make sure that the script is well structured
@@ -130,6 +123,13 @@ After writing the script, the next step is to invite a trusted friend or family 
 
 These are the tips to keep in mind when considering how to write a script for a YouTube video.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Add Subtitles to Your YouTube Video with Wondershare Filmora
 
 Creating subtitles with Wondershare Filmora is very easy and a newbie can easily add relevant texts to the video they are trying to edit with Filmora. You just simply need to launch Wondershare Filmora and import the video that you want to edit. Now, go to the Titles tab and select the template that you want to pick and drag it on the timeline and click Apply. This way you can easily start adding texts and titles to your videos and let the alphabets narrate your story.
@@ -159,22 +159,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-fast-fortnite-cover-art-techniques-for-2024/"><u>[New] Fast Fortnite Cover Art Techniques for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-in-2024-unlocking-spotifys-advertising-opportunities-a-roadmap/"><u>[New] In 2024, Unlocking Spotify’s Advertising Opportunities A Roadmap</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/nveiling-the-top-7-android-apps-to-banish-ads/"><u>[New] Unveiling The Top 7 Android Apps to Banish Ads</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-best-practices-for-youtube-thumbnail-dimensions/"><u>[Updated] 2024 Approved Best Practices for YouTube Thumbnail Dimensions</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-step-by-step-guide-to-find-youtube-hidden-videos/"><u>[Updated] 2024 Approved Step-By-Step Guide to Find YouTube Hidden Videos</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-achieve-creative-vibrancy-with-picshots-assistance/"><u>[Updated] Achieve Creative Vibrancy with Picshot's Assistance</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-channel-your-earnings-effective-youtube-money-methods-for-2024/"><u>[Updated] Channel Your Earnings Effective YouTube Money Methods for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-light-up-the-screen-techniques-for-stunning-youtube-visuals/"><u>[Updated] Light Up the Screen Techniques for Stunning YouTube Visuals</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-mastering-instagram-video-load-times-desktop-advice/"><u>2024 Approved Mastering Instagram Video Load Times Desktop Advice</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-platform-predicament-choosing-the-right-space/"><u>2024 Approved Platform Predicament Choosing the Right Space</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-vivo-y56-5g-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Vivo Y56 5G Without PUK Codes</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/premium-pfr-rate-for-easy-going-footage-for-2024/"><u>Premium PFR Rate for Easy-Going Footage for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/price-tracker-for-cloud-space-services-a-detailed-review-for-2024/"><u>Price Tracker for Cloud Space Services A Detailed Review for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/h-video-playback-for-televisions-with-youtube-for-2024/"><u>Smooth Video Playback for Televisions with YouTube for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/step-by-step-guide-resolving-iphone-remote-control-glitches/"><u>Step-by-Step Guide: Resolving iPhone Remote Control Glitches</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/king-creative-potential-embedding-online-videos-in-slideshows-for-2024/"><u>Unlocking Creative Potential Embedding Online Videos in Slideshows for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/king-the-secrets-to-successful-rapid-subscribing-on-youtube/"><u>Unlocking the Secrets to Successful Rapid Subscribing on YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-the-video-gurus-playbook-smooth-transition-to-easy-youtube-cc-and-subtitles/"><u>[New] 2024 Approved The Video Guru's Playbook Smooth Transition to Easy YouTube CC & Subtitles</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/20886183-new-2024-approved-top-bargain-video-snippets-grab-youtube-images-without-cost/"><u>[New] 2024 Approved Top Bargain Video Snippets - Grab YouTube Images Without Cost!</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-gauging-glory-an-essential-handbook-for-evaluating-youtube-engagement-and-earnings/"><u>[New] In 2024, Gauging Glory An Essential Handbook for Evaluating YouTube Engagement & Earnings</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/treamline-shorter-optimizing-youtube-videos-for-less-time-for-2024/"><u>[New] Streamline Shorter Optimizing YouTube Videos for Less Time for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-top-8-best-video-grabbers-for-windows-11/"><u>[New] Top 8 Best Video Grabbers for Windows 11</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-guide-to-supercharged-video-engagement-with-youtube-notes/"><u>[Updated] 2024 Approved Guide to Supercharged Video Engagement with YouTube Notes</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-peering-into-mr-beasts-economic-landscape/"><u>[Updated] 2024 Approved Peering Into Mr. Beast's Economic Landscape</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-bestowed-guidance-premium-audio-designers-for-iphones/"><u>[Updated] In 2024, Bestowed Guidance Premium Audio Designers for iPhones</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-librevid-x-version-10-reviewed-highlights-and-downsides/"><u>[Updated] LibreVid X Version 10 Reviewed Highlights and Downsides</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-pioneering-online-video-secrets-for-youtubes-spherical-livestreaming-techniques/"><u>2024 Approved Pioneering Online Video Secrets for YouTube's Spherical Livestreaming Techniques</u></a></li>
+<li><a href="https://apple-account.techidaily.com/apple-id-unlock-on-apple-iphone-6-how-to-fix-it-by-drfone-ios/"><u>Apple ID Unlock On Apple iPhone 6? How to Fix it?</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-change-credit-card-from-your-apple-iphone-6s-apple-id-and-apple-pay-by-drfone-ios/"><u>How to Change Credit Card from Your Apple iPhone 6s Apple ID and Apple Pay</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-a-guide-samsung-galaxy-a25-5g-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>In 2024, A Guide Samsung Galaxy A25 5G Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-remove-forgotten-pin-of-your-vivo-t2x-5g-by-drfone-android/"><u>In 2024, How to Remove Forgotten PIN Of Your Vivo T2x 5G</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/retailer-stats-reveal-worrying-trend-13th-gen-intel-cpus-reportedly-yield-a-massive-increase-in-return-rates-how-do-they-compare-to-amd/"><u>Retailer Stats Reveal Worrying Trend: 13Th Gen Intel CPUs Reportedly Yield a Massive Increase in Return Rates – How Do They Compare to AMD?</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Breakdown of Earnings  How Much Does a Clicky Make, In 2024\""
-date: 2024-10-26T16:09:17.200Z
-updated: 2024-10-27T16:01:48.738Z
+date: 2024-10-31T18:57:39.984Z
+updated: 2024-11-01T21:50:17.560Z
 tags:
   - ai video
   - ai youtube
@@ -52,6 +52,13 @@ Google’s AdSense service, through which YouTubers make money, pays YouTubers f
 
 YouTubers do not make money on the views of their videos, because not all viewers click on ads. Many viewers bypass ads completely using ad-blockers. The amount of money YouTubers earn from a single ad impression is called their CPI or "cost per impression."
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## CPI Rates Explained
 
 YouTube advertising is currently managed inside the AdSense platform. In case you're not familiar with AdSense, you can have 2 different kinds of ads - the cost per click (CPC) or the cost per view (CPV).
@@ -73,10 +80,16 @@ How much you make from an ad on YouTube depends on your CPI, cost per impression
 Most people tend to assume that CPI rates are between $0.05 and $10\. This huge difference is justified by YouTube by saying that they use a very complicated algorithm to determine your CPI rate. According to them, it includes evaluating factors like the ads, the type of audience who views your video, audience engagement, audience retention, and the price of the ads.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1912746">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How Much Do Big YouTubers Make?
@@ -90,13 +103,6 @@ Even though most people think that YouTube channels with 1 million subscribers a
 According to Google, when an advertiser pays $100 to Google, Google pays $68 to the publisher (in this case, the publisher is a YouTube creator).
 
 ![How Much Do YouTuber Makes](https://images.wondershare.com/filmora/article-images/how-much-do-youtubers-make.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 _This graphic won't apply to every situation because every situation is unique. It's just an example using assumed numbers._
 
@@ -129,16 +135,16 @@ Instead of relying on YouTube to pay them, YouTubers need to seek out other ways
 We all agree that being a YouTube star isn't an easy path. However, if you honestly love what you do, then you will be willing to put effort into making great videos regularly. Part of that is also being willing to take the time to promote them and yourself, as well as putting time and effort into forging a good relationship with your audience.
 
 <!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="864" height="1296" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why No Longer 10,000 Views?
@@ -158,16 +164,10 @@ _Are you finding it difficult to earn money on YouTube? Subscribe to the [Filmor
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -191,15 +191,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-maximizing-profits-on-youtube-the-latest-policy/"><u>[New] In 2024, Maximizing Profits on YouTube The Latest Policy</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/he-ultimate-size-solution-to-boost-your-videos-online-performance-for-2024/"><u>[New] The Ultimate Size Solution to Boost Your Video's Online Performance for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/nlock-the-potential-of-your-video-platform-growth-for-2024/"><u>[New] Unlock the Potential of Your Video Platform Growth for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-simplifying-speech-integration-into-instagram-content/"><u>[Updated] 2024 Approved Simplifying Speech Integration Into Instagram Content</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-revolutionizing-image-capture-with-ios-11-updates/"><u>[Updated] Revolutionizing Image Capture with iOS 11 Updates</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-power-packed-film-titles-for-inner-growth-and-strength/"><u>2024 Approved Power-Packed Film Titles for Inner Growth & Strength</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/discover-time-saving-magic-with-these-10-powerful-chatgpt-pdf-extensions/"><u>Discover Time-Saving Magic with These 10 Powerful ChatGPT PDF Extensions</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/navigating-iphone-the-ringtone-alteration-process-for-2024/"><u>Navigating iPhone The Ringtone Alteration Process for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/l-blogging-essentials-step-by-step-path-to-success-for-2024/"><u>Travel Blogging Essentials Step-by-Step Path to Success for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/trouble-no-more-fixing-constant-system-restarts-on-your-windows-11-or-10-pc/"><u>Trouble No More! Fixing Constant System Restarts on Your Windows 11 or 10 PC</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-high-quality-game-capture-apps-reviewed/"><u>[New] 2024 Approved High-Quality Game Capture Apps Reviewed</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ouble-delight-endless-looping-of-youtube-videos-for-tvs/"><u>[New] Double Delight Endless Looping of YouTube Videos for TVs</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/levate-video-flair-advanced-techniques-in-youtube-studio-editor-for-2024/"><u>[New] Elevate Video Flair Advanced Techniques in YouTube Studio Editor for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-record-ppt-for-screenplay-use/"><u>[New] Record PPT for Screenplay Use</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-5-essential-tiktok-to-gif-conversion-apps/"><u>[Updated] 2024 Approved 5 Essential TikTok-to-GIF Conversion Apps</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-thriving-in-the-youtube-landscape-with-data-driven-approach/"><u>[Updated] 2024 Approved Thriving in the YouTube Landscape with Data-Driven Approach</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-best-10-screen-recorders-for-youtube/"><u>[Updated] Best 10 Screen Recorders for YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-how-to-edit-youtube-videos-in-final-cut-pro/"><u>[Updated] How to Edit YouTube Videos in Final Cut Pro</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-unleash-your-potential-skyrocketing-youtube-audience/"><u>[Updated] In 2024, Unleash Your Potential Skyrocketing YouTube Audience</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/advanced-tips-for-applying-onscreen-vhs-effects-and-filters/"><u>Advanced Tips for Applying Onscreen VHS Effects and Filters</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-text-messages-from-realme-12-proplus-5g-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Text Messages from Realme 12 Pro+ 5G to New Phone | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-poco-x5-to-mac-drfone-by-drfone-android/"><u>In 2024, How to Mirror Poco X5 to Mac? | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-maximize-your-youtube-reach-key-tips-for-enhancing-video-seo/"><u>In 2024, Maximize Your YouTube Reach Key Tips for Enhancing Video SEO</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-honor-magic-5-lite-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Honor Magic 5 Lite? | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/professional-tips-to-diminish-ambient-sound-in-videos-for-2024/"><u>Professional Tips to Diminish Ambient Sound in Videos for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1744305-9781782796282-to-the-devils-tune/"><u>To the Devil's Tune | Free Book</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/why-the-upcoming-mac-studios-standout-features-could-deter-my-purchase-of-a-new-m4-mac-mini-this-autumn-insights/"><u>Why the Upcoming Mac Studio's Standout Features Could Deter My Purchase of a New M4 Mac Mini This Autumn: Insights</u></a></li>
 </ul></div>
 

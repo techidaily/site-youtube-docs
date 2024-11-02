@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Cultivating Patience with YouTube Disapproval\""
-date: 2024-09-11T13:56:43.026Z
-updated: 2024-09-12T13:56:43.026Z
+date: 2024-10-27T05:51:09.106Z
+updated: 2024-11-02T01:32:19.996Z
 tags:
   - ai video
   - ai youtube
@@ -25,19 +25,6 @@ thumbnail: https://thmb.techidaily.com/b034e397cf58f21c63fc5dd80cb149d6528213f9e
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
-
-<!-- affiliate ads begin -->
-<span id="1975503">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -67,13 +54,6 @@ thumbnail: https://thmb.techidaily.com/b034e397cf58f21c63fc5dd80cb149d6528213f9e
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -93,5 +73,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-a-comprehensive-list-top-rated-srt-translation-services/"><u>[New] In 2024, A Comprehensive List Top-Rated SRT Translation Services</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-best-asmr-youtube-channels-you-should-know/"><u>[Updated] Best ASMR YouTube Channels You Should Know</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-from-obscurity-to-elite-nine-keys-to-dominating-instagram/"><u>[Updated] From Obscurity to Elite Nine Keys to Dominating Instagram</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-fps-game-quest-discovering-7-ultimate-titles/"><u>[Updated] In 2024, FPS Game Quest – Discovering 7 Ultimate Titles</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-unlocking-earnings-the-mean-daily-pay-from-youtube-adsense-per-k-viewers/"><u>[Updated] In 2024, Unlocking Earnings The Mean Daily Pay From YouTube AdSense per K Viewers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-leverage-timestamps-tactics-to-skyrocket-video-views/"><u>2024 Approved Leverage Timestamps Tactics to Skyrocket Video Views</u></a></li>
+<li><a href="https://facebook.techidaily.com/dive-into-digital-dialogue-mastering-facebooks-soundemojis/"><u>Dive Into Digital Dialogue: Mastering Facebook’s Soundemojis</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-top-360-live-streaming-cameras-for-youtube-and-facebook/"><u>In 2024, Top 360 Live Streaming Cameras for YouTube and Facebook</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-keep-it-private-top-rated-video-editing-software-for-face-blurring-for-2024/"><u>New Keep It Private Top-Rated Video Editing Software for Face Blurring for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/restoring-taskbar-visibility-when-browser-is-maximized/"><u>Restoring Taskbar Visibility When Browser Is Maximized</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/sustainable-screen-tech-best-picks-reviewed-for-2024/"><u>Sustainable Screen Tech Best Picks Reviewed for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/erfect-loop-technique-for-all-your-youtube-favorites-for-2024/"><u>The Perfect Loop Technique for All Your YouTube Favorites for 2024</u></a></li>
+</ul></div>
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
