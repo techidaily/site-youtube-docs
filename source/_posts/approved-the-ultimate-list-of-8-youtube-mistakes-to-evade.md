@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The Ultimate List of 8 Youtube Mistakes to Evade\""
-date: 2024-10-30T05:43:20.385Z
-updated: 2024-11-02T08:56:21.835Z
+date: 2024-11-01T20:53:02.654Z
+updated: 2024-11-07T16:35:53.457Z
 tags:
   - ai video
   - ai youtube
@@ -37,25 +37,11 @@ In the ten years that I’ve been a YouTuber, I’ve made a lot of mistakes. I l
 
 ###  
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. Failing to have a long-term vision
 
 One common mistake that a lot of new YouTubers make is failing to have a long-term vision. Without a long-term vision, you’re more likely to poorly brand your YouTube channel, drop your YouTube channel activity in busier times, and, midway through, change the type of content you create and upload. None of these are good for your channel!
 
 If you can think of the kind of content you’ll love to consistently create and share in the long-run, you’ll not only be able to narrow down your brand and effectively communicate to your audience who you are and what your channel is all about, but you’ll also have a better idea on what to put out next.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148635/16836" target="_top" id="2148635">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148635" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148635/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. Choosing an ineffective custom URL
 
@@ -77,6 +63,13 @@ New YouTubers tend to think about their thumbnail images after they’ve finishe
 
 Even before filming, you should think about how you’re going to title your video to get the most views. After that, you should then try to picture, in your head, a thumbnail image that matches your title and creates curiosity and excitement. When you go into filming, you can then make sure to include some footage of you recreating that image.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 5\. Making weak intros
 
 After you’ve managed to get someone to click on your video through your effective title and thumbnail image strategy, the next challenge is to keep that person watching your video without closing it too early. A typical viewer on YouTube decides within the first ten to fifteen seconds of landing on a video whether or not he or she will stay or leave. This short window of time is so important to set the tone of the rest of your video and build excitement and curiosity in your viewer with an effective, high-energy intro.
@@ -85,30 +78,31 @@ New YouTubers often make the mistake of having weak intros. Starting at the begi
 
 To read more on how some of the most successful YouTubers effectively do their intros, check out my blogpost on “[How To Edit YouTube Videos Like a YouTuber](https://tools.techidaily.com/wondershare/filmora/download/).”
 
-<!-- affiliate ads begin -->
-<span id="1976998">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 6\. Forgetting to engage with subscribers
 
 An important thing to do as a new YouTuber is engaging with your subscribers. Some new YouTubers, though, are so focused and busy with the production side of things that they forget to do the community side of things, including responding to comments. By not responding to comments as a new YouTuber, you hurt your potential to get more comments consistently from your subscribers. If your video’s comments section is very active, YouTube ranks your video higher in the videos it recommends to viewers.
 
 Connecting with your audience shouldn’t just be limited to YouTube either. Use your other social media channels to connect with your audience as well.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 7\. Not promoting with social media
 
 YouTube isn’t the only social media platform that people are spending their time on. People are spending their time on all kinds of different social media platforms, like Twitter, Facebook, and Instagram. The more content in all of these platforms that you create to promote your video, the more potential your video has to be seen by their users.
 
 New YouTubers sometimes forget to promote their videos and channel using other social media platforms. Consequently, they miss out on the opportunity to get views from multiple sources of social media.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 8\. Spamming comments
 
@@ -121,10 +115,10 @@ Spam comments annoy YouTubers. It would be much more beneficial to your channel 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398449/3022" target="_top" id="398449">
-  <img src="//a.impactradius-go.com/display-ad/3022-398449" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398449/3022" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -148,24 +142,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-choosing-the-best-camera-for-filming-mirrorless-or-dslr/"><u>[New] 2024 Approved Choosing the Best Camera for Filming Mirrorless or DSLR</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-cool-climates-cozy-cinematics-selecting-winter-backgrounds/"><u>[New] 2024 Approved Cool Climates, Cozy Cinematics Selecting Winter Backgrounds</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-elevating-video-reach-the-role-of-smart-backlinking-techniques/"><u>[New] 2024 Approved Elevating Video Reach The Role of Smart Backlinking Techniques</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-guide-to-streamline-yt-playlist-integration-in-htmlcss/"><u>[New] 2024 Approved Guide to Streamline YT Playlist Integration in HTML/CSS</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-innovate-thumbnails-discover-these-top-8-free-design-aids/"><u>[New] 2024 Approved Innovate Thumbnails Discover These Top 8 Free Design Aids</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-stand-out-on-google-the-ultimate-thumbnail-font-guide/"><u>[New] 2024 Approved Stand Out on Google The Ultimate Thumbnail Font Guide</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-youtube-broadcasts-made-simple-an-easy-to-follow-obs-guide/"><u>[New] 2024 Approved Youtube Broadcasts Made Simple An Easy-to-Follow OBS Guide</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-leading-screen-recorders-without-performance-delay/"><u>[Updated] 2024 Approved Leading Screen Recorders Without Performance Delay</u></a></li>
-<li><a href="https://facebook.techidaily.com/connect-concisely-the-ultimate-guide-to-understanding-30-key-online-acronyms/"><u>Connect Concisely: The Ultimate Guide to Understanding 30 Key Online Acronyms</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ing-the-next-big-thing-your-guide-to-youtubes-best-video-types/"><u>Crafting the Next Big Thing Your Guide to YouTube's Best Video Types</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-reset-gmail-password-on-oppo-a38-devices-by-drfone-android/"><u>How to Reset Gmail Password on Oppo A38 Devices</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-avoidance-tactics-no-more-recommended-podcasts-on-spotify/"><u>In 2024, Avoidance Tactics No More Recommended Podcasts on Spotify</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-two-titans-clash-in-the-vr-arena/"><u>In 2024, Two Titans Clash in the VR Arena</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/-vfx-for-free-mastering-the-art-of-background-substitution-through-4-innovative-video-tutorials/"><u>Learn VFX for Free Mastering the Art of Background Substitution Through 4 Innovative Video Tutorials</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/mastering-the-art-of-resolving-common-auto-installation-hurdles-with-gpt-systems/"><u>Mastering the Art of Resolving Common Auto-Installation Hurdles with GPT Systems</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/-spending-strategies-on-youtube-vids-for-2024/"><u>Smart Spending Strategies on YouTube Vids for 2024</u></a></li>
-<li><a href="https://win-premium.techidaily.com/troubleshooting-audio-problems-steps-to-resolve-sound-failures-during-screen-mirroring-from-your-android-device/"><u>Troubleshooting Audio Problems: Steps to Resolve Sound Failures During Screen Mirroring From Your Android Device</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/vr-beyond-boundaries-top-tech-and-accessories-unveiled/"><u>VR Beyond Boundaries Top Tech and Accessories Unveiled</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/winxvideo-kunstliche-intelligenz-fur-bild-video-und-tonaufnahme-auf-dem-computer/"><u>WinxVideo: Künstliche Intelligenz Für Bild-, Video- Und Tonaufnahme Auf Dem Computer</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/arning-strategies-with-youtubes-adsense-payout-per-k-viewers/"><u>[New] Earning Strategies with Youtube's AdSense Payout per K Viewers</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-exploring-advanced-recording-alternatives-to-fbx-frameworks/"><u>[New] In 2024, Exploring Advanced Recording Alternatives to FBX Frameworks</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-monthly-earnings-from-youtube-as-a-content-creator/"><u>[New] In 2024, Monthly Earnings From YouTube as a Content Creator</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/op-5-video-and-picture-capturing-tools-for-smartphones/"><u>[New] Top 5 Video & Picture Capturing Tools for Smartphones</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-mastering-multimedia-strategies-for-gamers-on-youtube/"><u>[Updated] 2024 Approved Mastering Multimedia Strategies for Gamers on Youtube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-film-assembly-station-for-2024/"><u>[Updated] Film Assembly Station for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-make-an-impression-with-youtube-clips-step-by-step-into-the-world-of-gif-making/"><u>[Updated] In 2024, Make an Impression With YouTube Clips Step-by-Step Into the World of Gif Making</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-leverage-tags-a-step-by-step-youtube-tactical-guide-for-2024/"><u>[Updated] Leverage Tags A Step-by-Step YouTube Tactical Guide for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-mobile-security-focused-the-leading-10-free-video-calling-applications-for-2024/"><u>[Updated] Mobile Security-Focused The Leading 10 Free Video Calling Applications for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-virtual-space-clearing-perfecting-your-backdrop-in-zoom-and-google-meet/"><u>2024 Approved Virtual Space Clearing Perfecting Your Backdrop in Zoom & Google Meet</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/beginners-roadmap-to-configuring-an-apple-watch-insights-by-zdnet/"><u>Beginner's Roadmap to Configuring an Apple Watch (Insights by ZDNet)</u></a></li>
+<li><a href="https://win11.techidaily.com/duplicate-dvds-easily-using-1click-dvd-copy-plus-top-alternatives-revealed/"><u>Duplicate DVDs Easily Using 1Click DVD Copy - Plus Top Alternatives Revealed!</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fixing-foneazy-mockgo-not-working-on-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>Fixing Foneazy MockGo Not Working On Apple iPhone SE (2022) | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/mastering-srt-file-playback-on-both-oses/"><u>Mastering SRT File Playback on Both OSes</u></a></li>
 </ul></div>
 

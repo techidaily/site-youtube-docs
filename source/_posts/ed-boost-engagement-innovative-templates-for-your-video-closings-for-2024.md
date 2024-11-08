@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Boost Engagement  Innovative Templates for Your Video Closings for 2024\""
-date: 2024-11-01T01:25:13.350Z
-updated: 2024-11-01T21:28:09.211Z
+date: 2024-11-05T23:04:02.480Z
+updated: 2024-11-07T23:42:30.176Z
 tags:
   - ai video
   - ai youtube
@@ -90,29 +90,22 @@ Here’s one for the Minecraft fans:
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997657/19272" target="_top" id="1997657">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997657" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997657/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
 
 1\. First, you have to sign up with an e-mail address
 
 ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
 ![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
 
@@ -120,15 +113,22 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![download-youtube-outro-end-screen](https://images.wondershare.com/filmora/article-images/download-youtube-outro-end-screen.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 5\. Upload the image onto your Canva project.
 
 ![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 6\. Stretch your image to the ends of your canvas.
@@ -139,6 +139,19 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![adjust-end-screen-templates-in-canva](https://images.wondershare.com/filmora/article-images/adjust-end-screen-templates-in-canva.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 8\. When you’re done, delete the original image so that you’re left with just your own design. Go ahead and click “download.”
 
 ![youtube-end-screen-made-with-canva](https://images.wondershare.com/filmora/article-images/youtube-end-screen-made-with-canva.jpg)
@@ -146,13 +159,6 @@ Another way to get your YouTube end screens for free, of course, is to make them
 If you're looking for other options to design your end screen, make sure to also check out our article on [The YouTube Outro Guide](https://tools.techidaily.com/wondershare/filmora/download/). To edit the YouTube video with more effects and templates, you can try [Wondershare Filmora video editor.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -177,18 +183,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-a-vloggers-guide-to-camera-lenses-wondershare-filmora/"><u>[New] 2024 Approved A Vlogger's Guide To Camera Lenses | Wondershare Filmora</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-dive-deep-into-the-digital-world-adding-panoramic-photos-to-your-feed/"><u>[New] 2024 Approved Dive Deep Into the Digital World Adding Panoramic Photos to Your Feed</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-enhancing-video-visibility-on-youtube-with-imaginative-thumbnails/"><u>[New] 2024 Approved Enhancing Video Visibility on YouTube with Imaginative Thumbnails</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-humour-haven-strategies-for-parody-video-creation/"><u>[New] 2024 Approved Humour Haven Strategies for Parody Video Creation</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-regular-vlogger-discussion-guidelines/"><u>[New] 2024 Approved Regular Vlogger Discussion Guidelines</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/-journey-through-the-digital-landscape-six-engaging-quizzes-for-every-vlogger-admirer-for-2024/"><u>[New] A Journey Through the Digital Landscape Six Engaging Quizzes for Every Vlogger Admirer for 2024</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210193432-9781609252496-coincidence-or-destiny/"><u>Coincidence or Destiny? | Free Book</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-optimizing-tiktok-video-batch-downloads/"><u>In 2024, Optimizing TikTok Video Batch Downloads</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-10-essential-webcam-recording-tools-for-windows-10/"><u>New 2024 Approved 10 Essential Webcam Recording Tools for Windows 10</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/-stability-camera-shots-in-the-wind-for-2024/"><u>Quick Stability Camera Shots in the Wind for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-networking-platform-launches-precision-moderation-aids/"><u>Social Networking Platform Launches Precision Moderation Aids</u></a></li>
-<li><a href="https://techtrends.techidaily.com/1722892806915-the-upcoming-google-pixel-10-anticipated-launch-info-and-pricing-details-revealed/"><u>The Upcoming Google Pixel 10: Anticipated Launch Info & Pricing Details Revealed!</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/-flair-identifying-powerful-tags-for-youtube-short-success-for-2024/"><u>Viral Flair Identifying Powerful Tags for YouTube Short Success for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ut-to-the-chase-strategies-top-20-youtube-tips-for-growth-for-2024/"><u>[New] Cut-to-the-Chase Strategies Top 20 YouTube Tips for Growth for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-countermoves-in-media-how-to-reverse-videos/"><u>[New] In 2024, Countermoves in Media How to Reverse Videos</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-zooming-up-triad-of-effective-video-enhancement-practices/"><u>[Updated] 2024 Approved Zooming Up Triad of Effective Video Enhancement Practices</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-gaming-insiders-youtube-channels-you-should-see-for-2024/"><u>[Updated] Gaming Insiders' YouTube Channels You Should See for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-how-does-youtube-count-views-its-not-as-simple-as-you-think/"><u>[Updated] How Does YouTube Count Views? It's Not as Simple as You Think!</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-bridging-distances-with-easy-to-use-xbox-zooming/"><u>2024 Approved Bridging Distances with Easy-to-Use Xbox Zooming</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-from-boring-to-buzzing-three-tactics-for-youtube-reaction-mastery/"><u>2024 Approved From Boring to Buzzing Three Tactics for YouTube Reaction Mastery</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-top-10-richest-youtubers/"><u>2024 Approved Top 10 Richest YouTubers</u></a></li>
+<li><a href="https://common-error.techidaily.com/comprehensive-fixes-for-dell-laptops-experiencing-a-black-display/"><u>Comprehensive Fixes for Dell Laptops Experiencing a Black Display</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/expert-insights-on-the-effectiveness-of-western-digitals-datalifeguard-diagnostics-application/"><u>Expert Insights on the Effectiveness of Western Digital's DataLifeGuard Diagnostics Application</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-pause-life360-location-sharing-for-xiaomi-13t-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How To Pause Life360 Location Sharing For Xiaomi 13T Pro | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/laughter-lines-timely-meme-trends-to-share-for-2024/"><u>Laughter Lines Timely Meme Trends to Share for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/overcoming-file-access-denial-on-windows-11/"><u>Overcoming File Access Denial on Windows 11</u></a></li>
 </ul></div>
 

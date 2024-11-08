@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Snappy Sharing  Uploading and Publishing Short Videos Online\""
-date: 2024-10-31T07:01:23.962Z
-updated: 2024-11-02T05:30:59.445Z
+date: 2024-11-02T19:23:24.809Z
+updated: 2024-11-08T06:10:24.958Z
 tags:
   - ai video
   - ai youtube
@@ -82,10 +82,16 @@ For macOS 10.12 or later
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How to Upload Short Video on YouTube Mobile App?
@@ -93,6 +99,13 @@ For macOS 10.12 or later
 The process of **uploading YouTube Shorts** from the mobile app is fairly simple compared to the method used on a computer. While using the app, you can either upload an existing video or shoot a new one from within the program itself then and there, add music and text, and upload it right away. Both these methods are explained below in detail:
 
 **Note:** The guidelines for creating and uploading short videos to YouTube remain the same, regardless of the platform or device you use.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Method 1: Upload an Existing Short Video
 
@@ -125,10 +138,10 @@ Please note you will not see the **Create a Short** option if you are outsides o
 ![ Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 In the YouTube app, tap the **+** (**Add**) button and select **Create** **a Short**. Please note you will not see the **Create a Short** option if you are outsides of India.
@@ -147,13 +160,6 @@ On the **Add details** window, enter a name for the video along with the **#Shor
 
 **[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)**
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Conclusion**
 
 Learning the process of **how to post short videos on YouTube** is fairly simple as long as you have the video recorded in the portrait orientation, it is up to 60 seconds long, and contains the ‘#Shorts’ tag (without quotes) in the title or description. The good thing is, if you don’t have access to the YouTube app on your smartphone, the method for **how to upload short video on YouTube** explained in the first section can be followed while using your desktop computer.
@@ -163,16 +169,16 @@ Learning the process of **how to post short videos on YouTube** is fairly simple
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1498635">
-					<video width="320" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
+<span id="1983584">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -196,24 +202,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-exploiting-youtubes-creative-commons-in-media-making/"><u>[New] 2024 Approved Exploiting YouTube's Creative Commons in Media Making</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-learn-and-create-the-ultimate-youtube-trailer-blueprint-in-filmora/"><u>[New] 2024 Approved Learn and Create The Ultimate YouTube Trailer Blueprint in Filmora</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-mastering-youtube-traffic-growth-the-ultimate-list-of-keyword-analyzers/"><u>[New] 2024 Approved Mastering YouTube Traffic Growth The Ultimate List of Keyword Analyzers</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-naming-mastery-in-the-digital-age-a-comprehensive-guide/"><u>[New] 2024 Approved Naming Mastery in the Digital Age A Comprehensive Guide</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-navigating-youtube-tv-the-ultimate-guide/"><u>[New] 2024 Approved Navigating YouTube TV The Ultimate Guide</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-quality-video-sharing-leading-alternative-converters-from-flv-to-yt/"><u>[New] 2024 Approved Quality Video Sharing Leading Alternative Converters From FLV to YT</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-quick-guide-eradicating-unwanted-youtube-downloads-on-pcmac/"><u>[New] 2024 Approved Quick Guide Eradicating Unwanted YouTube Downloads on PC/Mac</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-cutting-edge-editors-to-craft-engaging-facebook-ad-videos-for-2024/"><u>[Updated] Cutting-Edge Editors to Craft Engaging Facebook Ad Videos for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-unleashing-potential-in-virtual-collaboration-platforms/"><u>[Updated] Unleashing Potential in Virtual Collaboration Platforms</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-exclusive-endorsements-premier-portals-for-procuring-snapalert-rhythms/"><u>2024 Approved Exclusive Endorsements Premier Portals for Procuring SnapAlert Rhythms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/carnal-communication-eloquence-in-spanish-conversation/"><u>Carnal Communication: Eloquence in Spanish Conversation</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/1722973350893-download-and-update-amd-radeon-rx-580-graphics-card-drivers-fast-and-simple-methods/"><u>Download and Update AMD Radeon RX 580 Graphics Card Drivers - Fast and Simple Methods</u></a></li>
-<li><a href="https://games-able.techidaily.com/enhance-your-gaming-experience-with-ioss-most-popular-emulators/"><u>Enhance Your Gaming Experience with iOS's Most Popular Emulators</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/epson-connectivity-now-functional/"><u>Epson Connectivity Now Functional</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-xiaomi-14-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Xiaomi 14 | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/-suggestions-10-hilarious-concepts-for-quick-quirky-videos-for-2024/"><u>Silly Suggestions 10 Hilarious Concepts for Quick, Quirky Videos for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/strategies-to-skyrocket-like-counts-in-tiktok-unpack-videos-for-2024/"><u>Strategies to Skyrocket 'Like' Counts in TikTok Unpack Videos for 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/top-5-recommended-apple-watch-apps-for-improved-sleep-quality/"><u>Top 5 Recommended Apple Watch Apps for Improved Sleep Quality</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/-best-fmovie-alternatieves-for-2024/"><u>Top 7 Best Fmovie Alternatieves for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-top-eight-video-grabber-software/"><u>[New] 2024 Approved Top Eight Video Grabber Software</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ritical-channels-for-asmr-lovers-for-2024/"><u>[New] Critical Channels for ASMR Lovers for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-dissecting-ffmpegs-capabilities-for-pure-sound-formats/"><u>[New] Dissecting FFmpeg's Capabilities for Pure Sound Formats</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-best-facebook-video-downloader-and-addons-for-firefox/"><u>[New] In 2024, Best Facebook Video Downloader And Addons for Firefox</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-dive-into-the-world-of-expertise-with-youtubes-top-10-makeup-vloggers/"><u>[New] In 2024, Dive Into the World of Expertise with YouTube's Top 10 Makeup Vloggers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-unleashing-potential-the-best-seo-practices-for-your-youtube-videos/"><u>[New] In 2024, Unleashing Potential The Best SEO Practices for Your YouTube Videos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-unlock-facebook-popularity-discover-best-apps-from-androidiphone/"><u>[New] Unlock Facebook Popularity Discover Best Apps From Android/iPhone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/vating-cold-ideal-snowy-scenes-to-brighten-videos-for-2024/"><u>Captivating Cold Ideal Snowy Scenes to Brighten Videos for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/complete-guide-for-apple-iphone-15-pro-max-lock-screen-drfone-by-drfone-ios/"><u>Complete Guide For Apple iPhone 15 Pro Max Lock Screen | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/digital-zooming-essentials-for-precision-screens-for-2024/"><u>Digital Zooming Essentials for Precision Screens for 2024</u></a></li>
+<li><a href="https://win-lab.techidaily.com/ifinds-ultimate-file-restoration-tool-visual-steps-to-retrieve-deleted-items-infographics/"><u>IFinD's Ultimate File Restoration Tool: Visual Steps to Retrieve Deleted Items [Infographics]</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/cting-youtube-videos-with-angle-rotation-mastery/"><u>Perfecting YouTube Videos with Angle Rotation Mastery</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/recut-studio-for-2024/"><u>PictureCut Studio for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/cket-to-your-youtube-audience-goal-1kplus-for-2024/"><u>Skyrocket to Your YouTube Audience Goal 1K+ for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/top-18-unbeatable-prime-day-discounts-on-laptops-from-leading-brands-like-hp-apple-and-razer-exclusive-offers/"><u>Top 18 Unbeatable Prime Day Discounts on Laptops From Leading Brands Like HP, Apple, and Razer - Exclusive Offers!</u></a></li>
 </ul></div>
 

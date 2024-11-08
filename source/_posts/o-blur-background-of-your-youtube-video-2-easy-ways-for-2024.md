@@ -1,7 +1,7 @@
 ---
 title: "\"How to Blur Background of Your YouTube Video - 2 Easy Ways for 2024\""
-date: 2024-10-28T22:11:40.541Z
-updated: 2024-11-01T20:53:39.909Z
+date: 2024-11-02T04:26:47.464Z
+updated: 2024-11-08T05:02:39.274Z
 tags:
   - ai video
   - ai youtube
@@ -65,13 +65,6 @@ To get a shallow depth of field, make sure your aperture is wide. Do this by set
 
 Creating a bokeh effect is mostly the same, except that it works best when your subject/depth of field is very close to the camera, and you have a light source off in the background. Zoom Lenses do not usually have wide enough apertures to create bokeh backgrounds.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Blur Video Background in Post-Production with [Wondershare Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
 
 If you need to blur the video background after shooting, you can use some video editing software to add the bokeh effect or the tilt-off effect in post-production. Here, I will show you how to do that in Filmora.
@@ -79,16 +72,10 @@ If you need to blur the video background after shooting, you can use some video 
 Filmora is one of the most widely used video editing software among YouTubers. Its user-friendly interface and tutorial guide enables green-hands to start video editing quickly. Besides, you can find many free filters, effects, and elements pre-programmed, so you can use them directly without looking for presets and templates somewhere else.
 
 <!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. Add Bokeh Filter to Video in Filmora
@@ -100,10 +87,10 @@ Note: you should select **Included** to see all bokeh effects pre-programmed in 
 ![ Filmora Bokeh effect ](https://images.wondershare.com/filmora/article-images/filmora9-bokeh-effect.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Double click the bokeh effect to preview the result, and if you find the bokeh effect fits the video, just drop it to the track above the video. And the bokeh filter or overlay will be applied to the video automatically.
@@ -116,13 +103,6 @@ Go to the **Effects** tab and then switch to the **Utility** menu under **Includ
 
 ![ Filmora Tilt-Shift effects ](https://images.wondershare.com/filmora/article-images/tilt-shift-effects.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Here, I will select the **Tilt-Shift Circle** effect and drop it to the track above the video. Now, you can adjust the size, position, and intensity of the tilt-shift circle effect
 
 ![ Filmora Tilt-Shift Circle effect](https://images.wondershare.com/filmora/article-images/apply-tilt-shift-circle-effect.jpg)
@@ -131,7 +111,21 @@ You see, the video background is blurred, and the people are highlighted. Now it
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -154,24 +148,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-becoming-a-trendsetter-youtube-video-tactics/"><u>[New] 2024 Approved Becoming a Trendsetter YouTube Video Tactics</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-direct-conversion-convert-and-upload-mp3-songs-on-youtube/"><u>[New] 2024 Approved Direct Conversion Convert & Upload MP3 Songs on YouTube</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-earning-potential-in-beauty-blogging/"><u>[New] 2024 Approved Earning Potential in Beauty Blogging</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-flavorful-footage-kitchen-film-making-101/"><u>[New] 2024 Approved Flavorful Footage Kitchen Film-Making 101</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-noise-reduction-for-better-video-experiences-on-youtube/"><u>[New] 2024 Approved Noise Reduction for Better Video Experiences on YouTube</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-premium-cutters-the-8-must-have-linux-apps/"><u>[New] 2024 Approved Premium Cutters The 8 Must-Have Linux Apps</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-setting-up-for-success-on-youtube-from-newbie-to-noteworthy-net-gain/"><u>[New] 2024 Approved Setting Up for Success on Youtube From Newbie to Noteworthy Net Gain</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-techniques-for-smooth-audio-transitions/"><u>[Updated] 2024 Approved Techniques for Smooth Audio Transitions</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-perfect-your-strategy-top-rated-techniques-for-video-marketing/"><u>[Updated] Perfect Your Strategy Top-Rated Techniques for Video Marketing</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-ultimate-steps-for-turning-pin-videos-into-music-files-for-2024/"><u>[Updated] Ultimate Steps for Turning Pin Videos Into Music Files for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/advanced-screen-transcriber-for-chromeos-for-2024/"><u>Advanced Screen Transcriber for ChromeOS for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/-higher-views-with-powerful-youtube-tags-for-2024/"><u>Amass Higher Views with #Powerful YouTube Tags for 2024</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/dive-into-advanced-technology-with-tom-your-trusted-guide-to-the-best-gear/"><u>Dive Into Advanced Technology with Tom - Your Trusted Guide to the Best Gear</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/-and-finesse-in-your-gaming-youtube-channel-for-2024/"><u>Flair and Finesse in Your Gaming YouTube Channel for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/1723003652980-fully-optimized-enjoy-the-chaos-of-tiny-tinas-wonderlands-a-complete-fix-for-pc-users/"><u>Fully Optimized: Enjoy the Chaos of Tiny Tina's Wonderlands - A Complete Fix for PC Users!</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-xiaomi-14-ultra-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Xiaomi 14 Ultra to Other Android Devices Devices? | Dr.fone</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/optimizing-live-periscope-video-speed/"><u>Optimizing Live Periscope Video Speed</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/sketch-it-right-top-8-proficient-drawing-apps-for-iphone-users/"><u>Sketch It Right Top 8 Proficient Drawing Apps for iPhone Users</u></a></li>
-<li><a href="https://win11.techidaily.com/the-ultimate-guide-to-skyrocketing-your-workflow-with-windows-apps/"><u>The Ultimate Guide to Skyrocketing Your Workflow with Windows Apps</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-the-ultimate-guide-to-sound-shakers/"><u>[New] In 2024, The Ultimate Guide to Sound Shakers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/he-premier-selection-of-11-costless-yt-moniker-makers/"><u>[New] The Premier Selection of 11 Costless YT Moniker Makers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/he-roadmap-to-superior-click-through-rates-youtube-advertising-mastery-for-2024/"><u>[New] The Roadmap to Superior Click-Through Rates YouTube Advertising Mastery for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-visual-description-programmer/"><u>[Updated] 2024 Approved Visual Description Programmer</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-your-guide-to-50-creative-free-youtube-advertising-options/"><u>[Updated] 2024 Approved Your Guide to 50 Creative, Free YouTube Advertising Options</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-6-ways-to-increase-audience-retention-on-youtube-filmora/"><u>[Updated] 6 Ways To Increase Audience Retention on YouTube - Filmora</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-elevate-your-videography-7-free-sound-effects-collection-for-2024/"><u>[Updated] Elevate Your Videography - 7 Free Sound Effects Collection for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-picks-of-the-year-premium-google-cardboard-vr-gaming/"><u>[Updated] Picks of the Year Premium Google Cardboard VR Gaming</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-rapid-learning-path-for-keying-mastery-for-2024/"><u>[Updated] Rapid Learning Path for Keying Mastery for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-a-complete-strategy-for-superior-animoji-use-on-iphone-x/"><u>2024 Approved A Complete Strategy for Superior Animoji Use on iPhone X</u></a></li>
+<li><a href="https://win-info.techidaily.com/comment-recuperer-des-images-specifiques-a-partir-dun-backup-complet-du-systeme-windows-10-une-methode-etape-par-etape/"><u>Comment Récupérer Des Images Spécifiques À Partir D'un Backup Complet Du Système Windows 10 : Une Méthode Étape Par Étape</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ning-an-editorial-epilogue/"><u>Designing an Editorial Epilogue</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-samsung-galaxy-a20-an-unbeatable-choice-for-value-seekers/"><u>Exploring the Samsung Galaxy A20 - An Unbeatable Choice for Value Seekers</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/guide-deactivating-window-10s-acoustic-amplification-options/"><u>Guide: Deactivating Window 10'S Acoustic Amplification Options</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-google-pixel-8-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Google Pixel 8? | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/navigating-steams-invisible-user-settings/"><u>Navigating Steam's Invisible User Settings</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/prime-your-digital-footprint-efficient-channels-monikers-for-2024/"><u>Prime Your Digital Footprint Efficient Channels' Monikers for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/resolving-phasmophobias-stagnant-progress-at-90-on-startup-screen-for-2am-users/"><u>Resolving Phasmophobia's Stagnant Progress at 90% on Startup Screen for 2Am Users</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/step-by-step-solution-for-enablingrestoring-microphone-sounds-during-a-zoom-video-conference-on-windows-computer/"><u>Step-by-Step Solution for Enabling/Restoring Microphone Sounds During a Zoom Video Conference on Windows Computer</u></a></li>
 </ul></div>
 

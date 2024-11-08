@@ -1,7 +1,7 @@
 ---
 title: "\"Striking Visuals  A Deep Dive Into Optimal YouTube Thumbnail Sizes for 2024\""
-date: 2024-11-01T09:25:00.664Z
-updated: 2024-11-02T07:39:54.281Z
+date: 2024-11-02T02:16:19.433Z
+updated: 2024-11-08T03:02:32.928Z
 tags:
   - ai video
   - ai youtube
@@ -58,10 +58,10 @@ The maximum YouTube thumbnail size must be below 2MB. Keeping the limit in mind 
 Usually, the 16:9 ratio is deemed an ideal choice for any YouTube video aiming high view volume. As it is most widely used in YouTube players and previews.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
+  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Upload and Change a Custom YouTube Thumbnail
@@ -76,6 +76,13 @@ YouTube makes it very simple and easy for any content creator to publish custom 
 
 ![change thumbnail size](https://images.wondershare.com/filmora/article-images/upload-thumbnail-image1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * When your upload to the YouTube is completed a section will appear at the down portion of the browser screen showing **Video Thumbnails**. Here YouTube automatically creates some thumbnail images from your uploaded video and shows them here. These are the screenshots from your video, and you can select any one of them to be your thumbnail.
 
 ![set video thumbnail](https://images.wondershare.com/filmora/article-images/video-thumbnail2.jpg)
@@ -86,28 +93,15 @@ YouTube makes it very simple and easy for any content creator to publish custom 
 ![custom thumbnail size](https://images.wondershare.com/filmora/article-images/custom-thumbnail3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * If you want to update the image or change it with another one you can just click on the same image in the video thumbnail section and swap it with any other image.
 
 ![youtube thumbnail size](https://images.wondershare.com/filmora/article-images/swap-thumbnail4.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1975503">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### 2\. For Already Uploaded Video
 
@@ -124,10 +118,10 @@ To change the thumbnail on an already uploaded video you need to follow these st
 ![best thumbnail size](https://images.wondershare.com/filmora/article-images/change-thumbnail6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
+  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: Q&A-- About YouTube Thumbnail Images
@@ -136,13 +130,6 @@ You may want to know:
 
 * [**Question 1:** **How do I make my youtube thumbnail less than 2mb?**](#question1)
 * [**Question 2:** **How can I create an attractive youtube thumbnail?**](#question2)
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. How do I make my youtube thumbnail less than 2mb?
 
@@ -183,6 +170,13 @@ YouTube thumbnail plays an important part for the audience's first impression on
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -204,20 +198,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-10-top-editing-apps-at-no-cost-online/"><u>[New] 2024 Approved 10 Top Editing Apps at No Cost Online</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-deciphering-facebooks-latest-algorithm-updates/"><u>[New] 2024 Approved Deciphering Facebook's Latest Algorithm Updates</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-making-a-mark-advanced-strategies-for-youtube-video-production/"><u>[New] 2024 Approved Making a Mark Advanced Strategies for YouTube Video Production</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-monetization-mastery-guide-choosing-the-right-platform/"><u>[New] 2024 Approved Monetization Mastery Guide Choosing the Right Platform</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-optimizing-channel-branding-to-skyrocket-subscriber-numbers/"><u>[New] 2024 Approved Optimizing Channel Branding to Skyrocket Subscriber Numbers</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-inside-microsofts-visionary-hololens-innovation/"><u>[Updated] 2024 Approved Inside Microsoft's Visionary HoloLens Innovation</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-guidance-to-rectify-youtube-video-scaling-issues/"><u>2024 Approved Guidance to Rectify YouTube Video Scaling Issues</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-can-i-use-a-fake-gps-without-mock-location-on-xiaomi-redmi-note-12t-pro-drfone-by-drfone-virtual-android/"><u>How Can I Use a Fake GPS Without Mock Location On Xiaomi Redmi Note 12T Pro? | Dr.fone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-why-apple-account-disabled-from-your-iphone-11-pro-max-how-to-fix-by-drfone-ios/"><u>In 2024, Why Apple Account Disabled From your iPhone 11 Pro Max? How to Fix</u></a></li>
-<li><a href="https://games-able.techidaily.com/instant-delight-the-hottest-quick-playing-mobile-apps-for-smartphones/"><u>Instant Delight: The Hottest Quick-Playing Mobile Apps for Smartphones</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/-reduction-for-better-video-experiences-on-youtube-for-2024/"><u>Noise Reduction for Better Video Experiences on YouTube for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/-fire-guide-to-successful-double-exposures/"><u>Rapid-Fire Guide to Successful Double Exposures</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/stellar-storytelling-elevating-posts-with-3-insta-highlight-ways-for-2024/"><u>Stellar Storytelling Elevating Posts with 3 Insta Highlight Ways for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-intricacies-of-grammar-in-learning-languages/"><u>The Intricacies of Grammar in Learning Languages</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1732132-9781885928252-the-key-to-the-true-kabbalah/"><u>The Key to the True Kabbalah | Free Book</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-smooth-scene-grabs-the-top-8-non-lagging-tools/"><u>[New] In 2024, Smooth Scene Grabs The Top 8 Non-Lagging Tools</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/aking-youtube-videos-come-alive-your-ultimate-guide-to-animated-gifs-for-2024/"><u>[New] Making YouTube Videos Come Alive Your Ultimate Guide To Animated GIFs for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-creative-capture-of-sims-4-sagas-innovative-ways-to-record-your-journey-for-2024/"><u>[Updated] Creative Capture of Sims 4 Sagas Innovative Ways to Record Your Journey for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-purchase-pitfalls-steering-clear-from-the-seduction-of-false-subscribers/"><u>[Updated] In 2024, Purchase Pitfalls Steering Clear From the Seduction of False Subscribers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-unlocking-user-generated-content-harnessing-community-influence/"><u>[Updated] In 2024, Unlocking User-Generated Content Harnessing Community Influence</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/effortless-visual-enhancement-auto-scaling-videos-for-mac-instagramers-for-2024/"><u>Effortless Visual Enhancement Auto-Scaling Videos for Mac Instagramers for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-text-messages-from-samsung-galaxy-a34-5g-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Text Messages from Samsung Galaxy A34 5G to New Phone | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-earnings-engineering-crafting-a-high-yield-strategy-for-your-youtube-channel/"><u>In 2024, Earnings Engineering Crafting a High Yield Strategy for Your YouTube Channel</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-nokia-c22-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Nokia C22 | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nt-audience-expansion-with-these-channel-upgrades-for-2024/"><u>Instant Audience Expansion with These Channel Upgrades for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ring-the-art-of-youtube-closings-inclusive-guide-for-2024/"><u>Mastering the Art of YouTube Closings [Inclusive Guide] for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/starting-with-av1-an-essential-overview-for-2024/"><u>Starting with AV1 An Essential Overview for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/stepwise-procedure-elevating-to-virtualbox-version-70-on-windows-11/"><u>Stepwise Procedure: Elevating to VirtualBox Version 7.0 on Windows 11</u></a></li>
+<li><a href="https://techtrends.techidaily.com/top-strategies-for-engaging-in-twitter-interactions-successfully/"><u>Top Strategies for Engaging in Twitter Interactions Successfully</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-in-2024-mastering-audio-clarity-simplified-techniques-for-noise-elimination-in-audacity-and-filmorapro/"><u>Updated In 2024, Mastering Audio Clarity Simplified Techniques for Noise Elimination in Audacity & FilmoraPro</u></a></li>
 </ul></div>
 

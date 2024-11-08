@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Expert Tips  Activating or Deactivating YouTube Comments\""
-date: 2024-09-06T19:05:38.836Z
-updated: 2024-09-07T19:05:38.836Z
+date: 2024-11-04T02:37:21.856Z
+updated: 2024-11-07T23:06:50.473Z
 tags:
   - ai video
   - ai youtube
@@ -14,18 +14,6 @@ keywords: "YouTube Comments Guide,Enable/Disable YouTube Replies,YouTube Comment
 thumbnail: https://thmb.techidaily.com/57ebcefbd038d5518117756c100dd6989f85e0e6cff4615a7e12084a4473983a.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1977023">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Expert Tips: Activating or Deactivating YouTube Comments
 
 # How to Turn on or off Comments on YouTube
@@ -58,12 +46,6 @@ From the bottom of the left pane, click the **Settings** icon, click **Channel**
 
 ![  YouTube Channel Advanced Settings](https://images.wondershare.com/filmora/article-images/youtube-channel-advanced-settings.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### Step 3: Turn Off Comments
 
 From the **Audience** section in the right pane itself, click to select the **Yes, set this channel as made for kids. I always upload content that’s made for kids** radio button. Click **SAVE** from the bottom-right corner to save the changes in order to turn off comments on all the videos on your YouTube channel.
@@ -88,12 +70,6 @@ Back on the **YouTube Studio** page, click **Content** from the left pane. From 
 
 ![ Turn on or off YouTube content commnets settings](https://images.wondershare.com/filmora/article-images/turn-on-off-channel-content-comments-settings.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### **Additional Info about Comments Options**
 
 The four options that become available when you allow the comments on your YouTube channel along with their meaning are:
@@ -135,25 +111,27 @@ From under the **Audience** section in the right window of the **Video details**
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983475">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
 <!-- affiliate ads begin -->
-<span id="1531879">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## FAQs About YouTube Comments
 
 #### 1\. Why can’t I comment on the YouTube video?
@@ -169,6 +147,13 @@ At the time of this writing, YouTube doesn’t allow anyone to post a comment on
 You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **Automated Filters** tab in the right window, add the words to block in the **Blocked words** field. You can add multiple words by separating them with commas. To block the comments with links, check the **Block links** box. Click **SAVE** to save the changes.
 
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
@@ -190,20 +175,18 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 </a>
 <img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -212,4 +195,26 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-obs-techniques-for-clear-skype-screen-recording/"><u>[New] 2024 Approved OBS Techniques for Clear Skype Screen Recording</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-spotlight-on-premium-360cameras-for-professionals/"><u>[New] 2024 Approved Spotlight on Premium 360°Cameras for Professionals</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-the-art-of-game-channel-branding-with-premade-banners/"><u>[New] 2024 Approved The Art of Game Channel Branding with Premade Banners</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-the-elite-club-of-youtubes-favorite-shorter-videos/"><u>[New] 2024 Approved The Elite Club of YouTube's Favorite Shorter Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-the-pinnacle-selector-your-personal-video-vault/"><u>[New] 2024 Approved The Pinnacle Selector Your Personal Video Vault</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-the-ultimate-hash-list-boosting-youtube-views-to-6000plus/"><u>[New] 2024 Approved The Ultimate Hash List Boosting Youtube Views to $6,000+</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-the-ultimate-list-of-free-user-friendly-editing-apps/"><u>[New] 2024 Approved The Ultimate List of Free, User-Friendly Editing Apps</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-unleash-creativity-with-these-8-free-youtube-thumbnail-builders/"><u>[New] 2024 Approved Unleash Creativity with These 8 Free YouTube Thumbnail Builders</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-unlocking-creative-potential-embedding-online-videos-in-slideshows/"><u>[New] 2024 Approved Unlocking Creative Potential Embedding Online Videos in Slideshows</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-youtube-marketing-mastery-crafting-robust-backlinks-for-growth/"><u>[New] 2024 Approved YouTube Marketing Mastery Crafting Robust Backlinks for Growth</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-engaging-stories-through-customized-instagram-quests-for-2024/"><u>[New] Engaging Stories Through Customized Instagram Quests for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-get-ahead-with-these-best-7-android-browsers-without-ads/"><u>[New] In 2024, Get Ahead with These Best 7 Android Browsers Without Ads</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/a-guide-vivo-y100i-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>A Guide Vivo Y100i Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/easy-tutorial-for-activating-icloud-from-apple-iphone-13-mini-safe-and-legal-by-drfone-ios/"><u>Easy Tutorial for Activating iCloud from Apple iPhone 13 mini Safe and Legal</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-change-htc-u23-pro-lock-screen-password-by-drfone-android/"><u>How To Change HTC U23 Pro Lock Screen Password?</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-digital-dollars-kings-and-queens-youtube-edition/"><u>In 2024, Digital Dollars Kings & Queens YouTube Edition</u></a></li>
+<li><a href="https://extra-information.techidaily.com/lightning-fast-the-art-of-windows-file-scanning/"><u>Lightning-Fast The Art of Windows File Scanning</u></a></li>
+<li><a href="https://review-topics.techidaily.com/play-mov-movies-on-xperia-10-v-is-it-possible-by-aiseesoft-video-converter-play-mov-on-android/"><u>Play MOV movies on Xperia 10 V, is it possible?</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/top-rated-mp3-players-expert-review/"><u>Top Rated MP3 Players : Expert Review</u></a></li>
+</ul></div>
 

@@ -1,0 +1,431 @@
+---
+title: "\"[Updated] 2024 Approved  Essential Details on Creating Effective YT Shorts\""
+date: 2024-11-06T00:37:58.027Z
+updated: 2024-11-08T03:50:10.053Z
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "\"This Article Describes [Updated] 2024 Approved: Essential Details on Creating Effective YT Shorts\""
+excerpt: "\"This Article Describes [Updated] 2024 Approved: Essential Details on Creating Effective YT Shorts\""
+keywords: "YT Short Creation,Engaging YouTube Shorts,Video Content Tips,Shortform Video Strategy,Effective YT Videos,Crafting YT Shorts,YouTube Short Success"
+thumbnail: https://thmb.techidaily.com/8e351a495ce579ab157428c084339d1c33794d9d42c306afbe86c4e9778edcf8.jpg
+---
+
+## Essential Details on Creating Effective YT Shorts
+
+YouTube is one of the most leading social media platforms attracting a huge number of people each day. Recently YouTube has launched a new concept known as YouTube shorts which is a short, crisp 60 or fewer seconds of video content. YouTube shorts has been successful in attracting viewers to the platform. Along with the video the platform allows you to write a text which is a YouTube shorts description to give some idea about your video to viewers.
+
+Let’s talk about in YouTube shorts description in detail and learn ways to write on the platform.
+
+#### In this article
+
+01 [What is YouTube Shorts Description?](#part1)
+
+02 [Why is YouTube Shorts Description Important?](#part2)
+
+03 [How do you Write a Description on YouTube Shorts?](#part3)
+
+04 [Tips for Writing Effective YouTube Shorts Description](#part4)
+
+>  Disclaimer: This post includes affiliate links
+>
+>  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
+>
+
+## Part 1: What is YouTube Shorts Description?
+
+YouTube shorts description means a simple text or a message written below to your YouTube shorts giving an idea about the uploaded YouTube shorts video to the viewers.
+
+Such a YouTube short description helps viewers in getting some hint about the video and to decide whether the video is what they are looking for or not. Also, we can also add additional information such as relevant links and hashtags to the video.
+
+![youtube shorts description](https://images.wondershare.com/filmora/article-images/2021/youtube-shorts-description.jpg)
+
+Source: adweek.com
+
+## Part 2: Why is YouTube Shorts Description Important?
+
+YouTube shorts description plays an important role in attracting viewers and growing your channel. There are a few reasons behind is such as
+
+It gives a simple idea and context about your video to viewers.
+
+Attractive and appealing YouTube short descriptions would easily catch the attention of viewers.
+
+It let viewers decide whether the YouTube shorts video is what they are looking for or not.
+
+You can add relevant hashtags to your video in the description as well to gain more views.
+
+![youtube shorts description](https://images.wondershare.com/filmora/article-images/2021/youtube-shorts-description-matter.png)
+
+## Part 3: How do you Write a Description on YouTube Shorts?
+
+Let’s talk about ways to write a YouTube shorts description with easy to follow steps:
+
+**Step 1**: At first you need to open the YouTube homepage and select a Library in the bottom right corner of the screen.
+
+**Step 2**: Once you do that now click on any of your Videos.
+
+**Step 3**: Then after pick a YouTube shorts video where you want to add a description and click on the three dots beside it. You would find a menu where click on edit.
+
+**Step 4**: Now you can add the relevant YouTube shorts description and tags. Then click on save and you are all done.
+
+So you can follow above mentioned easy step guidance and write the most iconic YouTube shorts description on your channel.
+
+## Part 4: Tips for Writing Effective YouTube Shorts Description
+
+There are some of the key points to keep in mind while writing a [YouTube shorts](https://tools.techidaily.com/wondershare/filmora/download/) description. All these tips would surely help your videos gain more views.
+
+### 1\. Be specific
+
+While writing a YouTube shorts description is very important that you are well aware of which keywords to use. Here your choice of keywords will play a key role in ranking your videos up.
+
+### 2\. Do keyword research
+
+If you are not aware of the right keywords about your YouTube shorts then you could take online help of an online keyword planner. You must be including the right keywords on your YouTube shorts description to make it more searchable.
+
+### 3\. Know where to place your keywords
+
+You should make sure to put your primary keywords on the first three sentences only and the reason is that users always would notice on the initial part of your description.
+
+### 4\. Track the keywords
+
+Always keep an eye on knowing which keywords are working and which are not for you. It would help you decide your YouTube shorts description in that manner and generate more traffic.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144279/7443" target="_top" id="2144279">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144279" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144279/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+### 5\. Find other interests of your audience
+
+Along with your video content have a look at what other things are attracting your audience. You can always check out that and based on that plan and deliver your upcoming YouTube shorts.
+
+### Conclusion
+
+Thus YouTube shorts has become already successful in catching the eye of users and allowing the platform to grow. Along with the video, the platform allows users to add YouTube short descriptions to appeal audience in a right and effective manner. We have talked about YouTube shorts description and the importance of it in growing your video channel in detail.
+
+Now it is time for you to pick the right YouTube shorts description for your video and get a maximum number of views on your channel.
+
+02 [Why is YouTube Shorts Description Important?](#part2)
+
+03 [How do you Write a Description on YouTube Shorts?](#part3)
+
+04 [Tips for Writing Effective YouTube Shorts Description](#part4)
+
+## Part 1: What is YouTube Shorts Description?
+
+YouTube shorts description means a simple text or a message written below to your YouTube shorts giving an idea about the uploaded YouTube shorts video to the viewers.
+
+Such a YouTube short description helps viewers in getting some hint about the video and to decide whether the video is what they are looking for or not. Also, we can also add additional information such as relevant links and hashtags to the video.
+
+![youtube shorts description](https://images.wondershare.com/filmora/article-images/2021/youtube-shorts-description.jpg)
+
+Source: adweek.com
+
+## Part 2: Why is YouTube Shorts Description Important?
+
+YouTube shorts description plays an important role in attracting viewers and growing your channel. There are a few reasons behind is such as
+
+It gives a simple idea and context about your video to viewers.
+
+Attractive and appealing YouTube short descriptions would easily catch the attention of viewers.
+
+It let viewers decide whether the YouTube shorts video is what they are looking for or not.
+
+You can add relevant hashtags to your video in the description as well to gain more views.
+
+![youtube shorts description](https://images.wondershare.com/filmora/article-images/2021/youtube-shorts-description-matter.png)
+
+## Part 3: How do you Write a Description on YouTube Shorts?
+
+Let’s talk about ways to write a YouTube shorts description with easy to follow steps:
+
+**Step 1**: At first you need to open the YouTube homepage and select a Library in the bottom right corner of the screen.
+
+**Step 2**: Once you do that now click on any of your Videos.
+
+**Step 3**: Then after pick a YouTube shorts video where you want to add a description and click on the three dots beside it. You would find a menu where click on edit.
+
+**Step 4**: Now you can add the relevant YouTube shorts description and tags. Then click on save and you are all done.
+
+So you can follow above mentioned easy step guidance and write the most iconic YouTube shorts description on your channel.
+
+## Part 4: Tips for Writing Effective YouTube Shorts Description
+
+There are some of the key points to keep in mind while writing a [YouTube shorts](https://tools.techidaily.com/wondershare/filmora/download/) description. All these tips would surely help your videos gain more views.
+
+### 1\. Be specific
+
+While writing a YouTube shorts description is very important that you are well aware of which keywords to use. Here your choice of keywords will play a key role in ranking your videos up.
+
+### 2\. Do keyword research
+
+If you are not aware of the right keywords about your YouTube shorts then you could take online help of an online keyword planner. You must be including the right keywords on your YouTube shorts description to make it more searchable.
+
+### 3\. Know where to place your keywords
+
+You should make sure to put your primary keywords on the first three sentences only and the reason is that users always would notice on the initial part of your description.
+
+### 4\. Track the keywords
+
+Always keep an eye on knowing which keywords are working and which are not for you. It would help you decide your YouTube shorts description in that manner and generate more traffic.
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
+  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+### 5\. Find other interests of your audience
+
+Along with your video content have a look at what other things are attracting your audience. You can always check out that and based on that plan and deliver your upcoming YouTube shorts.
+
+### Conclusion
+
+Thus YouTube shorts has become already successful in catching the eye of users and allowing the platform to grow. Along with the video, the platform allows users to add YouTube short descriptions to appeal audience in a right and effective manner. We have talked about YouTube shorts description and the importance of it in growing your video channel in detail.
+
+Now it is time for you to pick the right YouTube shorts description for your video and get a maximum number of views on your channel.
+
+02 [Why is YouTube Shorts Description Important?](#part2)
+
+03 [How do you Write a Description on YouTube Shorts?](#part3)
+
+04 [Tips for Writing Effective YouTube Shorts Description](#part4)
+
+## Part 1: What is YouTube Shorts Description?
+
+YouTube shorts description means a simple text or a message written below to your YouTube shorts giving an idea about the uploaded YouTube shorts video to the viewers.
+
+Such a YouTube short description helps viewers in getting some hint about the video and to decide whether the video is what they are looking for or not. Also, we can also add additional information such as relevant links and hashtags to the video.
+
+![youtube shorts description](https://images.wondershare.com/filmora/article-images/2021/youtube-shorts-description.jpg)
+
+Source: adweek.com
+
+## Part 2: Why is YouTube Shorts Description Important?
+
+YouTube shorts description plays an important role in attracting viewers and growing your channel. There are a few reasons behind is such as
+
+It gives a simple idea and context about your video to viewers.
+
+Attractive and appealing YouTube short descriptions would easily catch the attention of viewers.
+
+It let viewers decide whether the YouTube shorts video is what they are looking for or not.
+
+You can add relevant hashtags to your video in the description as well to gain more views.
+
+![youtube shorts description](https://images.wondershare.com/filmora/article-images/2021/youtube-shorts-description-matter.png)
+
+## Part 3: How do you Write a Description on YouTube Shorts?
+
+Let’s talk about ways to write a YouTube shorts description with easy to follow steps:
+
+**Step 1**: At first you need to open the YouTube homepage and select a Library in the bottom right corner of the screen.
+
+**Step 2**: Once you do that now click on any of your Videos.
+
+**Step 3**: Then after pick a YouTube shorts video where you want to add a description and click on the three dots beside it. You would find a menu where click on edit.
+
+**Step 4**: Now you can add the relevant YouTube shorts description and tags. Then click on save and you are all done.
+
+So you can follow above mentioned easy step guidance and write the most iconic YouTube shorts description on your channel.
+
+## Part 4: Tips for Writing Effective YouTube Shorts Description
+
+There are some of the key points to keep in mind while writing a [YouTube shorts](https://tools.techidaily.com/wondershare/filmora/download/) description. All these tips would surely help your videos gain more views.
+
+### 1\. Be specific
+
+While writing a YouTube shorts description is very important that you are well aware of which keywords to use. Here your choice of keywords will play a key role in ranking your videos up.
+
+### 2\. Do keyword research
+
+If you are not aware of the right keywords about your YouTube shorts then you could take online help of an online keyword planner. You must be including the right keywords on your YouTube shorts description to make it more searchable.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+### 3\. Know where to place your keywords
+
+You should make sure to put your primary keywords on the first three sentences only and the reason is that users always would notice on the initial part of your description.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+### 4\. Track the keywords
+
+Always keep an eye on knowing which keywords are working and which are not for you. It would help you decide your YouTube shorts description in that manner and generate more traffic.
+
+<!-- affiliate ads begin -->
+<span id="1328683">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+### 5\. Find other interests of your audience
+
+Along with your video content have a look at what other things are attracting your audience. You can always check out that and based on that plan and deliver your upcoming YouTube shorts.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+### Conclusion
+
+Thus YouTube shorts has become already successful in catching the eye of users and allowing the platform to grow. Along with the video, the platform allows users to add YouTube short descriptions to appeal audience in a right and effective manner. We have talked about YouTube shorts description and the importance of it in growing your video channel in detail.
+
+Now it is time for you to pick the right YouTube shorts description for your video and get a maximum number of views on your channel.
+
+02 [Why is YouTube Shorts Description Important?](#part2)
+
+03 [How do you Write a Description on YouTube Shorts?](#part3)
+
+04 [Tips for Writing Effective YouTube Shorts Description](#part4)
+
+## Part 1: What is YouTube Shorts Description?
+
+YouTube shorts description means a simple text or a message written below to your YouTube shorts giving an idea about the uploaded YouTube shorts video to the viewers.
+
+Such a YouTube short description helps viewers in getting some hint about the video and to decide whether the video is what they are looking for or not. Also, we can also add additional information such as relevant links and hashtags to the video.
+
+![youtube shorts description](https://images.wondershare.com/filmora/article-images/2021/youtube-shorts-description.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+Source: adweek.com
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## Part 2: Why is YouTube Shorts Description Important?
+
+YouTube shorts description plays an important role in attracting viewers and growing your channel. There are a few reasons behind is such as
+
+It gives a simple idea and context about your video to viewers.
+
+Attractive and appealing YouTube short descriptions would easily catch the attention of viewers.
+
+It let viewers decide whether the YouTube shorts video is what they are looking for or not.
+
+You can add relevant hashtags to your video in the description as well to gain more views.
+
+![youtube shorts description](https://images.wondershare.com/filmora/article-images/2021/youtube-shorts-description-matter.png)
+
+## Part 3: How do you Write a Description on YouTube Shorts?
+
+Let’s talk about ways to write a YouTube shorts description with easy to follow steps:
+
+**Step 1**: At first you need to open the YouTube homepage and select a Library in the bottom right corner of the screen.
+
+**Step 2**: Once you do that now click on any of your Videos.
+
+**Step 3**: Then after pick a YouTube shorts video where you want to add a description and click on the three dots beside it. You would find a menu where click on edit.
+
+**Step 4**: Now you can add the relevant YouTube shorts description and tags. Then click on save and you are all done.
+
+So you can follow above mentioned easy step guidance and write the most iconic YouTube shorts description on your channel.
+
+## Part 4: Tips for Writing Effective YouTube Shorts Description
+
+There are some of the key points to keep in mind while writing a [YouTube shorts](https://tools.techidaily.com/wondershare/filmora/download/) description. All these tips would surely help your videos gain more views.
+
+### 1\. Be specific
+
+While writing a YouTube shorts description is very important that you are well aware of which keywords to use. Here your choice of keywords will play a key role in ranking your videos up.
+
+### 2\. Do keyword research
+
+If you are not aware of the right keywords about your YouTube shorts then you could take online help of an online keyword planner. You must be including the right keywords on your YouTube shorts description to make it more searchable.
+
+### 3\. Know where to place your keywords
+
+You should make sure to put your primary keywords on the first three sentences only and the reason is that users always would notice on the initial part of your description.
+
+### 4\. Track the keywords
+
+Always keep an eye on knowing which keywords are working and which are not for you. It would help you decide your YouTube shorts description in that manner and generate more traffic.
+
+### 5\. Find other interests of your audience
+
+Along with your video content have a look at what other things are attracting your audience. You can always check out that and based on that plan and deliver your upcoming YouTube shorts.
+
+### Conclusion
+
+Thus YouTube shorts has become already successful in catching the eye of users and allowing the platform to grow. Along with the video, the platform allows users to add YouTube short descriptions to appeal audience in a right and effective manner. We have talked about YouTube shorts description and the importance of it in growing your video channel in detail.
+
+Now it is time for you to pick the right YouTube shorts description for your video and get a maximum number of views on your channel.
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-decoding-second-count-in-20mb-video-files/"><u>[New] Decoding Second Count in 20MB Video Files</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-becoming-a-master-at-the-art-of-engaging-thumbnails/"><u>[New] In 2024, Becoming a Master at the Art of Engaging Thumbnails</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-exploring-genres-a-collection-of-15-innovative-musician-focused-videos/"><u>[New] In 2024, Exploring Genres A Collection of 15 Innovative Musician-Focused Videos</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-the-ultimate-guide-to-iphoneipad-screenshot-tools/"><u>[New] In 2024, The Ultimate Guide to iPhone/iPad Screenshot Tools</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-video-content-battlefront-short-form-supremacy-youtubes-vs-tiktoks/"><u>[New] In 2024, Video Content Battlefront Short Form Supremacy – YouTubes Vs. TikToks</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-revolutionize-your-virtual-engagements-with-advanced-google-meet-customization-for-2024/"><u>[New] Revolutionize Your Virtual Engagements with Advanced Google Meet Customization for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-understanding-income-dynamics-from-trending-youtube-shorts/"><u>[New] Understanding Income Dynamics From Trending YouTube Shorts</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-fundamental-codex-for-online-video-communities/"><u>[Updated] 2024 Approved Fundamental Codex for Online Video Communities</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-avoiding-youtubes-controversial-scrutiny/"><u>[Updated] Avoiding YouTube's Controversial Scrutiny</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-reviving-rural-vistas-sustainable-transition-for-cities/"><u>[Updated] Reviving Rural Vistas Sustainable Transition for Cities</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-teaching-with-video-effective-editing-methods/"><u>[Updated] Teaching with Video Effective Editing Methods</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-ultimate-guide-to-beauty-on-youtube-gear-makeup-tutorials-and-more-for-2024/"><u>[Updated] Ultimate Guide to Beauty on YouTube - Gear, Makeup Tutorials, and More for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/additional-tips-about-sinnoh-stone-for-vivo-x-flip-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Vivo X Flip | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-and-install-soundmax-audio-drivers-for-windows-systems/"><u>Download & Install SoundMax Audio Drivers for Windows Systems</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/te-your-channel-studio-upgrade-vs-beta-shift-for-2024/"><u>Elevate Your Channel Studio Upgrade Vs. Beta Shift for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-migrate-android-data-from-realme-12-5g-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Migrate Android Data From Realme 12 5G to New Android Phone? | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-frp-from-realme-11-pro-by-drfone-android/"><u>In 2024, How to Bypass FRP from Realme 11 Pro?</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-premier-online-entrepreneurs/"><u>In 2024, Premier Online Entrepreneurs</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/imple-guide-to-free-video-embedding-in-articles/"><u>The Simple Guide to Free Video Embedding in Articles</u></a></li>
+</ul></div>
+

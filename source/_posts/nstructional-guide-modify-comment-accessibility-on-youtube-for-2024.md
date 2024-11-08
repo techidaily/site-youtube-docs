@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Instructional Guide  Modify Comment Accessibility on YouTube for 2024\""
-date: 2024-10-28T02:21:44.274Z
-updated: 2024-11-01T22:26:41.072Z
+date: 2024-11-03T22:38:51.886Z
+updated: 2024-11-08T05:43:47.780Z
 tags:
   - ai video
   - ai youtube
@@ -96,10 +96,10 @@ Selecting this option holds all the comments from all the users, and waits for y
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Turn on or Turn off Comments for Specific Videos
@@ -122,13 +122,20 @@ From under the **Audience** section in the right window of the **Video details**
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
@@ -148,10 +155,10 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
@@ -167,13 +174,6 @@ That depends on the nature of the comments. For instance, if you modify the sett
 It is easy to understand **how to turn on comments on YouTube**. The best thing is, the comments are enabled by default, and if you don’t need them, you can simply disable them by configuring the videos or the entire channel as ‘Made for kids’. If the comments on any video were enabled previously, and are disabled later on, the existing comments automatically disappear. They reappear when the comments on the video are reenabled.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -196,24 +196,21 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-techniques-in-motivating-viewers-with-lifestyle-vlogs/"><u>[New] 2024 Approved Techniques in Motivating Viewers with Lifestyle Vlogs</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-the-art-of-youtube-video-trailers-with-filmora-software/"><u>[New] 2024 Approved The Art of YouTube Video Trailers with Filmora Software</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-transforming-viewership-engaging-end-screens-tutorials/"><u>[New] 2024 Approved Transforming Viewership Engaging End Screens Tutorials</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-unlock-video-clarity-adding-captions-on-youtube/"><u>[New] 2024 Approved Unlock Video Clarity Adding Captions on YouTube</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-xbox-extra-storage-best-hdd-options-reviewed/"><u>[Updated] 2024 Approved Xbox Extra Storage Best HDD Options Reviewed</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-leader-of-sensory-media-creation/"><u>2024 Approved Leader of Sensory Media Creation</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/adopting-a-mindful-lifestyle-with-chatgpts-help-techniques-for-daily-meditation/"><u>Adopting a Mindful Lifestyle with ChatGPT's Help: Techniques for Daily Meditation</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/best-vivo-y100t-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>Best Vivo Y100t Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/comprehensive-walkthrough-downloading-an-alternate-web-browser-for-samsung-tv-platforms/"><u>Comprehensive Walkthrough: Downloading an Alternate Web Browser for Samsung TV Platforms</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-achieve-uninterrupted-youtube-experience-across-os-platforms/"><u>In 2024, Achieve Uninterrupted YouTube Experience Across OS Platforms</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-break-free-from-the-norms-crafting-your-own-streamer-identity/"><u>In 2024, Break Free From The Norms Crafting Your Own Streamer Identity</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-curated-online-cinema-top-youtube-essentials/"><u>In 2024, Curated Online Cinema Top YouTube Essentials</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-cutting-edge-methods-to-reduce-youtube-video-size/"><u>In 2024, Cutting-Edge Methods to Reduce YouTube Video Size</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-pause-life360-location-sharing-for-vivo-y27s-drfone-by-drfone-virtual-android/"><u>In 2024, How To Pause Life360 Location Sharing For Vivo Y27s | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/03819829-in-2024-your-life-your-legacy-youtube-videos-that-matter/"><u>In 2024, Your Life, Your Legacy YouTube Videos That Matter.</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/mastering-the-art-of-gameplay-videography-on-a-pc-running-windows-10-for-your-youtube-channel/"><u>Mastering the Art of Gameplay Videography on a PC Running Windows 10 for Your YouTube Channel</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/the-ultimate-list-of-instagram-video-converters-windowsos-x/"><u>The Ultimate List of Instagram Video Converters (Windows/OS X)</u></a></li>
-<li><a href="https://win-blog.techidaily.com/unfreeze-your-battle-royale-experience-fixing-pubg-stuttering-on-desktops/"><u>Unfreeze Your Battle Royale Experience - Fixing PUBG Stuttering on Desktops</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/updated-free-and-paid-android-video-editing-apps-compared-top-10/"><u>Updated Free and Paid Android Video Editing Apps Compared Top 10</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/oost-your-projects-quality-rankings-of-the-best-free-editing-apps-top-9/"><u>[New] Boost Your Projects' Quality Rankings of the Best Free Editing Apps (Top 9)</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-economical-options-best-11-vlogging-gear/"><u>[New] In 2024, Economical Options Best 11 Vlogging Gear</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-boosting-income-with-effective-youtube-short-strategies/"><u>[Updated] 2024 Approved Boosting Income with Effective Youtube Short Strategies</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-accelerate-your-media-top-8-android-picks/"><u>[Updated] Accelerate Your Media Top 8 Android Picks</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-pro-shortcuts-every-youtuber-needs-the-top-20-list-for-2024/"><u>[Updated] Pro Shortcuts Every YouTuber Needs - The Top 20 List for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-superior-streaming-made-simple-enabling-av1-in-youtube/"><u>[Updated] Superior Streaming Made Simple Enabling AV1 in YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-arena-of-achievements-a-million-gaming-milestones/"><u>2024 Approved Arena of Achievements A Million Gaming Milestones</u></a></li>
+<li><a href="https://windows11.techidaily.com/easy-ways-to-revert-personalized-settings-on-windows-11s-search/"><u>Easy Ways to Revert Personalized Settings on Windows 11'S Search</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/fb-content-horizontal-or-vertical-format-debate-for-2024/"><u>FB Content Horizontal or Vertical Format Debate for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/free-download-latest-amd-radeon-driver-pack-for-windows-pcs/"><u>Free Download: Latest AMD Radeon Driver Pack for Windows PCs</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/how-to-update-ati-drivers-for-windows/"><u>How To Update ATI Drivers For Windows</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-is-greyed-out-on-apple-iphone-xr-how-to-bypass-by-drfone-ios/"><u>In 2024, Apple ID is Greyed Out On Apple iPhone XR How to Bypass?</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-charting-youtubes-course-for-video-short-growth-with-funding/"><u>In 2024, Charting YouTube's Course for Video Short Growth with Funding</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-oneplus-nord-3-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On OnePlus Nord 3 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ring-youtube-tvs-features-a-beginners-guide/"><u>Mastering YouTube TV's Features A Beginner's Guide</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/snippet-screenplay-guide/"><u>Snippet Screenplay Guide</u></a></li>
 </ul></div>
 

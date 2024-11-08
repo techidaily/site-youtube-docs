@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] How To Make Good YouTube Banner - Dos and Don’ts\""
-date: 2024-10-27T00:07:41.775Z
-updated: 2024-11-02T02:27:52.836Z
+date: 2024-11-05T06:09:53.649Z
+updated: 2024-11-08T06:07:21.957Z
 tags:
   - ai video
   - ai youtube
@@ -59,10 +59,10 @@ Using patterns for the background of your channel banner can help your channel l
 ![ YouTube Channel Banner Background](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-background.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Should I Use My Face?
@@ -80,6 +80,13 @@ That doesn’t mean you have to hire a photographer to take pictures for your ch
 #### _Don’t: Use Outdated Pictures_
 
 It is always best to use a current photo of yourself. Many times viewers will go and follow you on social media as well. If they see that you have current photos on your social media but not on your channel, they are become confused and perhaps lose interest.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528681/16446" target="_top" id="1528681">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528681" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528681/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: What Should I Write on My Banner?
 
@@ -117,13 +124,6 @@ YouTubers that use tag lines are using their channel as a platform to carry out 
 
 Whether you decide to use descriptive words or a tag line, they will help your channel tremendously by setting expectations for your viewers.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 4: How Can I Make My Channel Art Look Good?
 
 #### _Do: Create Consistent Branding_
@@ -144,26 +144,26 @@ _Joshelle is a YouTuber from Atlanta, GA. She has a YouTube channel called [Elle
 
 Now that you know how to make a good YouTube banner, what will you do next?
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151872/7443" target="_top" id="2151872">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151872" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151872/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Touch Up YouTube Videos with Filmora
 
 [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)features lots of utilities for both video and audio editing. You can change the video speed or change the aspect ratio easily. Besides, there are plentiful filters, elements, effects and overlays built, so you can use them without costing any extra fee.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -187,19 +187,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-twist-your-way-through-youtube-mastering-rotation-techniques/"><u>[New] 2024 Approved Twist Your Way Through YouTube Mastering Rotation Techniques</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-unveiling-youtubes-most-engrossing-virtual-reality-shows/"><u>[New] 2024 Approved Unveiling YouTube's Most Engrossing Virtual Reality Shows</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-youngest-entrepreneur-in-media-lands-fortune-peak/"><u>[New] 2024 Approved Youngest Entrepreneur in Media Lands Fortune Peak</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-youtubes-revenue-boost-new-500-subs-milestone/"><u>[New] 2024 Approved YouTube's Revenue Boost New 500 Subs Milestone</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-unveiling-the-best-tools-to-download-your-favorite-fb-videos-on-firefox-updated-for-2024/"><u>[New] Unveiling the Best Tools to Download Your Favorite FB Videos on FireFox, Updated for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-banishing-bogus-followers-from-instagram-landscape-for-2024/"><u>[Updated] Banishing Bogus Followers From Instagram Landscape for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-motion-graphics-101-key-principles-and-methods/"><u>[Updated] Motion Graphics 101 Key Principles & Methods</u></a></li>
-<li><a href="https://win-dash.techidaily.com/download-the-newest-intel-iris-xe-driver-suite-compatible-with-windows-11/"><u>Download the Newest Intel Iris Xe Driver Suite Compatible with Windows 11</u></a></li>
-<li><a href="https://win-able.techidaily.com/how-to-fix-recurring-war-thunder-game-crashes-top-solutions/"><u>How to Fix Recurring War Thunder Game Crashes : Top Solutions</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-itel-p40-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Itel P40 to Laptop Without USB | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-comparing-profits-from-high-ranking-youtube-videos/"><u>In 2024, Comparing Profits From High-Ranking YouTube Videos</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-creating-heartfelt-youtube-journeys/"><u>In 2024, Creating Heartfelt YouTube Journeys</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/ipods-that-arent-detected-by-itunes-comprehensive-fix-guide/"><u>IPods That Aren't Detected by iTunes? - Comprehensive Fix Guide</u></a></li>
-<li><a href="https://win11.techidaily.com/the-art-of-enlargement-win11-taskbar-icons-reimagined/"><u>The Art of Enlargement: Win11 Taskbar Icons Reimagined</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-navigating-creator-studio-your-expert-manual/"><u>[New] In 2024, Navigating Creator Studio Your Expert Manual</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/he-path-to-success-utilizing-youtube-metrics-effectively/"><u>[New] The Path to Success Utilizing YouTube Metrics Effectively</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-ultimate-guide-to-cost-effective-2024-cloud-services/"><u>[New] Ultimate Guide to Cost-Effective 2024 Cloud Services</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-10-fastest-growing-youtube-channels-to-inspire-you/"><u>[Updated] 10 Fastest Growing YouTube Channels to Inspire You</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-from-behind-the-screen-to-in-front-masterful-guide-on-tiktok-username-transformation/"><u>[Updated] 2024 Approved From Behind the Screen to In Front Masterful Guide on TikTok Username Transformation</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-snap-into-the-loop-mastering-boomerangs-for-max-impact/"><u>[Updated] 2024 Approved Snap Into the Loop Mastering Boomerangs for Max Impact</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-analyzing-pewdiepies-financial-growth-and-revenue/"><u>[Updated] Analyzing PewDiePie’s Financial Growth and Revenue</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-enhance-viewer-engagement-the-top-6-methods-for-higher-youtube-audience-retention-for-2024/"><u>[Updated] Enhance Viewer Engagement The Top 6 Methods for Higher YouTube Audience Retention for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-how-to-safely-capture-your-favorite-youtube-audio-for-free-for-2024/"><u>[Updated] How to Safely Capture Your Favorite YouTube Audio for Free for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-optimize-your-music-experience-the-best-apps-for-turning-spotify-into-youtube/"><u>[Updated] Optimize Your Music Experience The Best Apps for Turning Spotify Into YouTube</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-the-blueprint-strategies-to-profit-from-youtube-adsense/"><u>[Updated] The Blueprint Strategies To Profit From YouTube AdSense</u></a></li>
+<li><a href="https://article-tips.techidaily.com/greatest-copyright-free-pubg-image-anthology-for-2024/"><u>Greatest Copyright-Free PUBG Image Anthology for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-dose-life360-notify-me-when-someone-checks-my-location-on-lava-blaze-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Dose Life360 Notify Me When Someone Checks My Location On Lava Blaze Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-uncover-the-globes-secrets-with-these-youtubers/"><u>In 2024, Uncover the Globe's Secrets with These Youtubers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nd-android-tips-for-silent-youtube-viewing-for-2024/"><u>IOS & Android Tips for Silent YouTube Viewing for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-techniques-for-counteracting-virtual-insults-for-2024/"><u>Proven Techniques for Counteracting Virtual Insults for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/er-hidden-youtube-discussions-for-2024/"><u>Uncover Hidden YouTube Discussions for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/sh-the-potential-of-youtube-videos-through-strategic-chapters-and-segments/"><u>Unleash the Potential of YouTube Videos Through Strategic Chapters and Segments</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/what-is-my-email-address-how-to-find-out/"><u>What Is My Email Address? How to Find Out</u></a></li>
 </ul></div>
 

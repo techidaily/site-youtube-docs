@@ -1,7 +1,7 @@
 ---
 title: Mastering the Blackout Problem in Cyberpunk 2077 for an Uninterrupted Gaming Experience
-date: 2024-10-27T03:52:55.341Z
-updated: 2024-11-02T09:29:07.972Z
+date: 2024-11-04T20:19:50.647Z
+updated: 2024-11-08T02:49:20.148Z
 tags:
   - win11
   - win10
@@ -49,6 +49,14 @@ Finally, Cyberpunk 2077 is released! But it could be very frustrating to encount
 2. Run Driver Easy and click the **Scan Now** button. Driver Easy will then scan your computer and detect any problem drivers.  
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/2019-12-30_11-57-32.jpg)
 3. Click the **Update button** next to the graphics driver to automatically download the correct version of that driver, then you can manually install it.  
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Or click **Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system. (This requires the **[](https://tools.techidaily.com/drivereasy/download/) [Pro version](https://tools.techidaily.com/drivereasy/download/)**  which comes with full support and a 30-day money back guarantee. You’ll be prompted to upgrade when you click Update All.)  
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/2019-12-30_11-58-08.jpg)
 4. Relaunch Cyberpunk 2077 to check.
@@ -58,10 +66,16 @@ Finally, Cyberpunk 2077 is released! But it could be very frustrating to encount
 If your issue continues to occur, you can move to the next fix.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528681/16446" target="_top" id="1528681">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528681" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528681/16446" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424528">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Fix 2: End unnecessary programs
@@ -73,13 +87,6 @@ If your issue continues to occur, you can move to the next fix.
 1. Right-click **your taskbar** and select **Task Manager** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/2019-12-30_12-03-45.jpg)
 2. Right-click the programs you want to close and select **End Task** . Don’t end any program that you’re not familiar with. It may be critical for the functioning of your computer.  
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/2019-12-30_12-07-59.jpg)
 3. Restart Cyberpunk 2077 to see if this fixed your issue.
@@ -94,13 +101,6 @@ If your issue continues to occur, you can move to the next fix.
 2. Click **LIBRARY** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2019/11/2019-11-27_15-04-01.jpg)
 3. Right-click **Cyberpunk 2077**  and select **Properties** .
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 4. Click the **LOCAL FILES** tab, then click **VERIFY INTEGRITY OF GAME FILES** . This could take several minutes. Wait for the process to be complete.  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/10/verify-integrity-of-game-files-Steam-1.jpg)
@@ -123,16 +123,24 @@ If your issue continues to occur, you can move to the next fix.
 3. Click the **Advanced**  tab, and then click **Change** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/2019-12-30_12-18-31.jpg)
 4. Uncheck the box next to **Automatically manage paging file size for all drives** .  
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/2019-12-30_12-18-27-1.jpg)
 5. Click your **C drive** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/2019-12-30_12-18-22.jpg)
 6. Click the option button next to **Custom size** , and then type **4096** in the text box next to **Initial size (MB)**  and **Maximum size (MB)** .Microsoft recommends that you set your virtual memory three times the size of your physical memory (RAM) or 4 GB (4096M), whichever is larger.  
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/2019-12-30_12-18-16.jpg)
@@ -141,13 +149,20 @@ If your issue continues to occur, you can move to the next fix.
 8. Restart your computer and test your game.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If your issue still exists, move to the next fix.
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Fix 5: Reinstall your game
 
@@ -172,35 +187,29 @@ You can follow these simple steps to do a clean boot:
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/msconfig-clean-boot-1.jpg)
 2. In the pop-up window, navigate to the **Services**  tab and check the box before **Hide all Microsoft services** .  
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/msconfig-hide-all-windows-services.jpg)
 3. **Uncheck**  all the services EXCEPT those belong to your video card or sound card manufacturer, such as **Realtek** , **AMD** , **NVIDIA**  and **Intel** . Then click **OK**  to save the changes.  
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
+  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2020/08/msconfig-uncheck-services-clean-boot.jpg)
 4. On your keyboard, press **Ctrl** , **Shift**  and **Esc**  at the same time to open Task Manager, then navigate to the **Startup**  tab.  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/08/task-manager-startup.jpg)
 5. One at a time, select any programs you suspect might be interfering, and click **Disable** .  
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2020/08/task-manager-startup-disable-startup-program.jpg)
 6. Restart your PC and check if Cyberpunk 2077 freezing again.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ---
@@ -224,21 +233,22 @@ You can follow these simple steps to do a clean boot:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-streamlined-approach-to-validate-your-yt-identity/"><u>[New] 2024 Approved Streamlined Approach to Validate Your YT Identity</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-thrifty-filmmaker-best-economical-camera-lineup/"><u>[New] 2024 Approved Thrifty Filmmaker Best Economical Camera Lineup</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-thumbnails-that-captivate-a-professionals-guide-to-visual-lures/"><u>[New] 2024 Approved Thumbnails That Captivate A Professional's Guide to Visual Lures</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-top-12-youtube-game-openers-both-free-and-fee-based-options/"><u>[New] 2024 Approved Top 12 YouTube Game Openers Both Free & Fee-Based Options</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-understanding-and-proficiently-implementing-cc-rights/"><u>[New] 2024 Approved Understanding and Proficiently Implementing CC Rights</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-video-vanishing-act-cutting-duration-on-youtube/"><u>[New] 2024 Approved Video Vanishing Act Cutting Duration on YouTube</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-a-step-by-step-guide-to-making-engaging-audio-promos/"><u>[Updated] A Step-by-Step Guide to Making Engaging Audio Promos</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-stream-your-success-a-step-by-step-guide-to-earning/"><u>[Updated] Stream Your Success A Step-by-Step Guide to Earning</u></a></li>
-<li><a href="https://win-able.techidaily.com/busting-bugs-how-to-keep-house-flipper-2-running-stable-on-windows-or-mac/"><u>Busting Bugs: How to Keep House Flipper 2 Running Stable on Windows or Mac</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/15479120-collect-premium-audio-for-video-editors/"><u>Collect Premium Audio for Video Editors</u></a></li>
-<li><a href="https://techtrends.techidaily.com/discover-the-most-effective-android-smartwatch-apps/"><u>Discover the Most Effective Android Smartwatch Apps</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/revolutionizing-home-security-how-my-experience-with-a-facial-recognition-smart-lock-left-old-school-devices-behind/"><u>Revolutionizing Home Security: How My Experience With a Facial Recognition Smart Lock Left Old-School Devices Behind</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/turbocharge-your-drive-exploring-the-cutting-edge-car-code-readers-and-articles-released-so-far-in-los-angeles-rev/"><u>Turbocharge Your Drive: Exploring the Cutting Edge Car Code Readers and Articles Released So Far In Los Angeles (Rev.)</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/unlocking-the-full-potential-of-zoom-and-fb-live-broadcasts/"><u>Unlocking the Full Potential of ZOOM & FB Live Broadcasts</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/unlocking-the-power-of-smart-lock-a-beginners-guide-for-samsung-galaxy-f14-5g-users-by-drfone-android/"><u>Unlocking the Power of Smart Lock A Beginners Guide for Samsung Galaxy F14 5G Users</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/unlocking-your-device-a-comprehensive-guide-to-ios-17-jailbreaking/"><u>Unlocking Your Device: A Comprehensive Guide to iOS 17 Jailbreaking</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-elevate-everyday-life-through-webcams/"><u>[New] 2024 Approved Elevate Everyday Life Through Webcams</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-outshine-others-expert-tips-on-making-youtube-shorts-pop/"><u>[New] In 2024, Outshine Others Expert Tips on Making YouTube Shorts Pop</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/astering-youtube-revenue-a-complete-playbook-for-2024/"><u>[New] Mastering Youtube Revenue A Complete Playbook for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/hree-easy-ways-to-harvest-youtubes-default-iconography/"><u>[New] Three Easy Ways to Harvest Youtube's Default Iconography</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-tap-into-tagging-techniques-for-6kplus-youtube-vistas/"><u>[Updated] 2024 Approved Tap Into #Tagging Techniques for $6K+ YouTube Vistas</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-transforming-your-vlog-video-structure-with-jump-cuts/"><u>[Updated] 2024 Approved Transforming Your Vlog Video Structure with Jump Cuts</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-blast-from-the-past-top-1980s-vhs-techniques-to-infect-your-edits-with-flair-for-2024/"><u>[Updated] Blast From the Past Top 1980S VHS Techniques to Infect Your Edits with Flair for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-evaluating-earnings-from-one-million-youtube-watches-for-2024/"><u>[Updated] Evaluating Earnings From One Million YouTube Watches for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-building-a-successful-livestream-empire-youtube-edition/"><u>[Updated] In 2024, Building a Successful Livestream Empire YouTube Edition</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/al-domination-worlds-top-10-video-content-kings-and-queens-for-2024/"><u>Digital Domination World's Top 10 Video Content Kings & Queens for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ring-the-youtube-content-manager-toolkit-for-2024/"><u>Exploring the YouTube Content Manager Toolkit for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/guide-setting-up-remote-storage-access-on-macos-devices/"><u>Guide: Setting Up Remote Storage Access on macOS Devices</u></a></li>
+<li><a href="https://techtrends.techidaily.com/how-to-choose-an-ideal-surge-protector-for-home-electronics/"><u>How to Choose an Ideal Surge Protector for Home Electronics</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-the-best-8-vpn-hardware-devices-reviewed-on-oppo-find-n3-flip-drfone-by-drfone-virtual-android/"><u>In 2024, The Best 8 VPN Hardware Devices Reviewed On Oppo Find N3 Flip | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-tips-of-recording-time-lapse-video-on-iphone/"><u>In 2024, Tips of Recording Time Lapse Video on iPhone</u></a></li>
+<li><a href="https://win-remarkable.techidaily.com/simplify-and-conquer-the-ultimate-guide-to-performing-a-flawless-factory-reset-on-your-hp-stream-device/"><u>Simplify and Conquer: The Ultimate Guide to Performing a Flawless Factory Reset on Your HP Stream Device</u></a></li>
+<li><a href="https://techtrends.techidaily.com/troubleshooting-the-notorious-ntdlldll-error-tips-and-fixes-for-all-windows-versions/"><u>Troubleshooting the Notorious ntdll.dll Error: Tips & Fixes for All Windows Versions</u></a></li>
 </ul></div>
 
