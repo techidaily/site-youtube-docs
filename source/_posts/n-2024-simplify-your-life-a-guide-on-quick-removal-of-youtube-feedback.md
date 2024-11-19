@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Simplify Your Life  A Guide on Quick Removal of YouTube Feedback\""
-date: 2024-11-02T19:13:50.770Z
-updated: 2024-11-07T16:01:18.690Z
+date: 2024-11-14T22:27:19.621Z
+updated: 2024-11-18T21:58:11.250Z
 tags:
   - ai video
   - ai youtube
@@ -53,10 +53,10 @@ In this section, we will tell you how you can do it from your desktop.
 You also have the option to report the comment or [hide the user from your channel](https://tools.techidaily.com/wondershare/filmora/download/).
 
 <!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Delete All YouTube Comments from Mobile?
@@ -69,13 +69,6 @@ The steps to deleting someone else’s YouTube comments from your mobile are sim
 4. Once you reach the target comment, click on the three vertical dots at the bottom corner. There should be an option called Remove. Tap on it.
 5. This will create another dialog box on the mobile app where you have to click on Remove again to delete the comment.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How Do You Delete Your Comments from YouTube?
 
 Have you accidentally posted something on a YouTuber’s channel? Are you anxious because you cannot find the comment and delete it?
@@ -87,13 +80,6 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How Do You Delete Your Comments from Your Phone?
 
@@ -129,6 +115,20 @@ To find your History from your desktop, you need to click on the three horizonta
 
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Delete All Your Posted YouTube Comments?
 
 You can also delete all comments you ever posted on any YouTube video by hiding your channel. When you do this, you can hide your video content temporarily. But it will irreversibly erase all your comments throughout YouTube. If you are curious, read on to know how you can do it.
@@ -149,10 +149,10 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
+  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Final Thoughts
@@ -182,22 +182,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-exclusive-secrets-for-windows-11-mastery/"><u>[New] Exclusive Secrets for Windows 11 Mastery</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-superior-image-quality-the-power-of-youtubes-av1-settings/"><u>[New] In 2024, Superior Image Quality The Power of YouTube's AV1 Settings</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-yt-titling-excellence-with-smart-technology/"><u>[New] In 2024, YT Titling Excellence with Smart Technology</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/haring-strategies-maximize-video-impact-from-youtube-to-facebook-for-2024/"><u>[New] Sharing Strategies Maximize Video Impact From YouTube to Facebook for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/nveiling-the-perfect-thumbnail-formula-for-youtube-success/"><u>[New] Unveiling The Perfect Thumbnail Formula for YouTube Success</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-most-popular-free-photography-and-film-archives/"><u>[Updated] 2024 Approved Most Popular Free Photography and Film Archives</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-youtube-recommended-videos-block-the-videos/"><u>[Updated] 2024 Approved YouTube Recommended Videos - Block the Videos</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-academic-archiving-ranking-the-top-10-educators-video-capturers/"><u>[Updated] In 2024, Academic Archiving Ranking the Top 10 Educator's Video Capturers</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-streaming-content-artist/"><u>[Updated] In 2024, Streaming Content Artist</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-mastering-video-avi-into-graphic-image-gif-filmoras-complete-guide/"><u>[Updated] Mastering Video (AVI) Into Graphic Image (GIF) Filmora's Complete Guide</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-brand-your-channel-innovative-banner-templates-for-gamers/"><u>2024 Approved Brand Your Channel Innovative Banner Templates for Gamers</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-without-jailbreak-on-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>How to Fake Snapchat Location without Jailbreak On Apple iPhone 14 | Dr.fone</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-comprehensive-study-on-razers-camera-quality/"><u>In 2024, Comprehensive Study on Razer's Camera Quality</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-nokia-105-classic-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Nokia 105 Classic? | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/r-the-craft-essential-filmmaking-advice-from-youtube-pros-for-2024/"><u>Master the Craft Essential Filmmaking Advice From YouTube Pros for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/top-13-effortless-revenue-strategies-for-newbies-on-reddit/"><u>Top 13 Effortless Revenue Strategies for Newbies on Reddit</u></a></li>
-<li><a href="https://games-able.techidaily.com/top-affordable-pc-boards-for-gamers/"><u>Top Affordable PC Boards for Gamers</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/new-make-stunning-tiktok-videos-using-these-templates/"><u>[New] Make Stunning TikTok Videos Using These Templates</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/he-top-platform-trio-which-one-triumphs-vimeo-youtube-dailymotion-for-2024/"><u>[New] The Top Platform Trio Which One Triumphs – Vimeo, YouTube, Dailymotion for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-which-ios-video-editor-excels-more-cameo-or-filmorago-for-2024/"><u>[New] Which iOS Video Editor Excels More Cameo or FilmoraGo for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-youtube-thumbnail-mastery-size-and-ratio-tactics/"><u>[Updated] 2024 Approved Youtube Thumbnail Mastery Size & Ratio Tactics</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-flash-video-insights-guide/"><u>[Updated] Flash Video Insights Guide</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/a-guide-to-googles-augmented-reality-sticker-features-for-2024/"><u>A Guide to Google's Augmented Reality Sticker Features for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/fake-android-location-without-rooting-for-your-xiaomi-redmi-12-drfone-by-drfone-virtual/"><u>Fake Android Location without Rooting For Your Xiaomi Redmi 12 | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-gps-location-on-realme-c67-4g-easily-and-safely-drfone-by-drfone-virtual-android/"><u>How to Change GPS Location on Realme C67 4G Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-xiaomi-redmi-note-12-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Xiaomi Redmi Note 12 4G? | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/mastering-organization-managed-settings-on-your-windows-pc-a-step-by-step-tutorial/"><u>Mastering Organization-Managed Settings on Your Windows PC: A Step-by-Step Tutorial</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/natures-edge-is-chatbot-support-crucial-for-survival/"><u>Nature's Edge: Is Chatbot Support Crucial for Survival?</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ssional-rapid-thumbnail-artistry-for-valorant-games/"><u>Professional Rapid Thumbnail Artistry for Valorant Games</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/roblox-status-check-server-issues-or-personal-connectivity/"><u>Roblox Status Check: Server Issues or Personal Connectivity?</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ltimate-copyright-strategy-for-online-video-creators/"><u>The Ultimate Copyright Strategy for Online Video Creators</u></a></li>
 </ul></div>
 

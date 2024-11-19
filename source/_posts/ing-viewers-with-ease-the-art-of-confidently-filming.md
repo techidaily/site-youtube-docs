@@ -1,7 +1,7 @@
 ---
 title: "\"Engaging Viewers with Ease  The Art of Confidently Filming\""
-date: 2024-11-04T02:41:29.190Z
-updated: 2024-11-07T22:24:59.309Z
+date: 2024-11-14T21:31:35.686Z
+updated: 2024-11-18T22:00:17.182Z
 tags:
   - ai video
   - ai youtube
@@ -55,13 +55,6 @@ Once all the pieces of the story are captured — including your storytelling, b
 
 Take a look at this example from [Tiffany Alvord](https://www.youtube.com/user/TiffanyAlvord) and notice how there are jump cuts both to skip information that can be assumed by the audience and add the tension to the story she’s telling.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **3\. Surprise and Delight Your Audience**
 
 There is a saying that a great ending to a story is that it is [surprising, yet inevitable](https://www.huffingtonpost.com/david-kudler/writing-the-inevitable-bu%5Fb%5F1630419.html).
@@ -78,6 +71,13 @@ Unlike being invited to a party, there is no obligation when it comes to YouTube
 
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **5\. Compose the Shot**
 
 Vlogging is a visual medium, and while the story is important, what is captured in the frame will play an impactful role in the video as well.
@@ -91,10 +91,10 @@ Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UC
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
-  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **6\. Be Prepared**
@@ -116,6 +116,13 @@ If you speak on camera in a monotone voice, you are not being expressive. Your f
 Consider your audience: they are coming home from school or work, where there were classes and meetings, and the last thing they want to watch is a video of your speaking without energy.
 
 Want to see a vlogger that is awesome at being expressive on camera? Check out [Emma Chamberlain](https://www.youtube.com/channel/UC78cxCAcp7JfQPgKxYdyGrg), if you haven’t already. Every word she says in her video is layered with emotion. We know exactly how she feels.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **8\. Stay Organized**
 
@@ -141,20 +148,13 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -178,22 +178,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/ssessing-your-video-streaming-needs-to-subscribe-or-not-to-subscribe-in-2024/"><u>[New] Assessing Your Video Streaming Needs To Subscribe or Not to Subscribe, In 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ideo-affiliates-a-roadmap-to-financial-growth-for-2024/"><u>[New] Video Affiliates A Roadmap to Financial Growth for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-perfecting-your-look-essential-makeup-tips-and-product-reviews/"><u>[Updated] Perfecting Your Look Essential Makeup Tips & Product Reviews</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-non-gaming-screen-capture-apps-worth-your-time/"><u>2024 Approved Non-Gaming Screen Capture Apps Worth Your Time</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-twitch-revival-tactics-for-forgotten-sessions/"><u>2024 Approved Twitch Revival Tactics for Forgotten Sessions</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-understanding-your-chances-for-regular-youtube-payments/"><u>2024 Approved Understanding Your Chances for Regular YouTube Payments</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ng-edge-tools-free-youtube-intro-creators-for-2024/"><u>Cutting-Edge Tools Free YouTube Intro Creators for 2024</u></a></li>
-<li><a href="https://ai-live-streaming.techidaily.com/facebook-live-shopping-a-comprehensive-guide-for-2024/"><u>Facebook Live Shopping A Comprehensive Guide for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/izing-your-video-with-a-bold-statement/"><u>Finalizing Your Video with a Bold Statement</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-essential-travel-vloggers-the-ultimate-10-list/"><u>In 2024, Essential Travel Vloggers The Ultimate 10 List</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/in-2024-exquisite-online-destinations-for-sparkling-3d-typography/"><u>In 2024, Exquisite Online Destinations for Sparkling 3D Typography</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/in-2024-the-backchannel-bridge-engaging-with-your-audience/"><u>In 2024, The Backchannel Bridge Engaging with Your Audience</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-motorola-moto-g13-drfone-by-drfone-virtual-android/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Motorola Moto G13 | Dr.fone</u></a></li>
-<li><a href="https://win-forum.techidaily.com/navigating-the-top-platforms-in-social-networking-fb-tw-in-yt/"><u>Navigating the Top Platforms in Social Networking: FB, TW, IN, YT</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/navigating-through-chatgpt-plus-a-comprehamoar-on-its-upsides-and-downsides/"><u>Navigating Through ChatGPT Plus: A Comprehamoar on Its Upsides and Downsides</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/t-potential-per-viewer-youtubes-financial-dynamics/"><u>Profit Potential Per Viewer YouTube's Financial Dynamics</u></a></li>
-<li><a href="https://driver-install.techidaily.com/resolving-printer-issues-in-windows-10-system/"><u>Resolving Printer Issues in Windows 10 System</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-mastering-outro-techniques-for-videos/"><u>[New] In 2024, Mastering Outro Techniques for Videos</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-phasecope-pro-top-lightroom-replacements-unveiled/"><u>[New] In 2024, PhaseCope Pro Top Lightroom Replacements Unveiled</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/o-cost-youtube-channels-essential-artistic-templates-for-2024/"><u>[New] No-Cost YouTube Channels Essential Artistic Templates for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/he-artisans-guide-to-animation-enchantment/"><u>[New] The Artisan's Guide to Animation Enchantment</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/roubleshoot-black-screen-woes-in-youtube-playback/"><u>[New] Troubleshoot Black Screen Woes in Youtube Playback</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-the-art-of-video-popularity-secrets-for-youtube-stardom/"><u>[Updated] 2024 Approved The Art of Video Popularity Secrets for YouTube Stardom</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/beat-the-heat-the-ultimate-liquid-cooler-mo-ra-iv-600-packed-with-9-big-fans-and-weighs-over-35lbs-at-just-600/"><u>Beat the Heat: The Ultimate Liquid Cooler MO-RA IV 600, Packed with 9 Big Fans & Weighs over 35Lbs at Just $600</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/eate-content-to-maximize-youtube-follower-count/"><u>Co-Create Content to Maximize YouTube Follower Count</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/discover-the-latest-innovations-from-apples-iphone-16-launch-introducing-glowtime-ai-features-and-new-apple-watch-series-10-all-covered/"><u>Discover the Latest Innovations From Apple’s iPhone 16 Launch: Introducing ‘Glowtime,’ AI Features, and New Apple Watch Series 10 - All Covered</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-in-depth-earnings-analysis-adsense-payout-for-every-1000-viewers-on-youtube/"><u>In 2024, In-Depth Earnings Analysis AdSense Payout for Every 1,000 Viewers on YouTube</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-revealing-top-streamers-expert-tips-on-choosing-right/"><u>In 2024, Revealing Top Streamers Expert Tips on Choosing Right</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-youtube-shorts-mastery-tackling-common-issues/"><u>In 2024, YouTube Shorts Mastery Tackling Common Issues</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/mastering-multi-display-mode-an-in-depth-guide-to-pip-on-edge/"><u>Mastering Multi-Display Mode An In-Depth Guide to PIP on Edge</u></a></li>
+<li><a href="https://article-helps.techidaily.com/mellowing-sound-piece-by-piece-in-fl-for-2024/"><u>Mellowing Sound Piece-by-Piece in FL for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/stuck-at-android-system-recovery-of-vivo-s17-pro-fix-it-easily-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Stuck at Android System Recovery Of Vivo S17 Pro ? Fix It Easily | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/toms-tech-review-comprehensive-guide-by-toms-hardware/"><u>Tom's Tech Review - Comprehensive Guide by Tom's Hardware</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshoot-non-functioning-keys-on-your-hp-laptop-now/"><u>Troubleshoot Non-Functioning Keys on Your HP Laptop Now!</u></a></li>
 </ul></div>
 

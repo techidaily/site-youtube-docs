@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  8 Tips on How to Vlog Confidently Like Popular YouTubers\""
-date: 2024-11-02T23:34:38.060Z
-updated: 2024-11-07T16:35:12.633Z
+date: 2024-11-16T20:36:23.013Z
+updated: 2024-11-18T22:27:31.312Z
 tags:
   - ai video
   - ai youtube
@@ -46,10 +46,10 @@ There will be an urge for you to mimic other vloggers, talking and acting the wa
 Don’t focus on your image, but instead focus on your voice. What makes you different? That is how you will build a proper reputation.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **2\. Tell A Story**
@@ -62,6 +62,19 @@ Once all the pieces of the story are captured — including your storytelling, b
 
 Take a look at this example from [Tiffany Alvord](https://www.youtube.com/user/TiffanyAlvord) and notice how there are jump cuts both to skip information that can be assumed by the audience and add the tension to the story she’s telling.
 
+<!-- affiliate ads begin -->
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **3\. Surprise and Delight Your Audience**
 
 There is a saying that a great ending to a story is that it is [surprising, yet inevitable](https://www.huffingtonpost.com/david-kudler/writing-the-inevitable-bu%5Fb%5F1630419.html).
@@ -69,13 +82,6 @@ There is a saying that a great ending to a story is that it is [surprising, yet 
 The ending needs to be justified even if there is a twist. Everything before that had worked to build up the tension and when it concludes it needs to be logical. However, the ending cannot be something that the audience can guess. Remember those mystery movies where you know who the murderer is after the first few scenes? Yeah… those aren’t satisfying. A good story ends with a surprise, and with everything prior leading up to it.
 
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **4\. Be Inviting**
 
@@ -97,6 +103,13 @@ Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UC
 
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **6\. Be Prepared**
 
 While you can pick up a camera and start vlogging on the fly, being prepared enables you to produce the best video possible. Take a few minutes before you hit record simply to outline the key points you want to talk about and how the video will end, ensuring that after filming you haven’t forgotten a crucial part.
@@ -116,13 +129,6 @@ If you speak on camera in a monotone voice, you are not being expressive. Your f
 Consider your audience: they are coming home from school or work, where there were classes and meetings, and the last thing they want to watch is a video of your speaking without energy.
 
 Want to see a vlogger that is awesome at being expressive on camera? Check out [Emma Chamberlain](https://www.youtube.com/channel/UC78cxCAcp7JfQPgKxYdyGrg), if you haven’t already. Every word she says in her video is layered with emotion. We know exactly how she feels.
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
-  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **8\. Stay Organized**
 
@@ -148,14 +154,14 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959759/19272" target="_top" id="1959759">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959759" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959759/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -178,16 +184,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-embrace-9-festive-feasts-watch-holiday-epics-at-zero-cost-online/"><u>[New] In 2024, Embrace 9 Festive Feasts Watch Holiday Epics at Zero Cost Online!</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-the-editors-codex-innovations-in-youtube-video-formatting/"><u>[New] In 2024, The Editor's Codex Innovations in Youtube Video Formatting</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-youtube-to-avi-tutorial-plus-8-best-youtube-to-avi-converters/"><u>[New] In 2024, YouTube to AVI Tutorial + 8 Best YouTube to AVI Converters</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-enhance-video-visibility-using-creator-studio-wisdom/"><u>[Updated] 2024 Approved Enhance Video Visibility Using Creator Studio Wisdom</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-essential-choice-10-budget-friendly-caption-tools-for-2024/"><u>[Updated] Essential Choice 10 Budget-Friendly Caption Tools for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/apple-watch-ultra-2-news-and-expected-price-release-date-specs-and-more-rumors/"><u>Apple Watch Ultra 2: News and Expected Price, Release Date, Specs; and More Rumors</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/convertir-musica-flac-a-wav-de-manera-gratuita-en-linea-usando-movavi/"><u>Convertir Música Flac a Wav De Manera Gratuita en Línea Usando Movavi</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/download-canon-printer-software-compatible-with-windows-10-8-and-7/"><u>Download Canon Printer Software - Compatible with Windows 10, 8 & 7</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-5-easy-ways-to-change-location-on-youtube-tv-on-lava-yuva-3-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Easy Ways to Change Location on YouTube TV On Lava Yuva 3 | Dr.fone</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/master-the-tech-ultimate-guide-for-projecting-your-laptop-screen-onto-a-tv-using-hdmi/"><u>Master the Tech: Ultimate Guide for Projecting Your Laptop Screen Onto a TV Using HDMI</u></a></li>
-<li><a href="https://win-forum.techidaily.com/the-quintessential-social-media-platforms-a-deep-dive-into-facebook-twitter-instagram-and-youtube/"><u>The Quintessential Social Media Platforms: A Deep Dive Into Facebook, Twitter, Instagram & YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-champion-top-titles-best-free-video-caption-grabs/"><u>[Updated] 2024 Approved Champion Top Titles Best Free Video Caption Grabs</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-top-10-image-editors-and-annotation-tools/"><u>[Updated] 2024 Approved Top 10 Image Editors & Annotation Tools</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-unleash-creativity-filming-and-editing-on-the-go-with-a-phone/"><u>[Updated] 2024 Approved Unleash Creativity Filming & Editing on the Go with a Phone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-apowersoft-screenshot-suite-comprehensive-free-analysis-for-2024/"><u>[Updated] Apowersoft Screenshot Suite Comprehensive Free Analysis for 2024</u></a></li>
+<li><a href="https://win-excellent.techidaily.com/comprehensive-troubleshooting-how-to-repair-file-explorer-issues-and-restore-access/"><u>Comprehensive Troubleshooting: How to Repair File Explorer Issues & Restore Access</u></a></li>
+<li><a href="https://media-tips.techidaily.com/effortless-conversion-transforming-vob-files-into-xvid-format-instantly/"><u>Effortless Conversion: Transforming VOB Files Into XviD Format Instantly</u></a></li>
+<li><a href="https://win-dash.techidaily.com/get-your-windows-8-amd-radeon-graphics-cards-upgraded-free-driver-download/"><u>Get Your Windows 8 AMD Radeon Graphics Cards Upgraded: Free Driver Download</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-making-youtube-audio-mp3s-easily-for-your-mac/"><u>In 2024, Making YouTube Audio MP3s Easily for Your Mac</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-unveiling-carryminatis-channel-economics-ajey/"><u>In 2024, Unveiling CarryMinati's Channel Economics (Ajey)</u></a></li>
+<li><a href="https://win11.techidaily.com/top-8-solutions-how-to-resolve-your-pcmac-video-playback-issues/"><u>Top 8 Solutions: How to Resolve Your PC/Mac Video Playback Issues</u></a></li>
+<li><a href="https://some-skills.techidaily.com/top-zeoid-startups-revealed-in-panzoids-for-2024/"><u>Top Zeoid Startups Revealed in Panzoids for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] A Visual Hook  Creating Captivating YouTube Thumbnails to Drive Traffic\""
-date: 2024-11-02T06:32:43.735Z
-updated: 2024-11-07T20:12:23.578Z
+date: 2024-11-11T21:58:42.132Z
+updated: 2024-11-18T23:36:53.826Z
 tags:
   - ai video
   - ai youtube
@@ -55,6 +55,13 @@ An example of a standard layout could be you in the middle of the screen wearing
 
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **2\. Use Your Face**
 
 People feel automatically connected and drawn into images that make eye contact. This makes thumbnails which feature faces more click-able than thumbnails which don’t, in most genres (i.e. if you make food videos then this may not apply – featuring the food might be more important than featuring your face). [Check out more tips like this here](https://tools.techidaily.com/wondershare/filmora/download/).
@@ -62,10 +69,10 @@ People feel automatically connected and drawn into images that make eye contact.
 Also, if somebody recognizes you in your thumbnail from a previous video of yours, that will go a long way towards making them click.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3\. Use Graphics/Emojis that are On Topic
@@ -75,10 +82,10 @@ Anybody can take a screenshot of themselves in their video and use it as a thumb
 Make sure the images you choose are relevant to the topic of your video.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. Make Your Text Huge
@@ -88,16 +95,10 @@ If you use text in your thumbnail (you don’t have to) then it should be to add
 Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
 
 <!-- affiliate ads begin -->
-<span id="1983588">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5\. Keep it Clutter-Free
@@ -111,13 +112,6 @@ A good rule for text is to use only 1-3 words. That way they won’t clutter you
 Use these tips to make video thumbnails for YouTube, and tell us what kind of results you get!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -140,18 +134,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-assessing-the-longevity-and-support-life-cycle-of-huawei-p10-for-2024/"><u>[New] Assessing the Longevity & Support Life Cycle of Huawei P10 for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-navigating-complex-editing-a-practical-guide-for-youtube-video-creators-on-pc/"><u>[New] In 2024, Navigating Complex Editing A Practical Guide for YouTube Video Creators on PC</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-sharpening-digital-images-through-strategic-zooming/"><u>[New] In 2024, Sharpening Digital Images Through Strategic Zooming</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-tips-for-effortless-sharing-of-musical-selections/"><u>[New] In 2024, Tips for Effortless Sharing of Musical Selections</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/outube-video-magic-advanced-editing-with-premiere-pro/"><u>[New] YouTube Video Magic Advanced Editing with Premiere Pro</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-frosty-frameworks-for-warm-video-productions/"><u>[Updated] 2024 Approved Frosty Frameworks for Warm Video Productions</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-finding-your-audio-voice-match-the-perfect-mic-to-your-channels-character/"><u>[Updated] Finding Your Audio Voice Match the Perfect Mic to Your Channel's Character</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-in-2024-excellent-4k-cameras-and-their-perfect-gimbals/"><u>[Updated] In 2024, Excellent 4K Cameras & Their Perfect Gimbals</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-instantly-accessible-downloading-youtube-playlists-effortlessly/"><u>[Updated] Instantly Accessible Downloading YouTube Playlists Effortlessly</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-mastering-360-degree-edits-in-adobe-premiere-pro/"><u>2024 Approved Mastering 360-Degree Edits in Adobe Premiere Pro</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-premium-drone-fleet-the-ultimate-cinematic-allies/"><u>2024 Approved Premium Drone Fleet The Ultimate Cinematic Allies</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/godfall-critique-underwhelming-narrative-and-gameplay-as-ps5-exclusive-debut/"><u>Godfall Critique: Underwhelming Narrative and Gameplay as PS5 Exclusive Debut</u></a></li>
-<li><a href="https://win-answers.techidaily.com/update-available-enhanced-performance-for-enshrouded-on-windows-systems/"><u>Update Available! Enhanced Performance for 'Enshrouded' On Windows Systems</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/irect-link-between-spotify-and-youtube-the-top-tools-for-music-sharing/"><u>[New] Direct Link Between Spotify and YouTube The Top Tools for Music Sharing</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-engage-viewers-with-an-effortless-youtube-animated-subscribe-button-using-filmora/"><u>[New] In 2024, Engage Viewers with an Effortless YouTube Animated Subscribe Button Using Filmora</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-creating-viral-videos-with-inspiring-tiktok-phrases/"><u>[Updated] 2024 Approved Creating Viral Videos with Inspiring TikTok Phrases</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-essential-details-on-creating-effective-yt-shorts/"><u>[Updated] 2024 Approved Essential Details on Creating Effective YT Shorts</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-quickcam-plus-audio-guide-integration-tool/"><u>[Updated] 2024 Approved QuickCam + Audio Guide Integration Tool</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-quick-paced-fortnite-visual-artistry-for-2024/"><u>[Updated] Quick-Paced Fortnite Visual Artistry for 2024</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-weaving-a-memorable-tiktok-outro-narrative-for-2024/"><u>[Updated] Weaving A Memorable TikTok Outro Narrative for 2024</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/how-to-change-your-location-on-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>How to Change Your Location on Apple iPhone 14 Plus | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/storytellers-sanctum-summit-selections/"><u>Storytellers Sanctum – Summit Selections</u></a></li>
 </ul></div>
 

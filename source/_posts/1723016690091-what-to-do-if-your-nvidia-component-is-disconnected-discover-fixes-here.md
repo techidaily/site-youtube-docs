@@ -1,7 +1,7 @@
 ---
 title: What To Do If Your Nvidia Component Is Disconnected? Discover Fixes Here
-date: 2024-11-06T20:12:01.017Z
-updated: 2024-11-07T23:35:17.929Z
+date: 2024-11-14T20:18:42.618Z
+updated: 2024-11-18T23:24:25.475Z
 tags:
   - win11
   - win10
@@ -45,13 +45,6 @@ Your NVIDIA outputs are grayed out and listed as**Not plugged in** ? Fail to ena
  If you bump into HDMI no sound issues, you can check this article:  
 [How to Fix HDMI No Sound after Connecting Computer to Monitor and TV.](https://tools.techidaily.com/drivereasy/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Fix 2: Update NVIDIA graphics driver
 
  In most cases, if this error persists, you may have faulty or outdated NVIDIA drivers installed. To fix it, you should update your NVIDIA graphics driver to the latest version. Although it seems like a sound card driver issue, many users solved the issue by updating their NVIDIA graphics driver.
@@ -69,28 +62,30 @@ Your NVIDIA outputs are grayed out and listed as**Not plugged in** ? Fail to ena
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/extract.jpg)
 4. After performing the system check, select only**NVIDIA Graphics Driver** . Then click**AGREE AND CONTINUE** .  
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/select.jpg)
 5. Select**Custom(Advanced)** \>**NEXT** .  
-![](https://images.drivereasy.com/wp-content/uploads/2019/12/installation-options.jpg)
-6. Be sure to tick the box next to**Perform a clean installation** , then click**NEXT** .  
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![](https://images.drivereasy.com/wp-content/uploads/2019/12/installation-options.jpg)
+6. Be sure to tick the box next to**Perform a clean installation** , then click**NEXT** .  
 
  (You can uncheck the software you don’t need.)  
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/perform-a-clean-install.jpg)
 7. Follow the on-screen instructions to complete the installation.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 8. Restart your computer for the changes to take effect.
 
  NVIDIA outputs should be showing normally now. If not, you can try the next fix.
@@ -111,6 +106,14 @@ Your NVIDIA outputs are grayed out and listed as**Not plugged in** ? Fail to ena
  Or click**Update All** to automatically download and install the correct version of all the drivers that are missing or out of date on your system. (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  . You will get**full support** and a**30-day money back guarantee** . You’ll be prompted to upgrade when you click Update All.)  
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/update-all-your-drivers-3.jpg)
 4. Restart your computer for the changes to take effect.
+
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
+  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 5. Go to Playback devices and see if the issue has been solved. Your audio output devices should be “ready” instead of “not plugged in” now.
 
  If you need assistance, please contact **Driver Easy’s support** **team** at [**support@drivereasy.com**](https://tools.techidaily.com/drivereasy/download/) .
@@ -124,10 +127,10 @@ Your NVIDIA outputs are grayed out and listed as**Not plugged in** ? Fail to ena
 2. Double click**Display Adapters** , then right click your graphics card driver and select**Properties** .  
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/12/properties.png)
@@ -136,17 +139,17 @@ Your NVIDIA outputs are grayed out and listed as**Not plugged in** ? Fail to ena
 4. Follow the on-screen instructions to proceed.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087234/19272" target="_top" id="2087234">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087234" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087234/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
+  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Fix 4: Use the generic high definition audio device driver
@@ -184,24 +187,21 @@ Your NVIDIA outputs are grayed out and listed as**Not plugged in** ? Fail to ena
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/dentify-the-best-8-services-to-enhance-youtube-engagement-for-2024/"><u>[New] Identify the Best 8 Services to Enhance YouTube Engagement for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-the-quest-for-perfect-balance-top-gimbals-in-dronescapes-for-2024/"><u>[New] The Quest for Perfect Balance Top Gimbals in Dronescapes for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/op-4-free-tools-for-youtube-audio-conversion-to-wav/"><u>[New] Top 4 Free Tools for YouTube Audio Conversion to WAV</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-a-look-at-amazon-primes-biggest-tweeters-and-favorites-in-23/"><u>[Updated] 2024 Approved A Look at Amazon Prime’s Biggest Tweeters and Favorites in '23</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-expert-advice-creating-and-uploading-vr-videos-to-boost-fb-visibility-for-2024/"><u>[Updated] Expert Advice Creating & Uploading VR Videos to Boost FB Visibility for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-from-streams-to-statements-decoding-the-3-step-process-for-calculating-youtube-earnings-for-2024/"><u>[Updated] From Streams to Statements Decoding the 3-Step Process for Calculating YouTube Earnings for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-mastering-income-via-youtube-channel/"><u>[Updated] In 2024, Mastering Income via YouTube Channel</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-setting-up-video-size-on-youtube-complete-tutorial-for-2024/"><u>[Updated] Setting Up Video Size on YouTube Complete Tutorial for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-streamline-your-meetings-with-these-tools/"><u>[Updated] Streamline Your Meetings with These Tools</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-streamline-your-songs-on-youtube-platform-for-2024/"><u>[Updated] Streamline Your Songs on Youtube Platform for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-essential-hd-screenshots-for-mac-limit-156-chars/"><u>2024 Approved Essential HD Screenshots for Mac (Limit 156 Chars)</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-explore-the-best-4k-capture-with-10-mirrorless-models/"><u>2024 Approved Explore the Best 4K Capture with 10 Mirrorless Models</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/ai-powered-video-enhancement-expanding-and-stabilizing-videos-with-advanced-editing-and-transformation-techniques/"><u>AI-Powered Video Enhancement: Expanding and Stabilizing Videos with Advanced Editing & Transformation Techniques</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/youtube-to-avi-perfect-conversion-tools-revealed-for-2024/"><u>From YouTube to AVI Perfect Conversion Tools Revealed for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/1723808072844-how-to-easily-rip-dvd-movies-onto-your-pc-using-windows-11/"><u>How To Easily Rip DVD Movies Onto Your PC Using Windows 11</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/rootjunky-apk-to-bypass-google-frp-lock-for-oppo-a78-by-drfone-android/"><u>Rootjunky APK To Bypass Google FRP Lock For Oppo A78</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ssentials-of-mobile-based-youtube-channel-creation-for-personalbusiness-use/"><u>The Essentials of Mobile-Based YouTube Channel Creation for Personal/Business Use</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ltimate-roadmap-to-understanding-view-counts-and-money-made/"><u>The Ultimate Roadmap to Understanding View Counts & Money Made</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/top-10-ios-and-android-beginner-video-makers-for-2024/"><u>Top 10 iOS & Android Beginner Video-Makers for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/utting-through-the-clutter-how-to-stream-top-notch-upside-down-content-on-youtube-for-2024/"><u>[New] Cutting Through the Clutter How to Stream Top-Notch Upside-Down Content on Youtube for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-visual-identity-shielding-adding-watermark-and-logo-to-youtube-media/"><u>[New] In 2024, Visual Identity Shielding Adding Watermark & Logo to YouTube Media</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-master-the-art-of-attraction-8-proven-techniques-for-reel-success-for-2024/"><u>[New] Master the Art of Attraction 8 Proven Techniques for Reel Success for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-tapping-into-youtubes-affiliate-income-streams-for-2024/"><u>[Updated] Tapping Into YouTube's Affiliate Income Streams for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-the-ultimate-guide-to-leveraging-preview-capabilities-on-a-mac-for-2024/"><u>[Updated] The Ultimate Guide to Leveraging Preview Capabilities on a Mac for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-unravel-the-mystery-of-the-overly-green-hue-in-mac-recordings-for-2024/"><u>[Updated] Unravel the Mystery of the Overly Green Hue in Mac Recordings for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-elite-recording-tools-for-gamers/"><u>2024 Approved Elite Recording Tools for Gamers</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-enhance-team-collaboration-through-effective-microsoft-teams-snap-practices/"><u>2024 Approved Enhance Team Collaboration Through Effective Microsoft Teams Snap Practices</u></a></li>
+<li><a href="https://program-issues.techidaily.com/beat-the-game-breaking-bugs-in-true-colors-your-ultimate-solution-inside/"><u>Beat the Game-Breaking Bugs in 'True Colors' - Your Ultimate Solution Inside!</u></a></li>
+<li><a href="https://games-able.techidaily.com/fortnite-and-mac-the-hidden-limitations-to-avoid/"><u>Fortnite & Mac: The Hidden Limitations to Avoid</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-effortless-shuffle-of-your-youtube-playlists/"><u>In 2024, Effortless Shuffle of Your YouTube Playlists</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-tecno-phantom-v-fold-phones-by-drfone-android/"><u>In 2024, Top 11 Free Apps to Check IMEI on Tecno Phantom V Fold Phones</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/is-the-premium-1900-robovac-and-mop-worth-your-investment-my-one-month-hands-on-experience-smarthomeguide/"><u>Is the Premium $1,900 RoboVac and Mop Worth Your Investment? My One-Month Hands-On Experience | SmartHomeGuide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ookies-guide-to-youtube-entrepreneurship-and-earnings/"><u>The Rookie's Guide to YouTube Entrepreneurship and Earnings</u></a></li>
+<li><a href="https://some-tips.techidaily.com/transforma-audio-units-au-a-formatos-mp4-por-internet-gratis-con-movavi/"><u>Transforma Audio Units (AU) a Formatos MP4 Por Internet Gratis Con Movavi</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/be-masterclass-advanced-techniques-for-video-commentary-embedding/"><u>YouTube Masterclass Advanced Techniques for Video Commentary Embedding</u></a></li>
 </ul></div>
 

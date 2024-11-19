@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Step-by-Step Process for Free YouTube Intro/End Making\""
-date: 2024-11-06T16:18:26.151Z
-updated: 2024-11-07T16:47:44.029Z
+date: 2024-11-11T21:52:46.739Z
+updated: 2024-11-18T19:06:46.478Z
 tags:
   - ai video
   - ai youtube
@@ -83,10 +83,10 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -125,16 +125,10 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -158,15 +152,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-monetizing-mastery-a-triple-step-approach-to-understanding-youtube-revenue/"><u>[Updated] 2024 Approved Monetizing Mastery A Triple Step Approach to Understanding YouTube Revenue</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-unleash-the-power-of-seo-skyrocketing-through-youtube-rankings/"><u>[Updated] 2024 Approved Unleash the Power of SEO Skyrocketing Through YouTube Rankings</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-unwind-youtube-videos-advanced-retrospectives/"><u>[Updated] In 2024, Unwind YouTube Videos Advanced Retrospectives</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-ultimate-list-the-5-most-excellent-slow-motion-cams/"><u>2024 Approved Ultimate List The 5 Most Excellent Slow-Motion Cams</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/acquiring-fluency-in-german-via-dark-on-streaming-platform/"><u>Acquiring Fluency in German via Dark on Streaming Platform</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/getting-your-surface-pen-back-on-track-a-fix-it-guide/"><u>Getting Your Surface Pen Back on Track: A Fix-It Guide</u></a></li>
-<li><a href="https://tools.techidaily.com/hdsentinel/products/"><u>Hdsentinel's Products</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-files-after-iphone-12-pro-factory-reset-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Recover Files after iPhone 12 Pro Factory Reset? | Stellar</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-innovative-audio-techniques-for-your-podcasts/"><u>In 2024, Innovative Audio Techniques for Your Podcasts</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/l-content-to-prominence-leverage-tubebuddys-power/"><u>Propel Content to Prominence Leverage TubeBuddy's Power</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-steps-to-record-voice-memo-on-iphone/"><u>[New] 2024 Approved Steps to Record Voice Memo on iPhone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-reveal-the-best-7-video-streaming-apps-to-go-live-on-youtube-iphoneandroid/"><u>[New] In 2024, Reveal the Best 7 Video Streaming Apps to Go Live on YouTube (iPhone/Android)</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/astering-engagement-your-essential-list-of-15-opener-templates/"><u>[New] Mastering Engagement Your Essential List of 15 Opener Templates</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-ryan-kajis-riches-the-tale-of-youtubes-youngest-mogul/"><u>[Updated] 2024 Approved Ryan Kaji’s Riches The Tale of YouTube's Youngest Mogul</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-step-by-step-manual-for-estimating-youtube-ad-revenue-and-views/"><u>[Updated] 2024 Approved Step-by-Step Manual for Estimating YouTube Ad Revenue & Views</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-connecting-the-dots-televisions-meet-facebook-lives/"><u>[Updated] Connecting the Dots Televisions Meet Facebook Lives</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-download-youtube-snippets-with-perfection-for-2024/"><u>[Updated] Download YouTube Snippets with Perfection for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-crafting-perfect-youtube-short-content-lessons/"><u>[Updated] In 2024, Crafting Perfect YouTube Short Content Lessons</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-unveiling-youtube-pros-tubebuddys-edge/"><u>[Updated] In 2024, Unveiling YouTube Pros TubeBuddy's Edge</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-leading-digital-image-grabbers/"><u>[Updated] Leading Digital Image Grabbers</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-legal-considerations-when-uploading-videos-to-social-network-sites-for-2024/"><u>[Updated] Legal Considerations When Uploading Videos to Social Network Sites for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-premium-selection-top-free-youtube-transcript-apps-for-2024/"><u>[Updated] Premium Selection Top Free YouTube Transcript Apps for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-seconds-spent-watching-a-20mb-video/"><u>2024 Approved Seconds Spent Watching a 20MB Video</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/all-things-micromobility-event-schedules-breaking-news-and-buzzworthy-tidbits/"><u>All Things Micromobility: Event Schedules, Breaking News & Buzzworthy Tidbits</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/cing-user-experience-a-quick-how-to-for-youtube-cc-and-subtitles/"><u>Enhancing User Experience A Quick How-To for YouTube CC & Subtitles</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-spectacular-screenwriting-revealed/"><u>In 2024, Spectacular Screenwriting Revealed</u></a></li>
+<li><a href="https://win-online.techidaily.com/mastering-effective-email-communication-advanced-strategies-with-massmail/"><u>Mastering Effective Email Communication: Advanced Strategies with Massmail</u></a></li>
+<li><a href="https://games-able.techidaily.com/organizing-your-steam-screenshots-effectively/"><u>Organizing Your Steam Screenshots Effectively</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-eliminating-dead-spots-with-the-amplifi-hd-mesh-network/"><u>Ultimate Guide: Eliminating Dead Spots with the Amplifi HD Mesh Network</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  YouTube Has Your Back - Shorts Now Showing Up\""
-date: 2024-11-04T16:11:45.752Z
-updated: 2024-11-08T05:25:06.873Z
+date: 2024-11-12T23:00:12.179Z
+updated: 2024-11-18T22:19:14.824Z
 tags:
   - ai video
   - ai youtube
@@ -79,28 +79,35 @@ Moreover, the option to upload Shorts is now hidden behind the **+** icon. Tap o
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-not-showing-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Fix 2: Check If Shorts Is Available in Your Country
 
 Now, YouTube Shorts is available globally, but there was a phase when YouTube Shorts was a beta feature. It was only available in India and the US, which could be why you could not view Shorts in the YouTube app.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Fix 3: YouTube Shorts Is Mobile-only
 
 As of now, YouTube Shorts is only available on a smartphone because it's still in beta version. However, you can create Shorts via smartphone and the camera option in YouTube mobile app. Hence, there's no point in searching for Shorts on your computer.
 
 You can upload Shorts videos from your laptop. The entire process is similar to uploading a regular video. However, you have to mention #Shorts in the title and description to differentiate it as a Shorts video.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Common Fixes to YouTube Shorts Not Working
 
@@ -146,6 +153,13 @@ We recommend Wondershare Filmora because it is a production and post-production 
 
 [![Download Filmora Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Moreover, a YouTube Shorts video can be made through Wondershare Filmora using the below-mentioned guide.
 
 **Note:** We are assuming that you have already recorded a vertical video using your smartphone and that it has been transferred to your PC.
@@ -166,27 +180,20 @@ You can choose among three ways to open the Auto Reframe feature in Filmora.
 
 ![filmora](https://images.wondershare.com/filmora/guide/1-auto-reframe-option.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * **Way 2:** Import media as **File** \> **Import Media Files** and select the file. After you import the media, right-click and choose the **Auto Reframe**.
 
 ![filmora](https://images.wondershare.com/filmora/guide/2-auto-reframe-timeline.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * **Way 3:** Lastly, you can choose the **Tools** option on the top menu bar and hit the **Auto Reframe**.
 
 ![filmora](https://images.wondershare.com/filmora/guide/3-auto-reframe-tools.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 2\. Adjust the Aspect Ratio and Motion Speed**
 
@@ -195,13 +202,6 @@ A separate dialog box will display once you have selected the **Auto Reframe** o
 There are multiple aspect ratio templates available such as square (1:1), vertical (9:16), standard (4:3), widescreen (16:9), and cinema (21:9). As you are making YouTube Shorts, so you need to select **9:16**.
 
 ![filmora](https://images.wondershare.com/filmora/guide/4-select-reframing-aspect-ratio.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 You can adjust the speed of your video in multiple options: keep it at **Auto** or make it **Slow** or **Fast** as per your requirements.
 
@@ -215,6 +215,19 @@ Then the video will be automatically and quickly reframed to your specified spee
 
 ![filmora](https://images.wondershare.com/filmora/guide/7-restart-reframing.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 4\. Preview the Reframed Video and Check**
 
 Lastly, you can preview your final video. If the video needs more work, you can also play and pause it at the point you want to adjust the frame. You can use **Next Edit Point**, **Undo**, **Redo**, and **Previous Edit Point** at the bottom panel.
@@ -226,10 +239,10 @@ Finally, after all the final adjustments, you can hit the **Export** tab, name y
 ![filmora](https://images.wondershare.com/filmora/guide/9-export-reframed-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: FAQs about YouTube Shorts
@@ -272,19 +285,6 @@ However, we've mainly defined the editing part of Wondershare Filmora except cre
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1977032">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -306,22 +306,24 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/oost-your-videos-reach-prime-time-strategy/"><u>[New] Boost Your Video's Reach Prime Time Strategy</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-compact-guide-to-free-live-streaming-apps-on-mobile-devices-for-2024/"><u>[New] Compact Guide to Free Live Streaming Apps on Mobile Devices for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/loggers-money-saving-camera-recommendations/"><u>[New] Vloggers' Money-Saving Camera Recommendations</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-strategies-for-optimal-featured-channels-in-youtubes-algorithm-for-2024/"><u>[Updated] Strategies for Optimal Featured Channels in YouTube's Algorithm for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-unleash-creativity-with-youtube-list-mix-ups-for-2024/"><u>[Updated] Unleash Creativity with YouTube List Mix-Ups for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-streamlining-youtube-videos-adding-subtitles-and-cc-proficiently/"><u>2024 Approved Streamlining YouTube Videos Adding Subtitles & CC Proficiently</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-the-new-age-of-youtube-branding-ideal-channel-titles-for-video-blogging-limited-to-156-characters/"><u>2024 Approved The New Age of YouTube Branding Ideal Channel Titles for Video Blogging (Limited to 156 Characters)</u></a></li>
-<li><a href="https://ai-voice.techidaily.com/best-4-morgan-freeman-voice-generator-tools-for-voice-cloning-for-2024/"><u>Best 4 Morgan Freeman Voice Generator Tools for Voice Cloning for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/vering-and-perfecting-your-individual-style/"><u>Discovering & Perfecting Your Individual Style</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/explore-8-premium-websites-for-3d-text-psdfiles/"><u>Explore 8 Premium Websites for 3D Text PSDFiles</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-techniques-to-transfer-data-from-google-pixel-fold-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Techniques to Transfer Data from Google Pixel Fold to iPhone 15/14/13/12 | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-making-sense-of-mukbangs-crafting-foodie-streams/"><u>In 2024, Making Sense of Mukbangs Crafting Foodie Streams</u></a></li>
-<li><a href="https://app-tips.techidaily.com/mastering-apples-icloud-family-sharing-an-in-depth-tutorial-for-seamless-collaboration/"><u>Mastering Apple's iCloud Family Sharing - An In-Depth Tutorial for Seamless Collaboration</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/microsoft-elevates-bing-with-cutting-edge-ai-get-ready-for-an-innovative-search-experience/"><u>Microsoft Elevates Bing with Cutting-Edge AI – Get Ready for an Innovative Search Experience</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/picmetamorphosis-techniques-for-shape-alteration/"><u>PicMetamorphosis Techniques for Shape Alteration</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/realtek-usb-based-card-reader-software-free-download-for-windows-10/"><u>Realtek USB-Based Card Reader Software - Free Download for Windows 10</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-100-camera-guide-for-instant-shots/"><u>The Ultimate $100 Camera Guide for Instant Shots</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/rafting-a-hit-on-youtube-name-generation-insights/"><u>[New] Crafting a Hit on YouTube Name Generation Insights</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/eciphering-the-divergent-aspects-of-youtubes-and-dailymentions/"><u>[New] Deciphering the Divergent Aspects of YouTubes & DailyMentions</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-high-speed-window-pictorial-interface/"><u>[New] High-Speed Window Pictorial Interface</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/dentifying-causes-for-disappearing-youtube-shorts-thumbnails/"><u>[New] Identifying Causes for Disappearing YouTube Shorts Thumbnails</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-decoding-unlisted-videos-a-deep-dive-into-youtube-secrecy/"><u>[New] In 2024, Decoding Unlisted Videos A Deep Dive Into YouTube Secrecy</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-youtube-conversion-guide-top-8-picks-for-avi-enthusiasts/"><u>[New] In 2024, YouTube Conversion Guide Top 8 Picks for AVI Enthusiasts</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/erfect-your-video-a-comprehensive-guide-to-ideal-thumbnail-heights/"><u>[New] Perfect Your Video A Comprehensive Guide to Ideal Thumbnail Heights</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ush-boundaries-with-unique-split-screen-videos-for-youtube-for-2024/"><u>[New] Push Boundaries with Unique Split-Screen Videos for YouTube for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-mastering-youtubes-defense-confronting-critics/"><u>[Updated] 2024 Approved Mastering YouTube's Defense Confronting Critics</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-swiftly-adapt-video-formats-for-mac-pixels/"><u>[Updated] Swiftly Adapt Video Formats for MAC Pixels</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/60419594-2024-approved-how-to-block-youtube-channels-on-computer-and-mobile-phones/"><u>2024 Approved How to Block Youtube Channels on Computer and Mobile Phones</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/elevate-gameplay-upgrade-to-the-latest-asus-970-pro-graphics-card/"><u>Elevate Gameplay: Upgrade to the Latest Asus 970 Pro Graphics Card</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/enhance-visual-harmony-editing-for-instagram-standards-for-2024/"><u>Enhance Visual Harmony Editing for Instagram Standards for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/free-online-converter-webp-images-to-png-format-by-movavi/"><u>Free Online Converter: WebP Images to PNG Format by Movavi</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-fix-iphone-se-2022-could-not-be-activatedreached-issue-by-drfone-ios/"><u>In 2024, How To Fix iPhone SE (2022) Could Not Be Activated/Reached Issue</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-why-is-ipogo-not-working-on-nokia-c300-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Nokia C300? Fixed | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/navigating-with-ease-a-step-by-step-guide-to-androids-one-handed-mode-features/"><u>Navigating with Ease: A Step-by-Step Guide to Android's One-Handed Mode Features</u></a></li>
+<li><a href="https://fox-info.techidaily.com/top-7-camcorders-for-extreme-weather-and-splashes-review/"><u>Top 7 Camcorders for Extreme Weather and Splashes Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-pick-for-economical-dashcams-a-comprehensive-look-at-the-z-edge-z3-plus/"><u>Top Pick for Economical Dashcams - A Comprehensive Look at the Z-Edge Z3 Plus</u></a></li>
 </ul></div>
 

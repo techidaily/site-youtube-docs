@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  DIY Guide to Turning YouTube Screen Time Into a FREE Screencast\""
-date: 2024-10-31T21:01:10.329Z
-updated: 2024-11-07T18:16:46.039Z
+date: 2024-11-17T18:59:45.362Z
+updated: 2024-11-18T21:38:27.130Z
 tags:
   - ai video
   - ai youtube
@@ -54,13 +54,6 @@ For macOS 10.12 or later
 
 ![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg)Secure Download
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Recording Screencast Video with YouTube
 
 Step 1: Open YouTube on your computer and sign by using your Google Account. On the top left corner, you will find the Upload button, press it and go to live streaming section and choose events from the drop-down menu. When you are doing this for the very first time, YouTube will ask your phone number to verify the streaming process. You can also click [here to get to the Livestreaming page directly.](https://www.youtube.com/live%5Fdashboard)
@@ -70,10 +63,10 @@ Step 2: On the create an event page, add a title for your screencast video; set 
 ![YouTube ScreenCast ](https://images.wondershare.com/filmora/article-images/youtube-screencast-events.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step 3: The Hangout on Air page will get opened. It will allow you to select-deselect webcam recording as well as mic recording.
@@ -83,20 +76,13 @@ Step 4: Hit the screen share button from the left toolbox and choose the desktop
 ![YouTube ScreenCast ](https://images.wondershare.com/filmora/article-images/youtube-screencast-hangouts.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step 5: When your video is ready to go to YouTube video dashboard and choose your recent screencast video. Download it to Google Drive and share it with the world.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## A better way to record Screencast and Upload to YouTube
 
@@ -119,11 +105,25 @@ Let's watch the video below to check how to record your screen with Filmora and 
 
 [![Download Filmora X Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora X Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Conclusion
 
 With all impressive features, there is no doubt to say that Filmora can serve your screencasting needs in the best possible manner. Whether you are a crazy gamer interested to share your adventure videos with the world or want to create useful tutorials for your audience, Filmora is your best companion for all your needs.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2002018/7443" target="_top" id="2002018">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002018" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002018/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -146,19 +146,19 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/oogle-meet-go-live-your-youtube-broadcast-companion/"><u>[New] Google Meet Go Live - Your YouTube Broadcast Companion</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-precision-problem-solving-for-youtube-short-success/"><u>[New] In 2024, Precision Problem-Solving for YouTube Short Success</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/he-economics-of-evaluating-everything-on-electronic-streams-for-2024/"><u>[New] The Economics of Evaluating Everything on Electronic Streams for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-chortlechaos-dive-deep-into-meme-genesis-for-2024/"><u>[Updated] ChortleChaos Dive Deep Into Meme Genesis for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-engage-viewers-beyond-individual-watches/"><u>[Updated] In 2024, Engage Viewers Beyond Individual Watches</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-youtube-content-creators-optimal-stabilizer-companies-for-2024/"><u>[Updated] YouTube Content Creators Optimal Stabilizer Companies for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-online-visionaries-subscriber-play-button-triumphs/"><u>2024 Approved Online Visionaries Subscriber, Play Button Triumphs</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/comprehvew-adding-descriptive-texts-to-your-instagram-story-content/"><u>Comprehvew: Adding Descriptive Texts to Your Instagram Story Content</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-music-from-oneplus-nord-3-5g-by-fonelab-android-recover-music/"><u>Easy steps to recover deleted music from OnePlus Nord 3 5G</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/essential-srt-knowledge-for-all-levels/"><u>Essential SRT Knowledge for All Levels</u></a></li>
-<li><a href="https://video-capture.techidaily.com/expert-advice-on-gaming-capture-with-windows-10/"><u>Expert Advice on Gaming Capture with Windows 10</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/o-get-paid-to-review-products-on-youtube/"><u>How to Get Paid to Review Products on YouTube</u></a></li>
-<li><a href="https://win11.techidaily.com/step-by-step-guide-to-overcoming-package-access-problems-in-ws11ws10/"><u>Step-by-Step Guide to Overcoming Package Access Problems in WS11/WS10</u></a></li>
-<li><a href="https://fox-within.techidaily.com/1728489537273-windows-115/"><u>データ損失を防ぐため、Windows 11で効果的なバックアップ方法をご紹介！5つのキーポイント</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ast-track-to-excellent-valorant-thumbnails-artistry-for-2024/"><u>[New] Fast-Track to Excellent Valorant Thumbnails Artistry for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-expert-advice-enhancing-control-over-snapchat-video-speed/"><u>[New] In 2024, Expert Advice Enhancing Control Over Snapchat Video Speed</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-journey-journaling-paving-your-way-in-the-world-of-travel-vlogging/"><u>[Updated] 2024 Approved Journey Journaling Paving Your Way in the World of Travel Vlogging</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-tactical-approaches-to-youtube-revenue-with-adsense/"><u>[Updated] 2024 Approved Tactical Approaches to YouTube Revenue with AdSense</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-immerse-in-youtubes-best-vr-visual-feasts-for-2024/"><u>[Updated] Immerse in YouTube's Best VR Visual Feasts for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-crafting-the-perfect-schedule-for-jobs-and-youtube/"><u>[Updated] In 2024, Crafting the Perfect Schedule for Jobs & YouTube</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/how-to-download-updated-nvidia-quadro-rtx-8000-drivers-for-windows-users-on-win-10-8-or-7-platforms/"><u>How to Download Updated Nvidia Quadro RTX 8000 Drivers for Windows Users on Win 10, 8 or 7 Platforms</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-iphone-12-official-method-to-unlock-your-iphone-12-by-drfone-ios/"><u>In 2024, How To Unlock iPhone 12 Official Method to Unlock Your iPhone 12</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-nokia-g310-drfone-by-drfone-virtual-android/"><u>In 2024, Simple and Effective Ways to Change Your Country on YouTube App Of your Nokia G310 | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/mastering-bluetooth-setup-seamless-integration-with-windows-1110/"><u>Mastering Bluetooth Setup: Seamless Integration with Windows 11/10</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/maxoak-185wh-50000mah-rechargeable-power-unit-evaluation-the-ultimate-all-in-one-energy-solution-for-tech-enthusiasts/"><u>MaxOak 185Wh / 50,000mAh Rechargeable Power Unit Evaluation – The Ultimate All-in-One Energy Solution for Tech Enthusiasts</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/play-store-not-working-on-vivo-y78-5g-8-solutions-inside-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Not Working On Vivo Y78 5G? 8 Solutions Inside | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/the-updated-method-to-bypass-motorola-defy-2-frp-by-drfone-android/"><u>The Updated Method to Bypass Motorola Defy 2 FRP</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-2024-approved-speech-recognition-to-mp3-seamless-integration-across-devices-and-oses/"><u>Updated 2024 Approved Speech Recognition to MP3 Seamless Integration Across Devices and OSes</u></a></li>
 </ul></div>
 

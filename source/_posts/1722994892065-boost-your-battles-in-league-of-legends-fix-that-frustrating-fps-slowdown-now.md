@@ -1,7 +1,7 @@
 ---
 title: Boost Your Battles in League of Legends - Fix That Frustrating FPS Slowdown Now!
-date: 2024-11-05T04:25:52.801Z
-updated: 2024-11-07T19:39:10.734Z
+date: 2024-11-14T19:08:30.656Z
+updated: 2024-11-18T19:38:56.004Z
 tags:
   - win11
   - win10
@@ -86,25 +86,11 @@ There are two ways to update your graphics driver: **manually**  and **automatic
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap759.png)
 3. Click **Update**  next to your graphics card to automatically download the correct version of its driver, then you can install it manually. Or click **Update All**  to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click **Update All.**  You get **full support** and a **30-day money back** guarantee  ).  
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap760.png)  
  You can do it for free if you like, but it’s partly manual.  
  If you need assistance, please contact**Driver Easy’s support team** at[**support@drivereasy.com**](https://tools.techidaily.com/drivereasy/download/) .
 
  See if this issue is fixed after you updated your graphics driver. If not, try the next fix, below.
-
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **Fix 3: Modify your graphics card settings**
 
@@ -123,14 +109,21 @@ There are two ways to update your graphics driver: **manually**  and **automatic
 3. Select **NVIDIA Control Panel**  to open it.  
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap763.png)
 4. Click **3D Settings**  and select   **Adjust image settings with preview** . Then select **Use my preference emphasizing**  and **drag the slider to the left**  .  
-![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap764.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975503">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap764.png)
 
 #### **If you’re using AMD graphics card:**
 
@@ -138,21 +131,14 @@ There are two ways to update your graphics driver: **manually**  and **automatic
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap765.png)
 2. View Control Panel by   **Large icons**  .  
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap766.png)
 3. Select your **AMD Radeon Settings**   to open it.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 4. Go to **Gaming**  **\>**  **Global Settings**  . Then modify the settings the same way you see on the screenshot below.  
@@ -167,31 +153,46 @@ There are two ways to update your graphics driver: **manually**  and **automatic
 3. Select **Intel Graphics Settings**  to open it.  
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap770.png)
 4. Click **3D**  to open the 3D settings.  
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap771.png)
 5. Click **Scan**  to add your **League of Legends**  to the application list.  
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap772.png)
 6. Modify the settings the same way you see on the screenshot below.  
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap773.png)
 7. Click **Apply**  to save the settings.  
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap774.png)
 
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Run League of Legends again to see if the FPS will drop or not. If this issue reappears, don’t worry, try the next fix, below.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **Fix 4: Enable low spec mode**
 
@@ -202,14 +203,14 @@ There are two ways to update your graphics driver: **manually**  and **automatic
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap777.png)
 3. **Check the box** next to**Enable Low Spec Mode** and click**DONE** .  
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap778.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Run League of Legends to see if you resolved this issue. If not, try the next fix, below.
 
@@ -223,6 +224,14 @@ There are two ways to update your graphics driver: **manually**  and **automatic
 3. Click**Initiate Full Repair** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap779-1.png)
 4. Click**Yes** to continue. This may take a while.  
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap780.png)
 
  See if you fixed this issue after the full repair process completed. If this issue reappears, try the next fix, below.
@@ -264,21 +273,20 @@ Run League of Legends to see if you resolved this issue.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-top-vhs-80s-effects-to-use-in-video-editing/"><u>[New] 2024 Approved Top VHS 80S Effects to Use in Video Editing</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-finding-the-highlighted-online-discourse/"><u>[New] In 2024, Finding the Highlighted Online Discourse</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-youtube-rankings-secrets-enhancing-video-visibility/"><u>[Updated] 2024 Approved YouTube Rankings Secrets Enhancing Video Visibility</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-eliminating-odd-shades-a-step-by-step-guide-to-flawless-greenscreens-for-2024/"><u>[Updated] Eliminating Odd Shades A Step-by-Step Guide to Flawless Greenscreens for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-infographic-forecast-the-2023-social-landscape/"><u>[Updated] In 2024, Infographic Forecast The 2023 Social Landscape</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-yotube-success-crafting-unforgettable-music-reaction-content/"><u>[Updated] YoTube Success Crafting Unforgettable Music Reaction Content</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-analyzing-instagrams-per-video-timeframe/"><u>2024 Approved Analyzing Instagram's Per-Video Timeframe</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-initiate-your-facebook-analysis-journey/"><u>2024 Approved Initiate Your Facebook Analysis Journey</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-unleashing-the-power-of-youtube-to-mp3-conversion/"><u>2024 Approved Unleashing the Power of YouTube-to-MP3 Conversion</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/d-the-scenes-filmmaking-tips-from-youtube-experts/"><u>Behind-the-Scenes Filmmaking Tips From YouTube Experts</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-5-quick-methods-to-bypass-nubia-z50s-pro-frp-by-drfone-android/"><u>In 2024, 5 Quick Methods to Bypass Nubia Z50S Pro FRP</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-about-samsung-galaxy-s24plus-frp-bypass-by-drfone-android/"><u>In 2024, About Samsung Galaxy S24+ FRP Bypass</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/xcellence-leading-apps-to-unlock-youtube-videos/"><u>IOS Excellence Leading Apps to Unlock YouTube Videos</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/online-kostenloos-bewerken-van-3gpp-naar-wmv-door-movavi-de-windeklading-voor-proficienten/"><u>Online Kostenloos Bewerken Van 3GPP Naar WMV Door Movavi: De Windeklading Voor Proficiënten</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unmatched-excellence-a-comprehensive-test-of-speedlite-430ex-iii-rt/"><u>Unmatched Excellence: A Comprehensive Test of Speedlite 430EX III-RT</u></a></li>
-<li><a href="https://fox-that.techidaily.com/1721464012385-why-cant-your-iphone-get-texts-from-an-android-phone-find-the-solution-now/"><u>Why Can't Your iPhone Get Texts From an Android Phone? Find the Solution Now!</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-key-techniques-for-a-thorough-review-of-youtube-stats/"><u>[New] 2024 Approved Key Techniques for a Thorough Review of YouTube Stats</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-cut-the-cost-not-your-content-quality-try-these-top-8-free-tools/"><u>[New] Cut The Cost, Not Your Content Quality - Try These Top 8 Free Tools</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-sky-high-selfies-and-beyond-an-insightful-analysis-of-dji-spark/"><u>[New] In 2024, Sky High Selfies and Beyond An Insightful Analysis of DJI Spark</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/he-small-business-video-marketing-playbook/"><u>[New] The Small Business Video Marketing Playbook</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-ultimate-list-premier-networks-for-live-viewing-for-2024/"><u>[New] Ultimate List Premier Networks for Live Viewing for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-unlocking-the-potential-of-wide-angle-360-photos-for-2024/"><u>[New] Unlocking the Potential of Wide Angle 360 Photos for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-the-blueprint-for-successful-valorant-thumbnails-on-social-media-platforms/"><u>[Updated] 2024 Approved The Blueprint for Successful Valorant Thumbnails on Social Media Platforms</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-seize-endless-photographic-content-from-elite-4-video-clips/"><u>[Updated] In 2024, Seize Endless Photographic Content From Elite 4 Video Clips</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-unleash-your-youtube-earnings-a-triad-approach-to-financial-examination-and-analysis/"><u>[Updated] In 2024, Unleash Your YouTube Earnings A Triad Approach to Financial Examination and Analysis</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-seamless-screen-sequences-cycle-youtube-on-your-television/"><u>2024 Approved Seamless Screen Sequences Cycle YouTube on Your Television</u></a></li>
+<li><a href="https://techtrends.techidaily.com/cd-dvd/"><u>CD DVD如何在不超时的情况下，转移到计算机主要硬盘或者外接设备</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ng-more-out-of-youtube-top-8-mobile-downloader-tips-for-2024/"><u>Getting More Out of YouTube Top 8 Mobile Downloader Tips for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-contacts-from-xiaomi-redmi-note-12-pro-5g-by-fonelab-android-recover-contacts/"><u>How to recover deleted contacts from Xiaomi Redmi Note 12 Pro 5G.</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-gifts-that-speak-volumes-a-compendium-of-custom-box-shops-online/"><u>In 2024, Gifts That Speak Volumes A Compendium of Custom Box Shops Online</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-lava-yuva-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Read This Guide to Find a Reliable Alternative to Fake GPS On Lava Yuva 2 Pro | Dr.fone</u></a></li>
 </ul></div>
 
