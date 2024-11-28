@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Binge on Christmas Classics  Enjoy 9 Whole-Film Flicks No Charge\""
-date: 2024-11-17T19:20:25.471Z
-updated: 2024-11-18T23:31:50.403Z
+date: 2024-11-20T16:51:30.223Z
+updated: 2024-11-28T08:48:22.581Z
 tags:
   - ai video
   - ai youtube
@@ -31,20 +31,21 @@ If you are looking for Christmas entertainment this season you may be quick to l
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1. The nutcracker 1990
 
 The Nutcracker is a holiday classic that many people seek out every year on the stage. This family ballet classic was filmed by the Pacific Northwest ballet in a huge and lavish version of the production in 1986\. This still stands as one of the best versions of the Nutcracker ever captured on film and you can watch it for free on YouTube. You can find the Nutcracker at :
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2. A smoky mountain Christmas
 
 A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and starring Lee Majors and Dolly Parton. The full musical fairy tale can be found online on YouTube and it's about a country singer who is trying to spend a quiet Christmas holiday at home. She suddenly becomes involved with a mysterious mountain man, an evil witch and is forced to protect seven orphans over the holidays. This film can be found at:
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3. Ernest saves Christmas
 
@@ -55,10 +56,7 @@ This film from 1989 features Jim Varney and his most famous character Ernest in 
 A Christmas story has long been one of the favorite Christmas movies for many families. In this film from 1983 we travel back in time to a traditional 1940s Christmas. In this film we follow the nine-year-old Ralphie who is looking for the famous red Ryder BB gun for Christmas and will stop at absolutely nothing to get it. A Christmas story can be found at:
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 5. Richie Rich's Christmas wish
@@ -69,22 +67,13 @@ In this film from 1998 we hear the story of the richest kid in the world on Chri
 
 This film stars the hulk Mark Ruffalo in one of his earlier roles as a store employee who catches a con woman trying to steal from a department store on Christmas. His character agrees to be responsible for the con woman and her niece over the holidays to prevent them from staying with social services. A romance develops! This 1997 film can be found at:
 
-<!-- affiliate ads begin -->
-<span id="1495277">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 7. Santa Who?
 
 Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday classic Santa suffers a severe case of amnesia on Christmas Eve and needs to recover for Christmas day in order to make it through and deliver presents to all of the good children of the world. See if Santa gets his Christmas memories back by watching Santa Who here:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 8. A Christmas Carol
 
@@ -97,10 +86,7 @@ In this recreation of the original film from 1947 this shortened full-length ver
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -124,18 +110,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-mobile-streamers-guide-post-photos-and-videos-not-twits-for-2024/"><u>[New] Mobile Streamers' Guide Post Photos & Videos, Not Twits for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-transformative-youtube-decks-via-tailored-templates/"><u>[Updated] 2024 Approved Transformative Youtube Decks via Tailored Templates</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-flow-and-flourish-with-these-elite-yogis-online-for-2024/"><u>[Updated] Flow & Flourish with These Elite Yogis Online for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-understanding-and-proficiently-implementing-cc-rights/"><u>[Updated] In 2024, Understanding and Proficiently Implementing CC Rights</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-captivating-channels-spotlight-on-the-most-popular-female-creators/"><u>2024 Approved Captivating Channels Spotlight on the Most Popular Female Creators</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-giggles-guidebook-planning-7-funny-video-frameworks/"><u>2024 Approved Giggles Guidebook Planning 7 Funny Video Frameworks</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-strategies-for-sustainable-income-via-product-based-videos/"><u>2024 Approved Strategies for Sustainable Income via Product-Based Videos</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/tro-to-discovering-youtube-studio-content-creators-dreamland/"><u>An Intro to Discovering YouTube Studio Content Creator's Dreamland</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/beautiful-beginnings-creating-your-personalized-glam-vlog/"><u>Beautiful Beginnings Creating Your Personalized Glam Vlog</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/generate-laughter-kapwings-meme-creator/"><u>Generate Laughter Kapwing's Meme Creator</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2562573-9781782797784-the-art-of-ritual/"><u>The Art of Ritual | Free Book</u></a></li>
-<li><a href="https://discover-guides.techidaily.com/warum-zeigt-die-seagate-externe-festplatte-keine-daten-an/"><u>Warum Zeigt Die Seagate Externe Festplatte Keine Daten An?</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/will-microsoft-ensure-the-survival-of-windows-11-until-and-after-2025-what-costs-are-involved/"><u>Will Microsoft Ensure the Survival of Windows 11 Until and After 2025? What Costs Are Involved?</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-self-animated-wonders-cutting-edge-techniques-for-you/"><u>[New] 2024 Approved Self-Animated Wonders Cutting Edge Techniques for You</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/onvert-your-streaming-top-free-video-to-audio-tools-for-2024/"><u>[New] Convert Your Streaming Top Free Video to Audio Tools for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nhance-your-music-library-top-6-free-ios-apps-for-audio-conversion/"><u>[New] Enhance Your Music Library Top 6 Free iOS Apps for Audio Conversion</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-elevate-your-watchlist-experience-with-youtubes-av1-settings/"><u>[New] In 2024, Elevate Your Watchlist Experience with YouTube's AV1 Settings</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-expert-techniques-in-game-recording-via-obs/"><u>[Updated] 2024 Approved Expert Techniques in Game Recording via OBS</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-viral-journey-top-tags-to-accelerate-views-in-short-form-videos/"><u>[Updated] 2024 Approved Viral Journey Top Tags to Accelerate Views in Short Form Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-visual-narratives-at-your-fingertips-explore-the-10-best-banner-designers/"><u>[Updated] In 2024, Visual Narratives at Your Fingertips Explore the 10 Best Banner Designers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-ranked-the-best-7-android-adblockers-for-screen-freedom-for-2024/"><u>[Updated] Ranked The Best 7 Android AdBlockers for Screen Freedom for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-visual-verse-top-10-writing-apps-for-photo-lovers-iosandroid-for-2024/"><u>[Updated] Visual Verse Top 10 Writing Apps for Photo Lovers (iOS/Android) for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-sitcom-spotlight-15-hilarious-channels-for-relaxation/"><u>2024 Approved Sitcom Spotlight 15 Hilarious Channels for Relaxation</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/elusive-story-viewers-mobile-hacks-for-2024/"><u>Elusive Story Viewers' Mobile Hacks for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/o-upload-shorts-video-on-youtube/"><u>How to Upload Shorts Video on YouTube?</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-3-things-you-must-know-about-fake-snapchat-location-on-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, 3 Things You Must Know about Fake Snapchat Location On Apple iPhone 14 Plus | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/mycam-in-action-a-detailed-review-of-its-recording-abilities/"><u>MyCam in Action A Detailed Review of Its Recording Abilities</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-2024-approved-fcpx-visual-effects-freeze-frames-slow-motion-and-advanced-editing/"><u>New 2024 Approved FCPX Visual Effects Freeze Frames, Slow Motion, and Advanced Editing</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/unlock-the-secrets-of-your-macs-stored-login-credentials/"><u>Unlock the Secrets of Your Mac's Stored Login Credentials</u></a></li>
+<li><a href="https://fox-that.techidaily.com/why-is-my-iphone-screen-not-powering-off-quickly-and-what-can-i-do/"><u>Why Is My iPhone Screen Not Powering Off Quickly and What Can I Do?</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/be-subscriber-boost4-simplest-tricks-to-grow-your-channel/"><u>YouTube Subscriber Boost–4 Simplest Tricks to Grow Your Channel</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/zenith-vision-hubs-top-tier-all-in-one-4k/"><u>Zenith Vision Hubs Top Tier, All-in-One 4K</u></a></li>
 </ul></div>
 

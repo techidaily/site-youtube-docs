@@ -1,7 +1,7 @@
 ---
 title: "[New] Crafting the Perfect Aesthetic with Controlled Lighting"
-date: 2024-11-17T19:24:23.945Z
-updated: 2024-11-18T20:12:07.322Z
+date: 2024-11-26T01:29:10.026Z
+updated: 2024-11-28T05:04:47.948Z
 tags:
   - ai video
   - ai youtube
@@ -33,9 +33,17 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Video Lighting Basics: Three Point Lighting
 
 ![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
@@ -50,25 +58,13 @@ The **fill light** is less bright than the primary source of light and it is pla
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Watch Video! Top Lighting Tips for Vlogging
 
 <!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
@@ -103,19 +99,6 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
-<!-- affiliate ads begin -->
-<span id="1982485">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
 
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
@@ -123,10 +106,7 @@ If you are stuck shooting in **low light conditions** it is best to use a lens w
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -150,24 +130,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/nalyzing-whether-youtube-premium-is-right-for-you/"><u>[New] Analyzing Whether YouTube Premium Is Right for You</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-best-yoga-series-online-stay-active-and-healthy/"><u>[New] In 2024, Best Yoga Series Online - Stay Active & Healthy</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-driving-engagement-and-growth-the-role-of-brand-in-youtube-success/"><u>[Updated] 2024 Approved Driving Engagement and Growth The Role of Brand in YouTube Success</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-next-gen-social-media-tactics-youtube-content-on-facebook/"><u>[Updated] 2024 Approved Next-Gen Social Media Tactics YouTube Content on Facebook</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-trailblazing-trends-the-top-5-tips-for-youtube-triumph/"><u>[Updated] 2024 Approved Trailblazing Trends The Top 5 Tips for YouTube Triumph</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-efficient-audio-extraction-from-youtube-top-picks-for-your-favorite-free-crackers/"><u>[Updated] In 2024, Efficient Audio Extraction From YouTube Top Picks for Your Favorite Free Crackers</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-mics-and-more-discovering-the-audio-essential-that-matches-your-yt-vision/"><u>[Updated] In 2024, Mics & More Discovering the Audio Essential That Matches Your YT Vision</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-unleashing-creative-potential-making-youtube-trailers-in-filmora/"><u>[Updated] In 2024, Unleashing Creative Potential Making YouTube Trailers in Filmora</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-unveiling-the-elite-free-srt-translation-websites-of-choice-for-2024/"><u>[Updated] Unveiling the Elite Free SRT Translation Websites of Choice for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-elevate-engagement-with-these-10-igtv-branding-techniques/"><u>2024 Approved Elevate Engagement with These 10 IGTV Branding Techniques</u></a></li>
-<li><a href="https://howto.techidaily.com/7-solutions-to-fix-chrome-crashes-or-wont-open-on-tecno-spark-20-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Chrome Crashes or Wont Open on Tecno Spark 20 Pro | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-screen-to-xiaomi-redmi-note-13-5g-phones-drfone-by-drfone-android/"><u>How to Mirror PC Screen to Xiaomi Redmi Note 13 5G Phones? | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-tecno-pova-6-pro-5g-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Tecno Pova 6 Pro 5G Phone Pattern Lock without Factory Reset</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-twitter-media-to-music-downloading-and-converting-process/"><u>In 2024, Twitter Media to Music Downloading & Converting Process</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-fake-gps-location-pro-and-is-it-good-on-infinix-gt-10-pro-drfone-by-drfone-virtual-android/"><u>In 2024, What is Fake GPS Location Pro and Is It Good On Infinix GT 10 Pro? | Dr.fone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/the-art-of-visual-storytelling-with-iphone-xs-new-lens/"><u>The Art of Visual Storytelling with iPhone X's New Lens</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/trimming-down-m4v-file-sizes-efficiently-using-windows-macos-or-web-services/"><u>Trimming Down M4V File Sizes Efficiently Using Windows, MacOS or Web Services</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ng-viewers-into-revenue-key-video-figures-for-2024/"><u>Turning Viewers Into Revenue Key Video Figures for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/unlocking-your-workout-potential-how-the-latest-airpods-pro-features-a-heart-rate-monitor-for-enhanced-fitness-training-techspectrum/"><u>Unlocking Your Workout Potential: How the Latest AirPods Pro Features a Heart Rate Monitor for Enhanced Fitness Training | TechSpectrum</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-breaking-down-the-abcd-a-guide-to-crafting-compelling-fb-text/"><u>[New] 2024 Approved Breaking Down the ABCD A Guide to Crafting Compelling FB Text</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-crafting-cinematic-slow-mo-videos-for-instagram-success/"><u>[New] Crafting Cinematic Slow-Mo Videos for Instagram Success</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-top-12-vlogger-friendly-cameras-unveiled/"><u>[New] In 2024, Top 12 Vlogger-Friendly Cameras Unveiled!</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-navigating-mac-software-for-optimal-dvd-burning/"><u>[New] Navigating Mac Software for Optimal DVD Burning</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/electing-gear-for-youtube-a-filmmakers-essentials/"><u>[New] Selecting Gear for YouTube A Filmmaker's Essentials</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/he-blueprint-for-influential-video-arrangements-for-2024/"><u>[New] The Blueprint for Influential Video Arrangements for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-speed-tutorial-changing-photos-into-engaging-youtube-thumbnails/"><u>[Updated] 2024 Approved Speed Tutorial Changing Photos Into Engaging YouTube Thumbnails</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-brilliant-setups-top-17-gear-for-online-videographers/"><u>[Updated] Brilliant Setups Top 17 Gear for Online Videographers</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-step-by-step-process-to-perfect-your-fb-reel-skills/"><u>[Updated] Step-by-Step Process to Perfect Your FB Reel Skills</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-copyright-rules-for-screenshotting-and-archiving-youtube-videos/"><u>2024 Approved Copyright Rules for Screenshotting and Archiving YouTube Videos</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/5-easy-ways-to-transfer-contacts-from-apple-iphone-15-pro-max-to-android-drfone-by-drfone-transfer-from-ios/"><u>5 Easy Ways to Transfer Contacts from Apple iPhone 15 Pro Max to Android | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/breaking-down-the-process-of-livestreaming-online/"><u>Breaking Down the Process of Livestreaming Online</u></a></li>
+<li><a href="https://discover-community.techidaily.com/cambia-archivos-de-tiff-a-jpg-sin-coste-con-la-herramienta-on-line-de-conversion-de-imagenes-de-movavi/"><u>Cambia Archivos De Tiff a Jpg Sin Coste Con La Herramienta On-Line De Conversión De Imágenes De Movavi</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/descubre-el-programa-ideal-para-grabar-discos-dvd-gratuitamente-con-win-10-como-cambiar-archivos-mp4mkvmov-a-dvd-facilmente-en-2020/"><u>Descubre El Programa Ideal Para Grabar Discos DVD Gratuitamente Con Win 10: Cómo Cambiar Archivos MP4/MKV/MOV a DVD Fácilmente en 2020</u></a></li>
+<li><a href="https://games-able.techidaily.com/first-foray-of-keychron-lemokey-l3-unleashed/"><u>First Foray of Keychron: Lemokey L3 Unleashed</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-make-big-bucks-fast-with-a-focus-on-youtube-short-video-creation/"><u>In 2024, Make Big Bucks Fast with a Focus on YouTube Short Video Creation</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-streamers-financial-compliance-check/"><u>In 2024, Streamer's Financial Compliance Check</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nsiders-manual-posting-youtube-videos-on-yourfb-page-for-2024/"><u>The Insider's Manual Posting YouTube Videos on YourFB Page for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-ultimate-guide-to-distinguishing-between-hulu-and-its-enhanced-counterpart-hulu-plus/"><u>The Ultimate Guide to Distinguishing Between Hulu and Its Enhanced Counterpart, Hulu Plus</u></a></li>
 </ul></div>
 

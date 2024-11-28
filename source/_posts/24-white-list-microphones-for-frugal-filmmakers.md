@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, White-List Microphones for Frugal Filmmakers\""
-date: 2024-09-02T06:51:42.281Z
-updated: 2024-09-03T06:51:42.281Z
+date: 2024-11-25T22:32:01.747Z
+updated: 2024-11-27T17:40:57.584Z
 tags:
   - ai video
   - ai youtube
@@ -52,6 +52,10 @@ As for keeping with your financial needs, we aren’t going to be looking at any
 
 ![boya-by-m1](https://images.wondershare.com/boya-by-m1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Pro**: As an omnidirectional condenser microphone, it will be able to pick up audio from 360 degrees, and with 20 feet (6 meters) of cable, you can have a significant range movement even if you are connected to the camera.
 
 The BOYA BY-M1 is a terrific choice for YouTubers on a budget that is frequently making videos on the go. It’s easy to carry around, and the ability to simply connect to a smartphone means you can set up and shoot your video on the fly.
@@ -63,6 +67,10 @@ The BOYA BY-M1 is a terrific choice for YouTubers on a budget that is frequently
 **The [TONOR](https://www.amazon.com/TONOR-Microphone-Condenser-Recording-Podcasting/dp/B01142EPO4/)is an easy-to-setup condenser microphone that you can connect to your computer via USB and start recording in seconds.**
 
 **![tonor-pc-microphone-computer-condenser](https://images.wondershare.com/tonor-pc-microphone-computer-condenser.jpg)**
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  **Pro:** The value of this microphone is in its ease of use. With a flexible, foldable stand, you can adjust the TONOR PC microphone the way it suits your setup. The legs of the stand are retractable, which makes it easy for you to store. If you are a gamer or creating videos primarily from your desk, this is a perfectly suitable microphone for you to start your YouTube journey with.
 
@@ -108,6 +116,10 @@ The [TAKSTAR SGC](https://www.amazon.com/TAKSTAR-SGC-598-Interview-Microphone-Ca
 
 ![takstar-sgc-598](https://images.wondershare.com/takstar-sgc-598.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Pro:** The camera-mounted microphone has a shock-resistant design that reduces noise when the camera is moved. The cardioid microphone will be able to pick up audio in the direction it is pointed in, reducing noise capturing from behind the camera. This is a good microphone for vlogging or interviews.
 
 **Con:** The TAKSTAR SGC requires one AA battery, so you’ll have to remember to carry a backup every time you film.
@@ -116,9 +128,6 @@ Limited to a vocal subject standing 4-5 feet away, any more and the microphone w
 
 The design requires it to be mounted to the camera. If you want to separate it from the camera and still have it recorded, a bit of creativity is required to keep it standing.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## **YouTube Microphones for Under $100**
 
 ####  
@@ -129,9 +138,6 @@ The [Behringer C-1U](https://www.amazon.com/Behringer-C-1U-BEHRINGER/dp/B001QXCY
 
 ![behringer-c-1u](https://images.wondershare.com/behringer-c-1u.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
-<!-- affiliate ads end -->
 **Pro:** This microphone has a solid metal build and has a good weight. It is quick and easy to set up and is a good microphone for anyone wanting a simple solution for better audio on YouTube.
 
 **Con:** A pop filter is recommended for this microphone as it picks up a lot of popping sounds when the subject speaks.
@@ -153,15 +159,17 @@ The [Marantz Professional MPM-1000U](https://www.amazon.com/Marantz-Professional
 ![marantz-professional-mpm-1000u](https://images.wondershare.com/marantz-professional-mpm-1000u.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 **Pro**: This budget microphone has excellent all-metal construction. It has a plug-and-play setup and doesn’t require any drivers or installations. It records great instrumentals and would recommend it to those who are recording music for YouTube.
 
 **Con**: May pick up extraneous noises if you are recording vocals while there are movements in your surrounding, but otherwise, this is an excellent microphone in its price range.
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Final Thoughts**
 
 When looking for microphones under $100, the difference in audio quality is not going to be drastic. What you need to consider is how you are going to be using this piece of equipment.
@@ -178,28 +186,19 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -208,4 +207,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-analyzing-youtubes-creator-rewards-regularity/"><u>[New] Analyzing YouTube's Creator Rewards Regularity</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/oost-engagement-with-quick-unique-coverage-options-on-shorts-for-2024/"><u>[New] Boost Engagement with Quick, Unique Coverage Options on Shorts for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-instant-movie-magician/"><u>[New] In 2024, Instant Movie Magician</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-crafting-standout-youtube-thumbnails-with-ease/"><u>[Updated] Crafting Standout YouTube Thumbnails with Ease</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-expert-insights-on-maximizing-roi-through-effective-youtube-banner-campaigns-for-2024/"><u>[Updated] Expert Insights on Maximizing ROI Through Effective YouTube Banner Campaigns for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-creating-on-the-side-balancing-employment-with-youtube/"><u>[Updated] In 2024, Creating on the Side Balancing Employment with YouTube</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-the-ultimate-guide-to-top-10-tiktok-gamers/"><u>[Updated] The Ultimate Guide to Top 10 TikTok Gamers</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-mastery-through-art-the-ultimate-list-of-free-mac-drawing-apps/"><u>2024 Approved Mastery Through Art The Ultimate List of FREE Mac Drawing Apps</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-your-entry-level-equipment-checklist-for-youtube-success/"><u>2024 Approved Your Entry-Level Equipment Checklist for YouTube Success</u></a></li>
+<li><a href="https://solve-lab.techidaily.com/dvdr-dl/"><u>DVD±R DLの基本を解明:容量・互換性・利用可能機能について</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-3-ways-to-change-location-on-facebook-marketplace-for-vivo-y77t-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Change Location on Facebook Marketplace for Vivo Y77t | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ate-mic-selection-for-vloggers-and-streamers-for-2024/"><u>Ultimate Mic Selection for Vloggers and Streamers for 2024</u></a></li>
+</ul></div>
 

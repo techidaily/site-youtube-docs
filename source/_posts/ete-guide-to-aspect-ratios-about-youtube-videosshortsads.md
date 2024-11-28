@@ -1,7 +1,7 @@
 ---
 title: "Complete Guide to Aspect Ratios About YouTube Videos/Shorts/Ads"
-date: 2024-11-15T21:08:11.085Z
-updated: 2024-11-18T21:13:11.825Z
+date: 2024-11-26T07:18:50.665Z
+updated: 2024-11-28T01:35:03.150Z
 tags:
   - ai video
   - ai youtube
@@ -45,6 +45,10 @@ YouTube is the platform that demands perfection, not in terms of the content of 
 
 ![youtube aspect ratio](https://images.wondershare.com/filmora/article-images/2021/youtube-aspect-ratio.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Note:** YouTube Video Player can adjust the video size automatically to make it fit into the screen. Sometimes, doing so results in a bar's white or grey/black area along the edges.
 
 **●** YouTube Aspect Ratio for Desktop/PC Version:
@@ -63,13 +67,14 @@ Let’s take the example of Vertical Video display in YouTube Screen:
 
 ![vertical video example](https://images.wondershare.com/filmora/article-images/2021/vertical-video-example.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Also, by selecting the Expand option, the video will adjust itself to fill the entire screen.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2 YouTube Shorts Aspect Ratio
@@ -88,13 +93,6 @@ Here also comes the concept of YouTube Shorts Ratio as YouTube Videos primarily 
 
 Other possible YouTube Shorts ratios are 4:5, 2:3, 1:2.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3 Aspect Ratios for YouTube Ads
 
 If you want to monetize from your video or Shorts, use YouTube Ads to generate additional income. Or, if you are already in some business and want to grow your business, do it with YouTube Ads.
@@ -111,6 +109,10 @@ Sponsor Card Ads Ratio: 1:1
 
 True View Discovery Ads Ratio: 16:9 or 4:3
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4 Think More about YouTube Aspect Ratio
 
 You have been listening about YouTube Screen size or YouTube Aspect Ratio so far many times. Now the biggest question is, how to adjust the Aspect Ratio of YouTube Video or Shorts?
@@ -118,13 +120,6 @@ You have been listening about YouTube Screen size or YouTube Aspect Ratio so far
 Are you puzzled?
 
 ![how to set aspect ratio](https://images.wondershare.com/filmora/article-images/2021/how-to-set-aspect-ratio.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Yeah! Wait, there is the solution. Edit the aspect ratio of your video before uploading it under the YouTube Platform. For that purpose, there is one option named [Wondershae Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/) That is used to provide you with the Aspect ratio editing and modification option.
 
@@ -143,16 +138,7 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 ![wondershare filmora](https://images.wondershare.com/filmora/article-images/2021/filmora-video.png)
 
 <!-- affiliate ads begin -->
-<span id="1328679">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 There is another option also, after launching the software, upload your project video. Then, under Project settings, change and set the required aspect ratio.
@@ -182,18 +168,18 @@ Aspect ratio is simply the width to the height ratio for the screen. But it hold
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-unlock-hidden-details-the-ultimate-guide-to-minecraft-zooming/"><u>[New] 2024 Approved Unlock Hidden Details The Ultimate Guide to Minecraft Zooming</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/apturing-the-unseen-9-must-have-camgear-for-aspiring-vloggers/"><u>[New] Capturing the Unseen 9 Must-Have CamGear for Aspiring Vloggers</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-ppt-presentations-with-verbal-narration-guide-for-2024/"><u>[New] PPT Presentations with Verbal Narration Guide for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/nveiling-top-5-strategies-boosting-your-brand-via-youtube-marketing/"><u>[New] Unveiling Top 5 Strategies Boosting Your Brand via YouTube Marketing</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-keeping-track-of-facetime-with-facebooks-live-feature-for-2024/"><u>[Updated] Keeping Track of FaceTime with Facebook's Live Feature for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-maximizing-viewership-techniques-for-selecting-featured-channels/"><u>[Updated] Maximizing Viewership Techniques for Selecting Featured Channels</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-social-media-savvy-unlock-the-secrets-of-crafting-winning-bios-on-facebook-for-2024/"><u>[Updated] Social Media Savvy Unlock the Secrets of Crafting Winning Bios on Facebook for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-video-excellence-mirrorless-cameras-vs-traditional-dslrs/"><u>2024 Approved Video Excellence Mirrorless Cameras vs Traditional DSLRs</u></a></li>
-<li><a href="https://win-blog.techidaily.com/cutting-edge-solutions-overcome-minecraft-lag-and-stutter/"><u>Cutting-Edge Solutions: Overcome Minecraft Lag & Stutter</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-vivo-y100a-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My Vivo Y100A? | Dr.fone</u></a></li>
-<li><a href="https://common-error.techidaily.com/how-to-resolve-when-windows-cant-recognize-wd-my-passport-ultra-external-drive/"><u>How To Resolve When Windows Can't Recognize WD My Passport Ultra External Drive</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-vivo-y27-4g-drfone-by-drfone-android/"><u>How To Use Allshare Cast To Turn On Screen Mirroring On Vivo Y27 4G | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/mlined-video-production-youtube-studio-edition-for-2024/"><u>Streamlined Video Production YouTube Studio Edition for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-from-hidden-gems-to-hit-videos-strategies-for-success/"><u>[New] 2024 Approved From Hidden Gems to Hit Videos Strategies for Success</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/rafting-your-gaming-channel-on-youtube/"><u>[New] Crafting Your Gaming Channel on YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-how-to-transcribe-a-youtube-video-free/"><u>[Updated] In 2024, How to Transcribe a YouTube Video [FREE]</u></a></li>
+<li><a href="https://win-forum.techidaily.com/efficient-techniques-for-expanding-drive-availability-in-windows-11/"><u>Efficient Techniques for Expanding Drive Availability in Windows 11</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/estimating-elapsed-seconds-in-a-20mb-videoclip/"><u>Estimating Elapsed Seconds in a 20MB Videoclip</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/how-to-export-recovered-microsoft-outlook-psts-to-current-exchange-server-a-visual-tutorial/"><u>How to Export Recovered Microsoft Outlook PSTs to Current Exchange Server - A Visual Tutorial</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-open-your-iphone-12-without-a-home-button-drfone-by-drfone-ios/"><u>How To Open Your iPhone 12 Without a Home Button | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/o-skip-the-slip-ups-the-8-must-avoid-mistakes-for-new-youtube-stars/"><u>How to Skip the Slip-Ups The 8 Must-Avoid Mistakes for New YouTube Stars</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-forgot-your-apple-id-password-and-email-from-apple-iphone-xs-heres-the-best-fixes-by-drfone-ios/"><u>In 2024, Forgot Your Apple ID Password and Email From Apple iPhone XS? Heres the Best Fixes</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-can-we-unlock-our-huawei-p60-phone-screen-by-drfone-android/"><u>In 2024, How Can We Unlock Our Huawei P60 Phone Screen?</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ct-your-video-subtitles-on-youtube-for-2024/"><u>Perfect Your Video Subtitles on YouTube for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/psn-outage-alert-but-wait-could-it-be-a-local-connectivity-hiccup-instead/"><u>PSN Outage Alert! But Wait, Could It Be a Local Connectivity Hiccup Instead?</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/ways-to-find-unlocking-codes-for-realme-phones-by-drfone-android/"><u>Ways To Find Unlocking Codes For Realme Phones</u></a></li>
 </ul></div>
 

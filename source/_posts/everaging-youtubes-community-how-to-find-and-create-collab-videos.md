@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Leveraging YouTube's Community  How to Find & Create Collab Videos\""
-date: 2024-11-11T20:25:33.588Z
-updated: 2024-11-18T20:28:16.684Z
+date: 2024-11-23T05:54:40.409Z
+updated: 2024-11-27T21:47:00.003Z
 tags:
   - ai video
   - ai youtube
@@ -40,18 +40,15 @@ Finding someone to collab with, approaching them, and figuring out how to actual
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Best YouTube Video Editor--Wondershare Filmora
 
 Wondershare Filmora has all the essential features needed by a PC video editing app like creating slideshows, trimming, merging, cropping, adding background music, rotating videos as well as some special features like APP, motion elements, animated texts, overlays, and filters, etc., and finally, the users can upload their edited video to YouTube directly. Just get started and create your own YouTube video with Wondershare Filmora!
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **6 Tips About Finding Collab Partners**
 
@@ -92,10 +89,7 @@ You can do a long-distance collab, but if it is possible to physically meet up w
 ![collab pitch examples](https://images.wondershare.com/filmora/article-images/collab-pitch-examples.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Here’s an example of a collab pitch, and a template you can use to write your own! It’s from filmora.io’s free YouTube Toolkit, which you can [download with the Get Subs Guide here](https://www.filmora.io/free-youtube-subscribers).
@@ -129,10 +123,7 @@ It usually isn’t difficult to find contact information for a YouTuber. If you 
 You can also reach out through DMs or other social media. If you use a platform like Twitter, however, you may want to be a bit more casual and start a conversation before building up to asking them about a collab.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **How to Make a Collab Video**
@@ -160,10 +151,7 @@ In order to pull off a collab like this, you need to be able to meet in person.
  It’s harder to collab if you can’t meet up, but it isn’t impossible. You can exchange footage to use in each other’s videos, or you can record a Google Hangout or Skype chat.
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Launching Your Collab**
@@ -190,6 +178,10 @@ After you’ve posted your collabs, make sure to leave each other comments about
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -211,16 +203,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/n-2024-proficient-content-tagging-made-simple-the-best-7-budget-friendly-online-taggification-apps-reviewed/"><u>[New] In 2024, Proficient Content Tagging Made Simple The Best 7 Budget-Friendly Online Taggification Apps Reviewed</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/aximizing-impact-a-guide-to-customizing-game-banners-for-2024/"><u>[New] Maximizing Impact A Guide to Customizing Game Banners for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/nlock-the-secrets-capturing-apple-devices-for-engaging-videos/"><u>[New] Unlock the Secrets Capturing Apple Devices for Engaging Videos</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-optimizing-youtube-audio-speed-desktop-and-mobile-way-for-2024/"><u>[Updated] Optimizing YouTube Audio Speed - Desktop & Mobile Way for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-tips-for-smooth-transitioning-from-zoom-to-fb-live-events/"><u>[Updated] Tips for Smooth Transitioning From ZOOM to FB Live Events</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-the-ultimate-checklist-for-your-youtubes-most-impactful-visuals/"><u>2024 Approved The Ultimate Checklist for Your YouTube's Most Impactful Visuals</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-poco-phone-and-remove-locked-screen-by-drfone-android/"><u>Android Unlock Code Sim Unlock Your Poco Phone and Remove Locked Screen</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-building-an-instagram-empire-in-just-nine-simple-steps/"><u>In 2024, Building an Instagram Empire in Just Nine Simple Steps</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-pro-stock-market-strategies-in-yt-reviews/"><u>In 2024, Pro Stock Market Strategies in YT Reviews</u></a></li>
-<li><a href="https://games-able.techidaily.com/should-you-replace-gtx-with-upcoming-rtx-tech-now/"><u>Should You Replace GTX with Upcoming RTX Tech Now?</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/the-ultimate-resource-for-computer-components-toms-hardware-breakdown/"><u>The Ultimate Resource for Computer Components - Tom's Hardware Breakdown</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-perfect-and-unique-youtube-channel-names-for-professional-filmmakers-and-vloggers-no-more-than-156-characters/"><u>[New] 2024 Approved Perfect & Unique Youtube Channel Names for Professional Filmmakers & Vloggers (No More than 156 Characters)</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-streamlining-content-delivery-the-definitive-youtube-video-upload-guide/"><u>[New] 2024 Approved Streamlining Content Delivery The Definitive YouTube Video Upload Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-youtube-mastery-made-simple-the-top-20-must-know-strategies/"><u>[New] 2024 Approved YouTube Mastery Made Simple The Top 20 Must-Know Strategies</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nline-video-arena-showdown-who-wins-vimeo-or-giants-like-youtubeplusdailymotion/"><u>[New] Online Video Arena Showdown Who Wins – Vimeo or Giants Like YouTube+DailyMotion?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-editing-workshop-portal/"><u>[Updated] 2024 Approved Editing Workshop Portal</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-cutting-edge-3d-cinema-at-your-fingertits-decks-reviewed/"><u>2024 Approved Cutting-Edge 3D Cinema at Your Fingertits Decks Reviewed</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/analyzing-dji-x4-fpv-helmet-functionality-for-2024/"><u>Analyzing DJI X4 FPV Helmet Functionality for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-motorola-moto-g04-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Motorola Moto G04 Location without Installing Software? | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-picking-the-top-action-cam-gopro-or-sony-fdr-x1000v/"><u>In 2024, Picking the Top Action Cam GoPro or Sony FDR-X1000V?</u></a></li>
 </ul></div>
 

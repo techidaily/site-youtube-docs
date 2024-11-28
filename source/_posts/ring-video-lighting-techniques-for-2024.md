@@ -1,7 +1,7 @@
 ---
 title: "Mastering Video Lighting Techniques for 2024"
-date: 2024-11-17T16:11:52.006Z
-updated: 2024-11-18T16:20:43.397Z
+date: 2024-11-22T09:27:01.363Z
+updated: 2024-11-27T20:48:48.512Z
 tags:
   - ai video
   - ai youtube
@@ -33,9 +33,17 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Video Lighting Basics: Three Point Lighting
 
 ![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
@@ -49,14 +57,11 @@ The **fill light** is less bright than the primary source of light and it is pla
 
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
-### Watch Video! Top Lighting Tips for Vlogging
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+### Watch Video! Top Lighting Tips for Vlogging
 
 ## Lightning Tips for Aspiring YouTube Videographers
 
@@ -85,10 +90,7 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
@@ -98,10 +100,7 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
-  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
@@ -109,19 +108,6 @@ If you are using all of the lighting options available to you and your video sti
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -144,24 +130,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/-star-channel-cutting-long-urls-down-for-youtube-videos/"><u>[New] 5-Star Channel Cutting Long URLs Down for YouTube Videos</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-affordable-acoustic-amps-and-mics-for-video-voyagers/"><u>[New] In 2024, Affordable Acoustic Amps and Mics for Video Voyagers</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-innovating-informative-intros/"><u>[New] In 2024, Innovating Informative Intros</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-becoming-a-confident-content-creator-youtubes-top-tips/"><u>[Updated] 2024 Approved Becoming a Confident Content Creator YouTube's Top Tips</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-unlocking-youtube-wealth-strategies-for-a-non-ad-earnings-model/"><u>[Updated] 2024 Approved Unlocking YouTube Wealth Strategies for a Non-Ad Earnings Model</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-charting-a-course-to-your-signature-sphere-for-2024/"><u>[Updated] Charting a Course to Your Signature Sphere for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-strategizing-to-spot-and-capture-youtubes-hidden-markets/"><u>[Updated] In 2024, Strategizing to Spot and Capture Youtube's Hidden Markets</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-snatch-free-media-treasures-from-top-4-online-creators/"><u>[Updated] Snatch Free Media Treasures From Top 4 Online Creators</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-ways-to-move-contacts-from-xiaomi-13-ultra-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Move Contacts From Xiaomi 13 Ultra to iPhone (13/14/15) | Dr.fone</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/addressing-windows-10-two-monitor-blankness/"><u>Addressing Windows 10 Two-Monitor Blankness</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/assessing-the-effectiveness-of-your-claims-handling-process-an-insight-with-abbyy-ebook/"><u>Assessing the Effectiveness of Your Claims Handling Process - An Insight with ABBYY eBook</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-after-switching-from-infinix-smart-8-pro-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data After Switching From Infinix Smart 8 Pro to Latest Samsung | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-a-network-locked-motorola-edge-40-phone-by-drfone-android/"><u>In 2024, How to Unlock a Network Locked Motorola Edge 40 Phone?</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-oppo-find-x7-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, Top 6 Apps/Services to Trace Any Oppo Find X7 Location By Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ering-brands-spotlight-on-top-9-free-youtube-logos-craftors-for-2024/"><u>Pioneering Brands Spotlight on Top 9 Free YouTube Logos Craftors for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-streaming-learn-obs-for-youtube-now/"><u>Started Streaming? Learn OBS for Youtube Now!</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/switched-on-gaming-a-comprehensive-look-at-nintendos-latest-offerings-lite-and-oled/"><u>Switched On Gaming: A Comprehensive Look at Nintendo's Latest Offerings, Lite and OLED</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/updated-top-ranked-audible-migration-suite-rapid-mp3-refinement-at-your-fingertips/"><u>Updated Top-Ranked Audible Migration Suite Rapid MP3 Refinement at Your Fingertips</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/be-masterclass-choose-your-development-stage/"><u>YouTube Masterclass Choose Your Development Stage</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/0-best-youtube-keyword-tools-to-get-more-views-filmora-for-2024/"><u>[New] 10 Best YouTube Keyword Tools to Get More Views - Filmora for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-confirming-correct-youtube-ad-revenue-allocation/"><u>[New] 2024 Approved Confirming Correct YouTube Ad Revenue Allocation</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-step-by-step-guide-to-instagram-livestreaming-using-obs/"><u>[New] In 2024, Step-by-Step Guide to Instagram Livestreaming Using OBS</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-strategies-for-overcoming-black-screen-errors-during-youtube-viewing/"><u>[Updated] 2024 Approved Strategies for Overcoming Black Screen Errors During YouTube Viewing</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-the-insiders-guide-to-youtube-success/"><u>[Updated] In 2024, The Insider's Guide to YouTube Success</u></a></li>
+<li><a href="https://howto.techidaily.com/fixes-for-apps-keep-crashing-on-realme-narzo-60-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixes for Apps Keep Crashing on Realme Narzo 60 5G | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-xiaomi-redmi-13c-5g-by-drfone-android/"><u>In 2024, AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Xiaomi Redmi 13C 5G</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-elevating-your-social-signature-top-tips-and-tricks-for-impressive-biographies-on-fb/"><u>In 2024, Elevating Your Social Signature Top Tips and Tricks for Impressive Biographies on FB</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/powerful-data-tools-chatgpt-for-google-app-proficiency/"><u>Powerful Data Tools: ChatGPT for Google App Proficiency</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/spectacular-screenwriting-revealed-for-2024/"><u>Spectacular Screenwriting Revealed for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Glamour Unleashed  Comprehensive YouTube Guide to Elegance\""
-date: 2024-11-12T19:29:00.086Z
-updated: 2024-11-18T22:56:29.583Z
+date: 2024-11-20T17:05:57.969Z
+updated: 2024-11-27T20:34:39.644Z
 tags:
   - ai video
   - ai youtube
@@ -53,10 +53,7 @@ Wondershare Filmora is specifically made keeping quality on priority and to make
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398449/3022" target="_top" id="398449">
-  <img src="//a.impactradius-go.com/display-ad/3022-398449" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398449/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Finding Your Niche in Beauty or Lifestyle**
@@ -68,6 +65,10 @@ People looking for beauty tutorials are often looking for someone who has someth
 Another way you could find a niche is by taking on a specific area of interest, like a skincare channel with a focus on coping with acne or a makeup channel with a focus on natural products.
 
   SunKissAlba has a lifestyle channel that focuses on a ‘natural’ niche. She posts videos about every aspect of her lifestyle from putting on makeup to cooking, but natural/non-toxic products are a constant theme through everything she does. By niching her channel she hasn’t limited what kinds of videos she can do at all - she posts a huge variety of different types of videos. What she has done is to make her channel particularly valuable to audiences interested in things that are natural or organic.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Types of Beauty Videos – Your Content Strategy**
 
@@ -107,6 +108,10 @@ Here are some common types of beauty and lifestyle videos:
 * Kid’s Makeup Challenge
 * No Mirror Makeup Challenge
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **How to Get Products to Review**
 
  You probably already know that a lot of the products popular beauty YouTubers review in their videos were sent to them for free. Brands want to get their products into the hands of creators who have ‘influence’ both in the hopes that their audiences will decide to buy them and as part of generating buzz – getting more people talking about their products so more people become interested.
@@ -129,10 +134,7 @@ Make sure to link to your channel so they can verify what you say (do not hide y
 Emphasize what value you could provide the brand with (i.e. ‘I’ve had a lot of success with videos on managing acne and I’m sure my subscribers would love to see a review of your cream’) and outline what kind of video you’d like to make (i.e. a five-minute review focusing on the product, or a short feature in a longer makeup tutorial).
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959707/19272" target="_top" id="1959707">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959707" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959707/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Simple Camera Setup for Beauty Vloggers**
@@ -172,31 +174,11 @@ An aperture of f/5.0 is good if you’re going to be moving around a lot, but if
 
 ![set f stop](https://images.wondershare.com/filmora/article-images/set-f-stop2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 6:** Set your ISO (film speed). A lower ISO will give you a darker, but higher quality, image. A higher ISO will lower your quality and give you a brighter image.
 
 ISO 400 should be a happy medium for shooting inside with your ring light, but you may need to try out a couple of settings to find one perfect for your situation.
 
 ![set film speed](https://images.wondershare.com/filmora/article-images/set-film-speed3.jpg)
-
-<!-- affiliate ads begin -->
-<span id="701707">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 For more info on [camera settings for beauty videos, click here](https://www.filmora.io/video-tutorials/how-to-set-up-your-camera-%E2%80%93-the-makeup-series-12.html).
 
@@ -213,6 +195,10 @@ There are, however, some reasons you might want additional light:
 If you only have a ring light/front light then you may end up looking like you’re surrounded by shadows. If you want more light for your space you can use windows, household lamps, or professional video lights like softboxes or LED panels.
 
  ![light background](https://images.wondershare.com/filmora/article-images/light-background4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### **To Stand Out Against your Background (‘Backlighting’)**
 
@@ -235,13 +221,6 @@ You can use softboxes, LED panels, clamp lights, household lamps, or any other l
 
 * **_Clamp lights ($10 each) and paper lanterns ($10 each) provide great lighting and are much more affordable than professional lighting kits._ The paper lanterns will provide even, diffused, light and the clamp lights will be easy to set up wherever you need them.**
 * **_Check out these [DIY tips for creating your own reflectors and diffusers](https://www.filmora.io/community-blog/save-money-with-clever-diy-youtube-gear%21-462.html)._**
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Top Ring Lights for YouTube**
 
@@ -307,6 +286,10 @@ If you’re using autofocus, you can hold products up to the screen and wait for
 2. **_Highlight small details._** Describe what you’re doing in a lot of detail and don’t gloss over anything. Assume the person watching your tutorial doesn’t know anything about putting on makeup.
 3. **_Take stills for your thumbnail._** Remember to take some still photos of your finished makeup to use in your YouTube thumbnail.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **How to Make a Makeup Tutorial – After Shooting**
 
 Once you’ve finished recording and put away all your camera gear, there’s still work to do. You still need to edit your video and post it on YouTube. Here are some tips for that:
@@ -322,13 +305,6 @@ Remember to include what type of video you made, i.e. ‘tutorial’, ‘review�
  Are you already making beauty videos? If so, let us know if you have any of your own tips!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -351,18 +327,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-maximizing-youtube-experience-through-a-subscription/"><u>[New] In 2024, Maximizing YouTube Experience Through a Subscription</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/astering-youtubes-studio-editor-comprehensive-video-edits/"><u>[New] Mastering YouTube's Studio Editor Comprehensive Video Edits</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/pgrade-your-content-reach-with-youtube-to-facebook-posting/"><u>[New] Upgrade Your Content Reach with YouTube-to-Facebook Posting</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-boosting-views-mastering-hashtags-in-freefire-vids-for-2024/"><u>[Updated] Boosting Views Mastering Hashtags in FreeFire Vids for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-in-depth-examination-of-videoshow-24/"><u>[Updated] In-Depth Examination of VideoShow '24</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-expert-tips-for-pc-gamers-ideal-snapshots/"><u>2024 Approved Expert Tips for PC Gamer's Ideal Snapshots</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-transform-your-color-grading-skills-with-photoshops-luts/"><u>2024 Approved Transform Your Color Grading Skills with Photoshop's LUTs</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ng-estimates-for-youtube-creators-adsense-pay-out-per-1000-viewers/"><u>Earning Estimates for YouTube Creators AdSense Pay-Out per 1,000 Viewers</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-top-ten-video-cards-selection-guide-for-youtube-aficionados/"><u>In 2024, Top-Ten Video Cards Selection Guide for YouTube Aficionados</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-want-amazing-opening-effects-today-we-will-share-with-you-20-best-places-that-are-free-to-download-title-intro-templates-for-adobe-premiere-pro/"><u>New Want Amazing Opening Effects? Today, We Will Share with You 20 Best Places that Are Free to Download Title, Intro Templates for Adobe Premiere Pro</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/streamline-your-footage-insta-length-management-on-macos-for-2024/"><u>Streamline Your Footage Insta-Length Management on macOS for 2024</u></a></li>
-<li><a href="https://program-issues.techidaily.com/success-fix-the-continuous-loading-error-on-your-discord-golive-sessions/"><u>Success! Fix the Continuous 'Loading' Error on Your Discord GoLive Sessions</u></a></li>
-<li><a href="https://program-issues.techidaily.com/troubleshooting-fixes-for-minecraft-unresponsive-issues-on-windows/"><u>Troubleshooting: Fixes for 'Minecraft Unresponsive' Issues on Windows</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-affordable-cameras-for-effective-vloggers/"><u>[New] In 2024, Affordable Cameras for Effective Vloggers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-step-by-step-tutorial-to-design-unique-youtube-thumbnails/"><u>[New] In 2024, Step-by-Step Tutorial to Design Unique YouTube Thumbnails</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-retro-social-media-revelations-mastering-outdated-fb-functionality/"><u>[New] Retro Social Media Revelations Mastering Outdated FB Functionality</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/tandard-youtube-vs-creative-commons-liberty-clauses-for-2024/"><u>[New] Standard YouTube Vs. Creative Commons Liberty Clauses for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ailoring-thumbnail-lengths-for-youtube-audience-focus/"><u>[New] Tailoring Thumbnail Lengths for YouTube Audience Focus</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-understanding-youtubes-social-media-protocols/"><u>[Updated] 2024 Approved Understanding YouTube's Social Media Protocols</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-analyzing-video-platforms-vimeo-and-youtube-for-2024/"><u>[Updated] Analyzing Video Platforms Vimeo and YouTube for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-expertise-in-iphones-macro-photography-secrets-revealed-for-2024/"><u>[Updated] Expertise in iPhone's Macro Photography Secrets Revealed for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-mastering-video-thumbnail-personalization-on-youtube-for-2024/"><u>[Updated] Mastering Video Thumbnail Personalization on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-monetize-youtube-video-the-ultimate-guide-to-ad-revenue/"><u>[Updated] Monetize YouTube Video | The Ultimate Guide to Ad Revenue</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-solve-audio-absence-in-twitch-style-tweets/"><u>[Updated] Solve Audio Absence in Twitch-Style Tweets</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-tiktok-versus-youtube-shorts-assessing-personal-usage-value/"><u>2024 Approved TikTok versus YouTube Shorts Assessing Personal Usage Value</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/engineering-video-excerpts-for-online-platforms/"><u>Engineering Video Excerpts for Online Platforms</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/enhancing-efficiency-the-key-to-srt-export-in-premiere/"><u>Enhancing Efficiency The Key to SRT Export in Premiere</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-a-motorola-g54-5g-phone-that-is-locked-by-drfone-android/"><u>In 2024, How to Reset a Motorola G54 5G Phone that is Locked?</u></a></li>
+<li><a href="https://article-helps.techidaily.com/past-meets-present-the-strange-yet-effective-trend-of-integrating-modern-gpus-into-antiquated-agp-slot-configurations/"><u>Past Meets Present: The Strange Yet Effective Trend of Integrating Modern GPUs Into Antiquated AGP Slot Configurations</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-essential-guide-to-cleaning-and-disinfecting-your-airpods-protect-your-health-and-device-longenity/"><u>The Essential Guide to Cleaning & Disinfecting Your AirPods: Protect Your Health and Device Longenity</u></a></li>
 </ul></div>
 

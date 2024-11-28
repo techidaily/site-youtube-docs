@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Bend the Light  Homegrown Animated Innovations\""
-date: 2024-09-02T06:50:04.242Z
-updated: 2024-09-03T06:50:04.242Z
+date: 2024-11-24T16:29:29.688Z
+updated: 2024-11-28T04:32:25.096Z
 tags:
   - ai video
   - ai youtube
@@ -46,9 +46,17 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 
  All of these resources will teach Adobe After Effects, or a similar paid software. If you do not have access to Adobe After Effects, you might want to check out our post on [affordable animation software for video creators](https://www.filmora.io/community-blog/free-or-cheap-animation-software-for-video-creators-122.html).
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **[Mt. Mograph](https://www.youtube.com/channel/UCSUSgx9qc%5FNydrOL59xbJIA)**
 
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
 
@@ -57,15 +65,17 @@ Lynda isn’t free, but the 10-day free trial period is definitely long enough f
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **[Bloop Animation](https://www.bloopanimation.com/)**
 
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **[Video Copilot](http://www.videocopilot.net/)**
 
 This site has a huge number of free After Effects tutorials. There are basic introductory lessons, and really advanced classes on creating custom cinematic FX, like explosions. There’s even a playlist on title design, which will be useful for anyone looking to create an intro sequence for their videos.
@@ -73,22 +83,20 @@ This site has a huge number of free After Effects tutorials. There are basic int
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -97,4 +105,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/ffortless-tutorial-for-top-notch-yt-video-thumbnails/"><u>[New] Effortless Tutorial for Top-Notch YT Video Thumbnails</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-whos-watching-your-guide-to-instagram-eye-rolls-count/"><u>[New] In 2024, Who's Watching? Your Guide to Instagram Eye-Rolls Count</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-strategies-for-high-definition-streaming-on-global-platforms-fb-for-2024/"><u>[New] Strategies for High Definition Streaming on Global Platforms (FB) for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-revolutionize-your-clips-with-the-latest-vida-tools/"><u>[Updated] Revolutionize Your Clips with the Latest Vida Tools</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-youtube-clips-captured-a-no-cost-screencasting-tutorial/"><u>[Updated] YouTube Clips, Captured A No-Cost Screencasting Tutorial</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-starting-from-scratch-video-gear-insights/"><u>2024 Approved Starting From Scratch Video Gear Insights</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/forgot-apple-iphone-6-backup-password-heres-what-to-do-by-drfone-ios/"><u>Forgot Apple iPhone 6 Backup Password? Heres What to Do</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/navigating-espnplus-explained-a-comprehensive-look-at-how-it-revolutionizes-sports-viewing/"><u>Navigating ESPN+ Explained: A Comprehensive Look at How It Revolutionizes Sports Viewing</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/seamless-transfer-of-images-from-google-photos-to-icloud-a-step-by-step-guide/"><u>Seamless Transfer of Images From Google Photos to iCloud: A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ear-for-youtube-beginners-essential-tech-guide-for-2024/"><u>Top Gear for YouTube Beginners Essential Tech Guide for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ate-10-audio-elevators-on-computersmobile-for-2024/"><u>Ultimate 10 Audio Elevators on Computers/Mobile for 2024</u></a></li>
+</ul></div>
 

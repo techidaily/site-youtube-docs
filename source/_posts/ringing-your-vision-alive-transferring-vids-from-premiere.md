@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Bringing Your Vision Alive  Transferring Vids From Premiere\""
-date: 2024-11-13T16:57:08.151Z
-updated: 2024-11-18T20:20:31.713Z
+date: 2024-11-21T04:57:08.185Z
+updated: 2024-11-28T11:09:55.497Z
 tags:
   - ai video
   - ai youtube
@@ -68,6 +68,10 @@ thumbnail: https://thmb.techidaily.com/cf530c2c593b6932cef8db0cdf4cd19063a18ed96
 
 ![choosing-format](https://images.wondershare.com/multimedia/choosing-format.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Once you select  you can check the 'output name' field and see that premiere is automatically set the output file to .mp4 which is exactly what we need.
 
 #### 4\. Preset
@@ -75,6 +79,10 @@ thumbnail: https://thmb.techidaily.com/cf530c2c593b6932cef8db0cdf4cd19063a18ed96
  The next field we come to is the 'Preset' dropdown menu. This is a major help to most people, as Adobe have very kindly included large numbers of presets to quickly adapt video settings to suit specific uses. They vary depending on the exact version of Premiere you are using, and each format type does have its own list of presets,  as we can see has a large number for YouTube, but also has many presets for specific devices (presets for iPad, Kindle, Nook, various other tablets and phones, Vimeo and a host of others) to make getting the right settings that bit easier for us.
 
 ![presets](https://images.wondershare.com/multimedia/presets.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  It is important here to select the correct preset from the various YouTube options. You want to select the resolution and frame rate that match your source file, for the best results. So, if your source file is 1080p with a frame rate of 29.97 fps then that is the YouTube setting you would select.
 
@@ -94,6 +102,10 @@ thumbnail: https://thmb.techidaily.com/cf530c2c593b6932cef8db0cdf4cd19063a18ed96
 
 ![filename](https://images.wondershare.com/multimedia/filename.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Once those are selected clicking 'Export' starts the rendering process, and eventually (how long depends on the speed of your computer and the size and type of file involved), you will end up with your YouTube optimized video in the location you chose.
 
  Here I created 4 key frames that let the 'Animation' object move around the 'Demo Text' Object and finally come to rest below it. Whilst this type of effect does look very effective on screen, such is the ease of use of After Effects it really is just a few minutes work to achieve.
@@ -108,6 +120,10 @@ thumbnail: https://thmb.techidaily.com/cf530c2c593b6932cef8db0cdf4cd19063a18ed96
 
 ![upload-menu](https://images.wondershare.com/multimedia/upload-menu.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  You can either drag your file into the window or click on it to open a standard file browser to locate the desired file, click and the upload will begin. The dropdown underneath allows you to set the video as Public, Unlisted or Private. You can change this at any time once the video is uploaded as well.
 
  This opens the upload progress window, where you can add in a name, description and tags as well as add the video to a playlist or adjust the privacy settings as the video is uploading.
@@ -119,6 +135,10 @@ thumbnail: https://thmb.techidaily.com/cf530c2c593b6932cef8db0cdf4cd19063a18ed96
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -141,29 +161,22 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-enhance-video-content-with-these-expertly-curated-online-subtitles-editors/"><u>[New] 2024 Approved Enhance Video Content with These Expertly Curated Online Subtitles Editors</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-top-dslrs-for-photo-animation-studios/"><u>[New] 2024 Approved Top DSLRs for Photo Animation Studios</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/44551354-new-2024-approved-your-essential-gift-a-compact-bundle-of-50-banners/"><u>[New] 2024 Approved Your Essential Gift A Compact Bundle of 50 Banners!</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-enhancing-instagram-communications-through-video-engagement-for-2024/"><u>[New] Enhancing Instagram Communications Through Video Engagement for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ow-to-block-youtube-channels-on-computer-and-mobile-phones/"><u>[New] How to Block YouTube Channels on Computer and Mobile Phones</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-pro-thumbnails-made-simple-macos-style/"><u>[Updated] 2024 Approved Pro Thumbnails Made Simple MacOS Style</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-easy-steps-for-exporting-videos-from-youtube-to-dailymotion/"><u>[Updated] In 2024, Easy Steps for Exporting Videos From YouTube to Dailymotion</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-navigating-youtubes-tagging-system-tips-for-finding-prime-video-labels-for-2024/"><u>[Updated] Navigating YouTube's Tagging System Tips for Finding Prime Video Labels for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-instant-video-mastery-editing-made-effortless-in-windows-11/"><u>2024 Approved Instant Video Mastery Editing Made Effortless in Windows 11</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-the-little-billionaire-a-10-year-olds-wealthy-youtube-journey/"><u>2024 Approved The Little Billionaire A 10-Year-Old's Wealthy YouTube Journey</u></a></li>
-<li><a href="https://win-ratings.techidaily.com/1728505411308-hdd/"><u>安全なデータ保存方法：外付けHDDへの自動バックアップツール探し</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-fix-unresponsive-phone-touchscreen-of-vivo-v29-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Phone Touchscreen Of Vivo V29 Pro | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/lible-way-to-forbid-youtubes-snappy-videos/"><u>Infallible Way to Forbid YouTube's Snappy Videos</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/aging-youtube-trailers-for-optimal-revenue-generation-for-2024/"><u>Leveraging YouTube Trailers for Optimal Revenue Generation for 2024</u></a></li>
-<li><a href="https://program-issues.techidaily.com/overcoming-cod-black-ops-cold-wars-error-code-annoyance-your-ultimate-fix-guide/"><u>Overcoming Cod: Black Ops Cold War's Error Code Annoyance - Your Ultimate Fix Guide</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/97478805-top-6-youtube-outro-makers-lots-of-free-options-for-2024/"><u>Top 6 YouTube Outro Makers-Lots of FREE Options for 2024</u></a></li>
-<li><a href="https://driver-download.techidaily.com/winning-strategies-for-smooth-installation-of-arduino-nano-drivers-on-windows-computers/"><u>Winning Strategies for Smooth Installation of Arduino Nano Drivers on Windows Computers</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-techniques-for-capturing-the-perfect-verbal-note/"><u>[New] 2024 Approved Techniques for Capturing the Perfect Verbal Note</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-hone-your-message-effective-use-of-templates-for-shorts/"><u>[New] In 2024, Hone Your Message Effective Use of Templates for Shorts</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-started-streaming-learn-obs-for-youtube-now/"><u>[New] In 2024, Started Streaming? Learn OBS for Youtube Now!</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-overcome-blurred-images-the-best-online-enhancers-listed/"><u>[New] Overcome Blurred Images The Best Online Enhancers Listed</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-unlocking-the-secrets-behind-youtube-shorts-success/"><u>[Updated] 2024 Approved Unlocking the Secrets Behind YouTube Shorts Success</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-mjolnirs-legacy-new-era-dawned/"><u>[Updated] In 2024, Mjolnir's Legacy New Era Dawned</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-template-tips-for-efficient-and-effective-youtube-intros/"><u>[Updated] In 2024, Template Tips for Efficient and Effective YouTube Intros</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-maximizing-earnings-with-youtube-studio-monetization-on-any-device/"><u>[Updated] Maximizing Earnings with YouTube Studio Monetization on Any Device</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-surge-to-subscriber-success-with-strategic-tactics/"><u>2024 Approved Surge to Subscriber Success with Strategic Tactics</u></a></li>
+<li><a href="https://win-forum.techidaily.com/a-beginners-guide-to-basic-inputoutput-systems-unlocking-your-pcs-core-operations/"><u>A Beginner's Guide to Basic Input/Output Systems: Unlocking Your PC's Core Operations</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/sized-video-knowledge-now-for-2024/"><u>Bite-Sized Video Knowledge Now for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-your-samsung-galaxy-xcover-6-pro-tactical-edition-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>How to Mirror Your Samsung Galaxy XCover 6 Pro Tactical Edition Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-teach-you-to-transfer-files-from-realme-narzo-n53-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways To Teach You To Transfer Files from Realme Narzo N53 to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-keep-watching-youtube-in-the-background-with-ease/"><u>In 2024, Keep Watching YouTube in the Background with Ease</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-streamline-your-projects-with-these-9-budget-friendly-editors/"><u>In 2024, Streamline Your Projects with These 9 Budget-Friendly Editors</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-vdx-quickcapture-evaluation-complete-reviews/"><u>In 2024, VDX QuickCapture Evaluation Complete Reviews</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/moveavi-jpegtiff/"><u>Moveavi JPEGを無料でTIFFにシームレス変換する - オンラインツール</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Simplified Guide  Instant Deletion Methods for Youtube Discussions\""
-date: 2024-11-16T17:07:44.030Z
-updated: 2024-11-18T19:55:09.691Z
+date: 2024-11-24T08:13:30.007Z
+updated: 2024-11-27T20:11:22.844Z
 tags:
   - ai video
   - ai youtube
@@ -62,6 +62,10 @@ The steps to deleting someone else’s YouTube comments from your mobile are sim
 4. Once you reach the target comment, click on the three vertical dots at the bottom corner. There should be an option called Remove. Tap on it.
 5. This will create another dialog box on the mobile app where you have to click on Remove again to delete the comment.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Do You Delete Your Comments from YouTube?
 
 Have you accidentally posted something on a YouTuber’s channel? Are you anxious because you cannot find the comment and delete it?
@@ -108,13 +112,6 @@ To find your History from your desktop, you need to click on the three horizonta
 
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Delete All Your Posted YouTube Comments?
 
 You can also delete all comments you ever posted on any YouTube video by hiding your channel. When you do this, you can hide your video content temporarily. But it will irreversibly erase all your comments throughout YouTube. If you are curious, read on to know how you can do it.
@@ -125,10 +122,7 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
@@ -140,19 +134,13 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Final Thoughts
@@ -160,6 +148,10 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -182,14 +174,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/rom-average-to-exceptional-discover-the-finest-free-intra-designs/"><u>[New] From Average to Exceptional Discover the Finest Free Intra Designs</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-amplify-online-impact-through-savvy-templates-design/"><u>[Updated] 2024 Approved Amplify Online Impact Through Savvy Templates Design</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-2024-approved-crafting-viral-vignettes/"><u>[Updated] 2024 Approved Crafting Viral Vignettes</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-unpacking-youtubes-financial-framework-shifts/"><u>[Updated] In 2024, Unpacking YouTube’s Financial Framework Shifts</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-put-iphone-15-or-ipad-on-recovery-mode-step-by-step-tutorial-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Put iPhone 15 or iPad on Recovery mode? (Step by Step Tutorial) | Stellar</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/os-selecting-the-very-best-free-iphoneipad-editors-for-2024/"><u>How-To's Selecting the Very Best Free iPhone/iPad Editors for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/in-2024-entering-virtual-realms-with-lgs-vr-technology/"><u>In 2024, Entering Virtual Realms with LG's VR Technology</u></a></li>
-<li><a href="https://win-special.techidaily.com/the-pitfalls-of-debloating-your-pc-and-effective-alternatives-zdnet-insights/"><u>The Pitfalls of Debloating Your PC & Effective Alternatives | ZDNet Insights</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/unraveling-pageless-navigation-in-google-docs-why-you-should-embrace-this-game-changing-feature-for-enhanced-productivity/"><u>Unraveling Pageless Navigation in Google Docs: Why You Should Embrace This Game-Changing Feature for Enhanced Productivity</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-enhance-engagement-mastering-template-based-video-description-writing/"><u>[New] In 2024, Enhance Engagement Mastering Template-Based Video Description Writing</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-a-comprehensive-list-of-the-best-10-low-cost-video-production-schools-on-youtube-for-2024/"><u>[Updated] A Comprehensive List of the Best 10 Low-Cost Video Production Schools on YouTube for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-boosting-zoom-image-quality-professional-insights-for-2024/"><u>[Updated] Boosting Zoom Image Quality Professional Insights for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-how-to-elevate-youtube-broadcasts-select-the-right-webcam/"><u>[Updated] How to Elevate YouTube Broadcasts Select the Right Webcam</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-create-professional-fb-ad-videos-leverage-free-creative-toolkit/"><u>[Updated] In 2024, Create Professional FB Ad Videos Leverage Free Creative Toolkit</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-unlock-your-videos-potential-with-these-7-audio-treasures/"><u>[Updated] In 2024, Unlock Your Video's Potential with These 7 Audio Treasures</u></a></li>
+<li><a href="https://common-error.techidaily.com/fixing-a-disappearing-bluetooth-icon-tips-for-windows-11-users/"><u>Fixing a Disappearing Bluetooth Icon – Tips for Windows 11 Users</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/optimal-webcams-for-enhanced-clarity-in-all-your-zoom-calls-for-2024/"><u>Optimal Webcams for Enhanced Clarity in All Your Zoom Calls for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/overcoming-faulty-file-explorer-issues-in-windows-10-expert-fixes-revealed/"><u>Overcoming Faulty File Explorer Issues in Windows 10 – Expert Fixes Revealed</u></a></li>
+<li><a href="https://driver-error.techidaily.com/silent-peripheral-no-response-in-windows-os/"><u>Silent Peripheral: No Response in Windows OS</u></a></li>
 </ul></div>
 

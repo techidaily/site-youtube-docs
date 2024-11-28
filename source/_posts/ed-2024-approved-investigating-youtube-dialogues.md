@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Investigating YouTube Dialogues\""
-date: 2024-11-13T21:00:02.863Z
-updated: 2024-11-18T21:55:32.703Z
+date: 2024-11-24T09:31:31.559Z
+updated: 2024-11-27T17:46:20.959Z
 tags:
   - ai video
   - ai youtube
@@ -64,13 +64,14 @@ Besides the comment search feature, the YouTube Studio also has some in-built se
 
 ![  YouTube Studio comment filter](https://images.wondershare.com/filmora/article-images/youtube-studio-comment-filter-search.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You can combine these additional filters to narrow your comments search for YouTube.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Using YCS – YouTube Comment Search Extension
@@ -86,29 +87,7 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 ![ YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1542129">
-					<video width="864" height="1152" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: Using Comments Search for YouTube Extension
@@ -143,6 +122,10 @@ Did you post a comment on your favorite celebrity’s video? Do you think it may
 
 YouTube has now added this feature which you can see all the comments you ever posted on YouTube in one place.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How to Use the Comment History feature to Search Comments?
 
 You can see all the comments you have posted in the Comment History in a few quick steps.
@@ -154,6 +137,10 @@ You can see all the comments you have posted in the Comment History in a few qui
 ![ YouTube History Comment](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
 
 You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 5: How to Find Out Who Posts the Most Comments on Your YouTube Videos?
 
@@ -178,13 +165,6 @@ Find feedback or questions. Report offensive comments. If you are a regular YouT
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -206,18 +186,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/gtv-vs-youtube-differences-and-which-one-should-you-use-in-2024/"><u>[New] IGTV VS YouTube Differences and Which One Should You Use, In 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/nnovative-streamer-titling-cutting-through-the-clutter/"><u>[New] Innovative Streamer Titling Cutting Through the Clutter</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/urning-screen-time-into-cash-the-youtube-way/"><u>[New] Turning Screen Time Into Cash The YouTube Way</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-branding-with-visuals-inserting-watermarks-into-youtube-vids/"><u>[Updated] 2024 Approved Branding with Visuals Inserting Watermarks Into YouTube Vids</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-unlocking-the-potential-of-video-game-vlogging/"><u>[Updated] 2024 Approved Unlocking the Potential of Video Game Vlogging</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-innovative-approaches-to-craft-compelling-asmr-videos-for-mass-appeal/"><u>[Updated] In 2024, Innovative Approaches to Craft Compelling ASMR Videos for Mass Appeal</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-crescendo-to-calmness-premier-asmr-artists/"><u>2024 Approved Crescendo to Calmness Premier ASMR Artists</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/id-and-ios-leaders-in-asmr-content/"><u>Android & iOS Leaders in ASMR Content</u></a></li>
-<li><a href="https://win-dash.techidaily.com/effortless-setup-for-pioneer-djs-ddj-sx2-controller-get-the-driver-now/"><u>Effortless Setup for Pioneer DJ's DDJ-SX2 Controller - Get the Driver Now</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/expert-tips-utilizing-the-telnet-client-effectively-on-your-pc/"><u>Expert Tips: Utilizing the Telnet Client Effectively on Your PC</u></a></li>
-<li><a href="https://fox-ssl.techidaily.com/maximizing-affiliate-marketing-discover-the-power-of-the-affiliate-engine-and-massmail-at-our-exclusive-conference/"><u>Maximizing Affiliate Marketing: Discover the Power of the Affiliate Engine & MassMail at Our Exclusive Conference!</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/moto-z2s-brainpower-examined-in-detail/"><u>Moto Z2's Brainpower Examined in Detail</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/top-pick-childrens-films-streaming-on-disneyplus-in-july-2024/"><u>Top Pick Children's Films Streaming on Disney+ in July 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-mastering-the-download-of-your-youtube-playlist-today/"><u>[New] 2024 Approved Mastering the Download of Your YouTube Playlist Today!</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-crafting-a-profitable-channel-in-your-first-youtube-steps/"><u>[New] In 2024, Crafting a Profitable Channel in Your First Youtube Steps</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-unlocking-youtubes-potential-the-25-step-guide/"><u>[New] In 2024, Unlocking YouTube's Potential The 25-Step Guide</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-zoom-meeting-organization-tips-for-professionals/"><u>[New] In 2024, Zoom Meeting Organization Tips for Professionals</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-revolutionizing-video-recording-insights-on-camstudios-latest-release-for-2024/"><u>[New] Revolutionizing Video Recording - Insights on CamStudio's Latest Release for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-from-lurker-to-leader-the-roadmap-to-higher-fb-page-rankings/"><u>[Updated] From Lurker to Leader The Roadmap to Higher FB Page Rankings</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-how-to-make-fortnite-thumbnail-in-30-seconds/"><u>[Updated] In 2024, How to Make Fortnite Thumbnail in 30 Seconds</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-simple-steps-for-looped-iphone-videos/"><u>2024 Approved Simple Steps for Looped iPhone Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-the-content-kings-chronicle-mastering-youtube-monetization-no-ads-involved/"><u>2024 Approved The Content King's Chronicle Mastering YouTube Monetization, No Ads Involved</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/complete-guide-and-analysis-top-rated-software-for-restoring-lost-files-spotlight-on-recuva/"><u>Complete Guide & Analysis: Top Rated Software For Restoring Lost Files - Spotlight on Recuva</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-the-ultimate-guide-to-fb-video-calls-best-practices/"><u>In 2024, The Ultimate Guide to FB Video Calls Best Practices</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-the-anatomy-of-great-lower-thirds-a-guide-for-fcpx-editors/"><u>New 2024 Approved The Anatomy of Great Lower Thirds A Guide for FCPX Editors</u></a></li>
+<li><a href="https://fox-access.techidaily.com/stepping-into-the-world-of-ai-your-guide-to-starting-as-a-prompt-engineer/"><u>Stepping Into the World of AI: Your Guide to Starting as a Prompt Engineer</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/unleashing-potential-from-standard-sdr-to-high-end-hdr/"><u>Unleashing Potential From Standard SDR to High-End HDR</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-trail-the-echoes-of-game-soundscape/"><u>Updated Trail the Echoes of Game Soundscape</u></a></li>
 </ul></div>
 
