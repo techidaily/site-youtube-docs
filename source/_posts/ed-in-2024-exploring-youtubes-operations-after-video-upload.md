@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Exploring YouTube's Operations After Video Upload"
-date: 2024-09-02T06:46:20.057Z
-updated: 2024-09-03T06:46:20.057Z
+date: 2024-12-05T17:43:33.752Z
+updated: 2024-12-07T16:23:13.939Z
 tags:
   - ai video
   - ai youtube
@@ -28,6 +28,10 @@ You use YouTube to watch videos, post your own content, and build up a following
 
 This article will explain what goes on behind the scenes when you upload a video, where that video really goes, and what happens when somebody clicks play.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Does YouTube Work
 
 #### 1\. What Happens When You Upload?
@@ -40,9 +44,17 @@ If uploading takes a long time for you it probably has nothing to do with YouTub
 
 ![how youtube works](https://images.wondershare.com/filmora/article-images/how-youtube-works.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 As it is owned by Google YouTube uses Google's 'Bigtable', a compressed data storage system which allows it to store the 500+ hours of video uploaded to its servers every minute. Bigtable is software, though, not hardware. YouTube and Google both have massive amounts of data and it needs to be physically housed somewhere.
 
 ![videos uploaded to youtube](https://images.wondershare.com/filmora/article-images/videos-uploaded-to-youtube.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Google has Modular Data Centers all over the world where it keeps its servers. These centers could cost as much as $600 million dollars each and consume huge amounts of electricity. There are six of them in the United States, three in Europe, two in Asia, and one is South America.
 
@@ -54,20 +66,21 @@ If videos take a long time to load for you then there are a few things you can d
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -76,8 +89,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-step-by-step-perfecting-fbs-360-streams/"><u>[New] Step-by-Step Perfecting FB's 360 Streams</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-a-comprehensive-approach-to-online-advertising-mastery-for-2024/"><u>[Updated] A Comprehensive Approach to Online Advertising Mastery for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-effortless-subtitling-and-cc-addition-techniques-for-youtube-users-for-2024/"><u>[Updated] Effortless Subtitling & CC Addition Techniques for YouTube Users for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-top-ranked-visual-saver-for-chromebook-users/"><u>[Updated] In 2024, Top-Ranked Visual Saver For Chromebook Users</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-soar-your-viewership-to-over-a-thousand-in-weeks-for-2024/"><u>[Updated] Soar Your Viewership to Over a Thousand in Weeks for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/st-vlogging-cameras-for-vloggers-for-2024/"><u>12 Best Vlogging Cameras for Vloggers for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/duo-cameras-for-kids-joyful-snapshots/"><u>Duo Cameras for Kids' Joyful Snapshots</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/fun-meets-functionality-the-ddpai-mini3-dashcam-reviewed/"><u>Fun Meets Functionality: The DDPai Mini3 Dashcam Reviewed</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ssing-home-content-a-commercialized-vlog-journey/"><u>Harnessing Home Content A Commercialized Vlog Journey</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-teach-you-to-transfer-files-from-oppo-a78-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways To Teach You To Transfer Files from Oppo A78 to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-easy-acquisition-of-individual-ending-music-files/"><u>In 2024, Easy Acquisition of Individual Ending Music Files</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-engage-audiences-writing-magical-youtube-description-templates-for-higher-views/"><u>In 2024, Engage Audiences Writing Magical YouTube Description Templates for Higher Views</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-how-to-elevate-youtube-rankings-with-optimized-metadata/"><u>In 2024, How to Elevate YouTube Rankings with Optimized Metadata</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/why-are-videos-turning-around-when-i-engage-with-posts/"><u>Why Are Videos Turning Around When I Engage with Posts?</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->

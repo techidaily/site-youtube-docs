@@ -1,7 +1,7 @@
 ---
 title: "In 2024, The Artisan's Guide to Animation Enchantment"
-date: 2024-11-22T07:17:21.649Z
-updated: 2024-11-27T20:19:22.929Z
+date: 2024-12-02T16:41:46.522Z
+updated: 2024-12-07T17:11:35.449Z
 tags:
   - ai video
   - ai youtube
@@ -52,7 +52,7 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Mt. Mograph](https://www.youtube.com/channel/UCSUSgx9qc%5FNydrOL59xbJIA)**
@@ -60,7 +60,7 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
@@ -70,7 +70,7 @@ Lynda isn’t free, but the 10-day free trial period is definitely long enough f
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Bloop Animation](https://www.bloopanimation.com/)**
@@ -78,7 +78,7 @@ What’s great about this course is that it assumes you have no animation experi
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Video Copilot](http://www.videocopilot.net/)**
@@ -88,7 +88,7 @@ This site has a huge number of free After Effects tutorials. There are basic int
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -112,18 +112,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-enhance-video-visibility-using-creator-studio-wisdom/"><u>[New] 2024 Approved Enhance Video Visibility Using Creator Studio Wisdom</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-expert-strategies-for-tackling-copyright-claims-on-youtube/"><u>[New] 2024 Approved Expert Strategies for Tackling Copyright Claims on YouTube</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-game-up-your-content-with-these-effective-freefire-video-hashtags/"><u>[New] 2024 Approved Game Up Your Content with These Effective FreeFire Video Hashtags</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/-game-changing-tactics-to-increase-watch-time-and-reduce-churn-rate-for-2024/"><u>[New] 6 Game-Changing Tactics to Increase Watch Time and Reduce Churn Rate for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-money-smart-aerial-explorers-5-best-drones-for-less-than-100-for-2024/"><u>[New] Money-Smart Aerial Explorers 5 Best Drones for Less Than $100 for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-copyright-protection-for-instatunes-for-2024/"><u>[Updated] Copyright Protection for InstaTunes for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-gameplay-in-focus-scrutinizing-screen-recorders-for-2024/"><u>[Updated] Gameplay in Focus Scrutinizing Screen Recorders for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-redefine-video-downloading-pick-from-these-top-ranked-free-and-on-demand-apps-for-youtube-shorts/"><u>[Updated] Redefine Video Downloading Pick From These Top-Ranked, Free & On-Demand Apps for YouTube Shorts</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/how-apple-can-revive-vision-pro-success-with-three-key-actions-insights/"><u>How Apple Can Revive Vision Pro Success with Three Key Actions - Insights</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/how-to-recall-facebooks-older-episodes-with-your-computer-and-phone/"><u>How to Recall Facebook's Older Episodes with Your Computer & Phone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-14-to-other-iphone-15-pro-max-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 14 to other iPhone 15 Pro Max devices? | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/-lines-best-comedy-video-concepts-for-the-social-media-sphere-for-2024/"><u>Laugh Lines Best Comedy Video Concepts for the Social Media Sphere for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/-form-media-exploration/"><u>Short Form Media Exploration</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-channel-success-story-optimal-themes-and-ideas-to-boost-content/"><u>[New] 2024 Approved Channel Success Story Optimal Themes and Ideas to Boost Content</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/rom-clicks-to-cash-elevating-exposure-economics-for-2024/"><u>[New] From Clicks to Cash Elevating Exposure Economics for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-high-resolution-horizons-an-in-depth-look-at-the-asus-mg28uq/"><u>[Updated] 2024 Approved High-Resolution Horizons An In-Depth Look at the ASUS MG28UQ</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-jest-engineer-online/"><u>[Updated] 2024 Approved Jest Engineer Online</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-youtubes-competition-best-3-online-videostreaming-hubs/"><u>[Updated] In 2024, YouTube's Competition Best 3 Online Videostreaming Hubs</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-unveiling-the-best-5-tools-for-youtube-video-url-shortening-for-2024/"><u>[Updated] Unveiling the Best 5 Tools for YouTube Video URL Shortening for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/all-about-farming-on-ginger-isle/"><u>All About Farming on Ginger Isle</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/tect-of-audiovisual-brilliance/"><u>Architect of Audiovisual Brilliance</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/vs-mirrorless-optimal-choice-for-video-production-for-2024/"><u>DSLR vs Mirrorless Optimal Choice for Video Production for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-iphones-leading-selfie-aids-8-edition/"><u>In 2024, Iphone's Leading Selfie Aids - #8 Edition</u></a></li>
+<li><a href="https://fox-info.techidaily.com/iphone-x-photography-leveraging-latest-features/"><u>IPhone X Photography Leveraging Latest Features</u></a></li>
 </ul></div>
 

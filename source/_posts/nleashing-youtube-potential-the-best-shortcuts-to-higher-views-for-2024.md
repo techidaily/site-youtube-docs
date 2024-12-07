@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Unleashing YouTube Potential  The Best Shortcuts to Higher Views for 2024\""
-date: 2024-11-21T07:49:58.495Z
-updated: 2024-11-27T17:00:41.798Z
+date: 2024-12-04T18:44:37.845Z
+updated: 2024-12-07T16:43:47.845Z
 tags:
   - ai video
   - ai youtube
@@ -33,6 +33,10 @@ With that said, the following two-columned tables give you detailed information 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Amazing YouTube Keyboard Shortcuts You May Not Know
 
 To make things convenient for you, the shortcut keys are placed under their corresponding categories, where each category is in the form of a two-columned table.
@@ -45,10 +49,6 @@ While watching a YouTube video, there might be instances when you want to pause 
 | ----------------- | -------------------------------------- |
 | 'K'               | Play and Pause (Works as a toggle key) |
 | 'Spacebar'        | Play and Pause (Works as a toggle key) |
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Category 2: Scrolling YouTube Videos Back and Forth
 
@@ -70,7 +70,7 @@ If you’re watching videos on YouTube mobile app, you can use double-tap on the
 Long press the Video Player and swipe right will navigate the video forward; and long press the video player and wwipe left will navigate the video backward.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Category 3: Manage Playback Speed
@@ -81,10 +81,6 @@ This category contains information on increasing or decreasing the playback spee
 | ---------------------- | ----------------------- |
 | 'SHIFT' + '.' (Period) | Increase playback speed |
 | 'SHIFT' + ',' (Comma)  | Decrease playback speed |
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Category 4: Managing the Captions
 
@@ -108,6 +104,10 @@ This category shows the shortcut keys to manage audio for a YouTube video:
 | '↑'               | Increase volume by 5% |
 | '↓'               | Decrease volume by 5% |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Category 6: Switching Between Screen Modes
 
 The shortcut keys given in this table enable you to switch between different screen modes:
@@ -123,7 +123,7 @@ Double press F/T/I on the keyboard will exit the full-screen/theater model/indep
 If you are watching video on YouTube mobile app, you can swipe up the video slightly to enter the full screen mode, and swipe down the video slightly to exit the full screen.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Category 7: Viewing 360o/VR Videos
@@ -158,11 +158,11 @@ As one of the most popular video editing software among YouTubers, Filmora provi
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -185,22 +185,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-fostering-fandoms-top-three-storytelling-techniques/"><u>[Updated] 2024 Approved Fostering Fandoms Top Three Storytelling Techniques</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-future-visions-10-sci-fi-metaverse-movies-explore-worlds-anew/"><u>[Updated] Future Visions 10 Sci-Fi Metaverse Movies Explore Worlds Anew</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-in-depth-zoom-guidance-for-virtual-team-spaces-in-msteams/"><u>[Updated] In 2024, In-Depth Zoom Guidance for Virtual Team Spaces in MSTEAMS</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-securing-your-contents-reputation-while-gaining-a-million-viewer-engagements/"><u>[Updated] In 2024, Securing Your Content's Reputation While Gaining A Million Viewer Engagements</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-step-by-step-approach-to-crafting-youtube-intros/"><u>[Updated] Step-by-Step Approach to Crafting YouTube Intros</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-unveiling-the-vr-future-latest-trends/"><u>[Updated] Unveiling the VR Future Latest Trends</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-from-conceptualization-to-production-a-guide-to-making-mukbang/"><u>2024 Approved From Conceptualization to Production A Guide to Making Mukbang</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/studio-heroics-your-path-to-effectful-artistry/"><u>Home Studio Heroics Your Path to Effectful Artistry</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/how-does-the-iphone-15-pro-max-stack-up-against-the-samsung-s24-ultra-a-detailed-comparison/"><u>How Does the iPhone 15 Pro Max Stack Up Against the Samsung S24 Ultra? A Detailed Comparison</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-achieving-peak-performance-in-video-submissions-on-youtube/"><u>In 2024, Achieving Peak Performance in Video Submissions on YouTube</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/in-2024-elite-gaming-spectacle-cut-to-best-7-shooters/"><u>In 2024, Elite Gaming Spectacle Cut to Best 7 Shooters</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-no-one-sees-you-heres-how-to-make-your-youtube-video-a-hit/"><u>In 2024, No One Sees You? Here’s How To Make Your YouTube Video A Hit</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-timing-tricks-for-youtube-traffic-surge/"><u>In 2024, Timing Tricks for YouTube Traffic Surge</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ating-lenses-for-professional-videography/"><u>Navigating Lenses for Professional Videography</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/mline-your-online-listening-experience-with-direct-capture/"><u>Streamline Your Online Listening Experience with Direct Capture</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/transformer-un-fichier-mp4-en-format-avi-sur-internet-gratuitement-tutorial-movavi/"><u>Transformer Un Fichier MP4 en Format AVI Sur Internet Gratuitement - Tutorial Movavi</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/1723209863312-troubleshoot-a-deadbolt-usb-mouse-connection-with-these-simple-laptop-fixes/"><u>Troubleshoot a Deadbolt USB Mouse Connection with These Simple Laptop Fixes!</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-mastering-multi-video-viewing-on-youtube/"><u>[New] 2024 Approved Mastering Multi-Video Viewing on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-achieving-a-noiseless-presence-on-social-video-platforms-for-2024/"><u>[New] Achieving a Noiseless Presence on Social Video Platforms for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-mastering-legal-compliance-in-your-tiktok-content-upload-for-2024/"><u>[New] Mastering Legal Compliance in Your TikTok Content Upload for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/he-great-livestream-debate-facebook-vs-youtube-live-and-twitter-periscope-for-2024/"><u>[New] The Great Livestream Debate FACEbook Vs. YOUTube Live & Twitter Periscope for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-unlocking-home-design-potential-in-minecraft-for-2024/"><u>[New] Unlocking Home Design Potential in Minecraft for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/our-pathway-to-profit-the-most-straightforward-top-10-business-channels-on-youtube-for-2024/"><u>[New] Your Pathway to Profit The Most Straightforward Top 10 Business Channels on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-adding-audio-descriptions-to-videos-on-youtube/"><u>[Updated] 2024 Approved Adding Audio Descriptions to Videos on YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-expert-strategies-for-tackling-copyright-claims-on-youtube-for-2024/"><u>[Updated] Expert Strategies for Tackling Copyright Claims on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-fix-your-fb-account-post-hack-recovery-guide/"><u>[Updated] In 2024, Fix Your FB Account Post-Hack Recovery Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-the-art-of-refining-published-videos-on-youtube/"><u>[Updated] In 2024, The Art of Refining Published Videos on YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-ranking-8-real-time-strategies-to-grow-youtube-success/"><u>[Updated] Ranking 8 Real-Time Strategies to Grow YouTube Success</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-unleash-potential-creating-a-youtube-channel-that-shines-in-games/"><u>[Updated] Unleash Potential Creating a YouTube Channel that Shines in Games</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/decoding-the-essence-of-asmr-videos-for-2024/"><u>Decoding the Essence of ASMR Videos for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-quickly-fix-your-devices-troubles-overcoming-error-code-0xa00f4292-on-windows-cameras/"><u>How to Quickly Fix Your Device's Troubles: Overcoming Error Code 0xA00F4292 on Windows Cameras</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-corrupt-mp4-and-mov-files-of-lava-blaze-2-pro-using-video-repair-utility-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair corrupt MP4 and MOV files of Lava Blaze 2 Pro using Video Repair Utility on Windows? </u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Complete Tutorial to Use VPNa to Fake GPS Location On Apple iPhone 13 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-global-viewership-kings-youtubes-viral-royalty/"><u>In 2024, Global Viewership Kings YouTube's Viral Royalty</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ting-wisdom-in-webcams-finest-stocks-channels-for-2024/"><u>Investing Wisdom in Webcams Finest Stocks Channels for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/forming-youtube-descriptions-leveraging-template-power/"><u>Transforming YouTube Descriptions Leveraging Template Power</u></a></li>
 </ul></div>
 

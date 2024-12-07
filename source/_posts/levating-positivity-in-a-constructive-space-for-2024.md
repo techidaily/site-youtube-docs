@@ -1,7 +1,7 @@
 ---
 title: "[New] Elevating Positivity in a Constructive Space for 2024"
-date: 2024-11-24T11:33:56.923Z
-updated: 2024-11-28T11:15:07.258Z
+date: 2024-12-02T18:50:26.180Z
+updated: 2024-12-07T18:41:10.175Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/088a2140549716da6b5748cac96819433a88c8dbf
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/088a2140549716da6b5748cac96819433a88c8dbf
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -83,16 +83,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-talent-hunters-unite-top-10-video-roundup/"><u>[New] 2024 Approved Talent Hunters Unite! Top 10 Video Roundup</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-unveiling-our-exclusive-package-of-free-youtube-adornments/"><u>[New] 2024 Approved Unveiling Our Exclusive Package of Free YouTube Adornments</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-virtual-tournament-gear-showcase-series/"><u>[New] 2024 Approved Virtual Tournament Gear Showcase Series</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-youtube-shorts-showing-up-after-fix/"><u>[New] 2024 Approved YouTube Shorts Showing Up After Fix</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-easily-download-your-favorites-handpicked-tools-reviewed/"><u>[New] In 2024, Easily Download Your Favorites Handpicked Tools Reviewed</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-strategies-for-utilizing-video-resources-in-learning/"><u>[Updated] 2024 Approved Strategies for Utilizing Video Resources in Learning</u></a></li>
-<li><a href="https://driver-download.techidaily.com/ensure-seamless-connectivity-on-your-windows-device-with-the-latest-generic-bluetooth-driver-download/"><u>Ensure Seamless Connectivity on Your Windows Device with the Latest Generic Bluetooth Driver Download</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-discovering-and-developing-your-personalized-mukbang-style/"><u>In 2024, Discovering and Developing Your Personalized Mukbang Style</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/overcoming-the-challenge-of-ntoskrnlexe-and-netiosys-errors-a-how-to-for-windows-users/"><u>Overcoming the Challenge of NTOSKRNL.EXE & NETIO.SYS Errors: A How-To for Windows Users</u></a></li>
-<li><a href="https://win-special.techidaily.com/sd3ds/"><u>SDカードの失われたバックアップを回復するための任天堂3DS用手順 : 詳細マニュアル</u></a></li>
-<li><a href="https://win-advanced.techidaily.com/streamline-your-inbox-overnight-using-simple-organization-tricks-say-goodbye-to-clutter-without-multiple-emails-smarttechhacks/"><u>Streamline Your Inbox Overnight Using Simple Organization Tricks - Say Goodbye to Clutter Without Multiple Emails | SmartTechHacks</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-ascend-youtube-rankings-through-optimal-dating-for-2024/"><u>[Updated] Ascend YouTube Rankings Through Optimal Dating for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-how-to-find-my-playlist-on-youtube/"><u>[Updated] In 2024, How to Find My Playlist on YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-independent-artists-guide-to-personalized-visual-tricks/"><u>[Updated] In 2024, Independent Artists' Guide to Personalized Visual Tricks</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-unveiling-youtube-shorts-money-making-mechanisms/"><u>[Updated] In 2024, Unveiling YouTube Shorts Money-Making Mechanisms</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-maximize-views-with-these-top-20-thumbnail-fonts-for-2024/"><u>[Updated] Maximize Views with These Top 20 Thumbnail Fonts for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/erated-learning-for-chromakey-artistry-for-2024/"><u>Accelerated Learning for Chromakey Artistry for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/expert-advice-how-to-get-past-the-hurdle-when-red-dead-redemption-2-wont-boot-up-correctly/"><u>Expert Advice: How to Get Past the Hurdle When Red Dead Redemption 2 Won't Boot Up Correctly</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/forgot-pattern-lock-heres-how-you-can-unlock-asus-rog-phone-7-ultimate-pattern-lock-screen-by-drfone-android/"><u>Forgot Pattern Lock? Heres How You Can Unlock Asus ROG Phone 7 Ultimate Pattern Lock Screen</u></a></li>
+<li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-vivo-y100a-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Vivo Y100A | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-effortlessly-export-tiktok-vids-as-premium-mp4-files/"><u>In 2024, Effortlessly Export TikTok Vids as Premium MP4 Files</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-honor-play-40c-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your Honor Play 40C Is Unlocked</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-turn-off-find-my-apple-iphone-15-pro-max-when-phone-is-broken-by-drfone-ios/"><u>In 2024, How to Turn Off Find My Apple iPhone 15 Pro Max when Phone is Broken?</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-a-network-locked-meizu-21-pro-phone-by-drfone-android/"><u>In 2024, How to Unlock a Network Locked Meizu 21 Pro Phone?</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/pixelated-past-x-era-selfies-with-iphone-x/"><u>Pixelated Past X-Era Selfies with iPhone X</u></a></li>
 </ul></div>
 

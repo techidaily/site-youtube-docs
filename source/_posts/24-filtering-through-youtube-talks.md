@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Filtering Through YouTube Talks"
-date: 2024-11-26T00:52:57.536Z
-updated: 2024-11-28T02:18:54.375Z
+date: 2024-12-06T16:50:33.542Z
+updated: 2024-12-07T18:10:02.291Z
 tags:
   - ai video
   - ai youtube
@@ -66,10 +66,6 @@ Besides the comment search feature, the YouTube Studio also has some in-built se
 
 You can combine these additional filters to narrow your comments search for YouTube.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: Using YCS – YouTube Comment Search Extension
 
 You can use the YouTube Comment Search browser extension supported by Google Chrome to help you search YouTube comments effortlessly. To use it, follow these steps below.
@@ -81,6 +77,10 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 5. Now type your keywords, press Enter, and YCS will show all comments having the keyword you typed.
 
 ![ YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: Using Comments Search for YouTube Extension
 
@@ -109,7 +109,7 @@ This mode allows you to enter special commands to carry out an advanced search. 
 3. ‘:creator’ to get comments made by the creator
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: How Do You Search Comments You Have Posted on YouTube?
@@ -117,10 +117,6 @@ This mode allows you to enter special commands to carry out an advanced search. 
 Did you post a comment on your favorite celebrity’s video? Do you think it may be embarrassing and want to delete it now but cannot find it now amidst so many comments? It is where you can make use of YouTube’s Comment History feature.
 
 YouTube has now added this feature which you can see all the comments you ever posted on YouTube in one place.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### How to Use the Comment History feature to Search Comments?
 
@@ -133,10 +129,14 @@ You can see all the comments you have posted in the Comment History in a few qui
 ![ YouTube History Comment](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 5: How to Find Out Who Posts the Most Comments on Your YouTube Videos?
 
@@ -162,7 +162,7 @@ Find feedback or questions. Report offensive comments. If you are a regular YouT
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -186,22 +186,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-achieve-profitability-on-youtube-embracing-any-device-approach/"><u>[New] 2024 Approved Achieve Profitability on Youtube Embracing Any Device Approach</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-building-your-brand-with-a-sports-youtube-chain-on-macos/"><u>[New] 2024 Approved Building Your Brand with a Sports YouTube Chain on macOS</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-charting-a-course-youtubes-best-brands/"><u>[New] 2024 Approved Charting a Course YouTube's Best Brands</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-frame-it-right-essential-composition-rules-for-youtube-filmmaking/"><u>[New] 2024 Approved Frame It Right Essential Composition Rules for YouTube Filmmaking</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-from-zero-to-hero-creating-an-online-gaming-empire/"><u>[New] 2024 Approved From Zero to Hero Creating an Online Gaming Empire</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-leverage-online-platform-features-to-spread-your-music/"><u>[New] 2024 Approved Leverage Online Platform Features to Spread Your Music</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-seamless-offline-experience-best-playlist-downloader-tools-reviewed/"><u>[New] 2024 Approved Seamless Offline Experience Best Playlist Downloader Tools Reviewed</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-installing-snapchat-efficiently-on-your-mac-for-2024/"><u>[New] Installing Snapchat Efficiently on Your Mac for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-the-ultimate-guide-to-enriching-youtube-videos-with-harmonics/"><u>[New] The Ultimate Guide to Enriching YouTube Videos with Harmonics</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-navigating-through-vrs-digital-storyscapes/"><u>[Updated] 2024 Approved Navigating Through VR's Digital Storyscapes</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-supreme-mac-video-encoder/"><u>[Updated] 2024 Approved Supreme Mac Video Encoder</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-be-the-game-changer-xbox-one-screen-recording-mastery-for-2024/"><u>[Updated] Be the Game Changer Xbox One Screen Recording Mastery for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-unveiling-the-secrets-of-smooth-telegram-web-use/"><u>[Updated] Unveiling the Secrets of Smooth Telegram Web Use</u></a></li>
-<li><a href="https://article-helps.techidaily.com/2024-approved-learn-to-cropping-and-composition-the-audio-visual-balance-in-canvas/"><u>2024 Approved Learn to Cropping & Composition The Audio-Visual Balance in Canvas</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-process-of-screen-sharing-poco-x5-to-pc-detailed-steps-drfone-by-drfone-android/"><u>In 2024, Process of Screen Sharing Poco X5 to PC- Detailed Steps | Dr.fone</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/overcoming-the-challenge-of-windows-exception-breakpoint-error/"><u>Overcoming the Challenge of Windows Exception Breakpoint Error</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/-grab-your-complete-guide-to-effortless-video-capture-for-2024/"><u>Quick-Grab Your Complete Guide to Effortless Video Capture for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/utting-edge-tools-to-snatch-and-save-videos-flawlessly-for-2024/"><u>[New] Cutting-Edge Tools to Snatch and Save Videos Flawlessly for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-navigating-the-best-pixel-soundtracks-online/"><u>[New] In 2024, Navigating the Best Pixel Soundtracks Online</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-seamless-integration-of-luts-for-enhanced-cinematography/"><u>[New] Seamless Integration of LUTs for Enhanced Cinematography</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-a-beginners-guide-to-sony-vegas-and-youtube-cutting/"><u>[Updated] 2024 Approved A Beginner's Guide to Sony Vegas and YouTube Cutting</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-legality-of-recording-on-youtube-platform/"><u>[Updated] 2024 Approved Legality of Recording on YouTube Platform?</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-a-filmmakers-approach-to-youtube-splitscreen-videos-for-2024/"><u>[Updated] A Filmmaker's Approach to YouTube Splitscreen Videos for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-speed-filled-guide-to-double-exposure-methods-for-2024/"><u>[Updated] Speed-Filled Guide to Double Exposure Methods for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-the-art-of-macro-video-best-practices-unveiled/"><u>[Updated] The Art of Macro Video Best Practices Unveiled</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ing-barriers-increasing-viewership-on-youtube-for-2024/"><u>Breaking Barriers Increasing Viewership on YouTube for 2024</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/in-2024-clear-obstacle-youtube-tweets-on-google-chrome/"><u>In 2024, Clear Obstacle YouTube Tweets on Google Chrome</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-comprehensive-step-by-step-on-zooms-video-broadcasting/"><u>In 2024, Comprehensive Step-by-Step on Zoom's Video Broadcasting</u></a></li>
+<li><a href="https://some-skills.techidaily.com/strategies-to-ensure-iphone-camera-focus-for-2024/"><u>Strategies to Ensure iPhone Camera Focus for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ltimate-guide-incorporating-informative-commentary-in-youtube-videos-for-2024/"><u>The Ultimate Guide Incorporating Informative Commentary in YouTube Videos for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/uncovering-hidden-digits-techniques-to-find-and-restore-erased-phone-numbers-on-android-phones/"><u>Uncovering Hidden Digits: Techniques to Find and Restore Erased Phone Numbers on Android Phones</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"From YouTube to IGTV  Top Methods Unveiled\""
-date: 2024-09-02T06:45:55.336Z
-updated: 2024-09-03T06:45:55.336Z
+date: 2024-12-01T16:17:28.471Z
+updated: 2024-12-07T17:35:34.289Z
 tags:
   - ai video
   - ai youtube
@@ -34,6 +34,10 @@ YouTube videos, on the other hand, are mostly horizontally oriented. If you atte
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Convert YouTube Videos to IGTV Vertical Videos with [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -49,6 +53,10 @@ Click on the **Import button** to add a YouTube video to your project and then p
 Go to the **Effects tab** and click on the **Background Blur** submenu if you want to blur the empty areas of the frame. Add the **Basic Blur effect** to the timeline and drag one of its sides to position it over the entire video.
 
 ![Filmora  convert YouTube to IGTV](https://images.wondershare.com/filmora/article-images/filmora-convert-youtube-video-igtv.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 In case you are working with a video that already has a 16:9 aspect ratio, you can create a project that has the same aspect ratio, and then just use **the Rotate slider in the Transform menu**, to change turn a landscape video into a portrait video. The scaling tool is helpful to enlarge the frames in a vertical aspect ratio.
 
@@ -72,18 +80,26 @@ Click on the Resize tool and simply **copy and paste the URL** of a YouTube into
 
 ![Kapwing  Crop YouTube video to IGTV](https://images.wondershare.com/filmora/article-images/kapwing-crop-youtube-to-igtv.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Pick the **Story (Snap/Insta) or IGTV 9:16 option** and then proceed to **choose the background color for your IGTV video, increase or decrease the zoom level or change the position of the video**. Click on the **Create button** when ready and wait for Kapwing to process your video. **All videos you create with the free version of this online video editor are going to be watermarked** and you have to pay a six-dollar fee for each watermark-free video you edit with Kapwing or you can opt for a $20 monthly subscription fee that enables you to export an unlimited amount of videos without watermarks each month.
 
 ![Kapwing  Rotate YouTube video to IGTV](https://images.wondershare.com/filmora/article-images/rotate-youtube-video-convert-to-igtv.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 A growing number of IGTV users choose to rotate their videos, instead of resizing them, so if you already have a YouTube video with a 16:9 aspect ratio you can just rotate it and get a video with a 9:16 aspect ratio. Click on the **Rotate**  option and then rotate it **90 degrees clockwise or counterclockwise** and click on the **Create button**. If you opt for this method of creating a vertical video for IGTV, your video will remain the same size, but the viewers will have to hold their phones horizontally in order to view it properly.
 
 **You may also like:** [ How to Convert MKV to MP4 without Losing Quality \[Free Converters Provided\] >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 3: Changing the Aspect Ratio of a YouTube Video with Final Cut Pro
 
 Editing videos with professional video editing software products like Final Cut Pro or Premiere Pro requires a certain amount of skill. There is more than just one way to change the aspect ratio of a video in Final Cut Pro, but probably the best one is to **set the project resolution to 2160X3840 or any other lower resolution that matches the 9:16 aspect ratio**. During the video editing process, you will have to **resize all of the footage** you want to include in the final version of the video. Planning your shots and composing them differently than you would compose horizontally oriented shots can potentially save you a little time on resizing and repositioning the video clips you’re working with.
@@ -98,23 +114,17 @@ Posting YouTube videos on your IGTV channel is still a somewhat complicated proc
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -123,4 +133,21 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/ptimizing-youtube-content-for-higher-visibility-for-2024/"><u>[New] Optimizing YouTube Content for Higher Visibility for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/he-content-dilemma-deciding-on-the-best-platform-igtv-or-youtube/"><u>[New] The Content Dilemma Deciding on the Best Platform - IGTV or YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-billion-views-video-hall-youtubes-top-ever-watches/"><u>[Updated] 2024 Approved Billion-Views Video Hall YouTube's Top Ever Watches</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-breaking-into-the-digital-age-mobile-streaming-on-facebook-for-2024/"><u>[Updated] Breaking Into the Digital Age Mobile Streaming on Facebook for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-breaking-through-boundaries-optimizing-videos-for-maximum-traction/"><u>[Updated] Breaking Through Boundaries Optimizing Videos for Maximum Traction</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-adding-sounds-to-your-story-a-premiere-pro-guide/"><u>2024 Approved Adding Sounds to Your Story A Premiere Pro Guide</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-master-the-art-of-captivating-audiences-in-tiktok-unpack-videos/"><u>2024 Approved Master the Art of Captivating Audiences in TikTok Unpack Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-the-definitive-guide-to-professional-level-youtube-video-edits/"><u>2024 Approved The Definitive Guide to Professional-Level YouTube Video Edits</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/1726030077113-2/"><u>効果的な方法で2つのビデオファイルを組み合わせる指南</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/get-fit-and-groove-to-the-beat-with-garmin-vivoactive-3s-superior-soundtrack-features/"><u>Get Fit and Groove to the Beat with Garmin Vivoactive 3'S Superior Soundtrack Features</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-enable-usb-debugging-on-a-locked-honor-magic-vs-2-phone-by-drfone-android/"><u>How To Enable USB Debugging on a Locked Honor Magic Vs 2 Phone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-perfect-sound-devices-for-podcasters/"><u>In 2024, Perfect Sound Devices for Podcasters</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/step-by-step-guide-to-installing-mf8500c-driver-for-windows-users/"><u>Step-by-Step Guide to Installing MF8500C Driver for Windows Users</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/transform-everyday-alerts-into-signature-sounds-with-android-tips-for-2024/"><u>Transform Everyday Alerts Into Signature Sounds with Android Tips for 2024</u></a></li>
+</ul></div>
 

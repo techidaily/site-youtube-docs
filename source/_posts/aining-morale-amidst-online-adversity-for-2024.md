@@ -1,7 +1,7 @@
 ---
 title: "Maintaining Morale Amidst Online Adversity for 2024"
-date: 2024-09-02T06:49:16.864Z
-updated: 2024-09-03T06:49:16.864Z
+date: 2024-12-06T16:19:34.503Z
+updated: 2024-12-07T18:54:53.748Z
 tags:
   - ai video
   - ai youtube
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/17c25677d8b6f855960d685398c90f557dfcb8867
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -54,20 +58,21 @@ thumbnail: https://thmb.techidaily.com/17c25677d8b6f855960d685398c90f557dfcb8867
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -76,8 +81,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/ed-efficient-video-categorization-with-tags-for-2024/"><u>[Updated] Efficient Video Categorization with Tags for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-free-youtube-artwork-hacks-snag-high-res-thumbnails-now-for-2024/"><u>[Updated] Free YouTube Artwork Hacks - Snag High-Res Thumbnails Now for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-asmr-gurus-recommend-best-microphones-reviewed/"><u>2024 Approved ASMR Gurus Recommend Best Microphones Reviewed</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-video-growth-booster-top-seo-tools-uncovered/"><u>2024 Approved Video Growth Booster – Top SEO Tools Uncovered</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ng-edge-studio-lights-for-online-filmmakers-for-2024/"><u>Cutting-Edge Studio Lights for Online Filmmakers for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/exciting-quests-selecting-the-top-10-adventure-gaming-treasures-for-2024/"><u>Exciting Quests Selecting the Top 10 Adventure Gaming Treasures for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-can-we-bypass-asus-rog-phone-8-pro-frp-by-drfone-android/"><u>How Can We Bypass Asus ROG Phone 8 Pro FRP?</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/how-to-resolve-windows-driver-issues-for-the-dell-optiplex/"><u>How to Resolve Windows Driver Issues for the Dell OptiPlex</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-in-ar-games-on-honor-play-7t-drfone-by-drfone-virtual-android/"><u>How to Simulate GPS Movement in AR games On Honor Play 7T? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-set-your-preferred-job-location-on-linkedin-app-of-your-meizu-21-drfone-by-drfone-virtual-android/"><u>In 2024, Set Your Preferred Job Location on LinkedIn App of your Meizu 21 | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-trouble-with-iphone-12-swipe-up-try-these-11-solutions-drfone-by-drfone-ios/"><u>In 2024, Trouble with iPhone 12 Swipe-Up? Try These 11 Solutions | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Honor Magic5 Ultimate? | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/non-apple-top-rechargeable-wallet-airtags-a-must-have-accessory-spotted-on-zdnet/"><u>Non-Apple, Top Rechargeable Wallet AirTags: A Must-Have Accessory Spotted on ZDNet</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/your-iphone-selfie-upgrade-choose-from-8-stars/"><u>Your iPhone Selfie Upgrade - Choose From #8 Stars</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Beginner's Guide  Adding Text Overlays on YouTube\""
-date: 2024-11-25T03:40:19.464Z
-updated: 2024-11-28T00:51:35.375Z
+date: 2024-12-02T16:26:12.645Z
+updated: 2024-12-07T16:25:57.074Z
 tags:
   - ai video
   - ai youtube
@@ -34,7 +34,7 @@ This article will first explain how you can turn on subtitles for the videos you
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How To Turn On Captions on YouTube
@@ -44,7 +44,7 @@ In order for you to be able to view subtitles for a YouTube video the uploader o
 ![captions](https://images.wondershare.com/filmora/article-images/captions-how-to-turn-on.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 To toggle subtitles on and off click on the Closed Captioning icon in the bottom right of your video player.
@@ -54,7 +54,7 @@ If the creator of the video has not added captions then you can enable automatic
 If you want to change the language of the subtitles click on the settings icon (the one that looks like a gear) next to the closed captioning icon and choose your language next to   **Subtitles/CC** . If the language you want is not there select **Auto-Translate**  and then pick a language. Google Translate will be used to generate subtitles in your chosen language.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Adding YouTube Captions in 4 Steps
@@ -82,7 +82,7 @@ The easiest way to add subtitles to your videos is to use **Automatic Captioning
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -106,24 +106,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-starter-kit-the-essential-youtube-setup/"><u>[New] 2024 Approved Starter Kit The Essential YouTube Setup</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-step-by-step-guide-moving-youtube-content-to-dailymotion/"><u>[New] 2024 Approved Step-by-Step Guide Moving YouTube Content to Dailymotion</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-streamlining-profits-how-ajay-maximizes-youtube-earnings/"><u>[New] 2024 Approved Streamlining Profits How AJay Maximizes YouTube Earnings</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-the-detailed-breakdown-of-youtube-money/"><u>[New] 2024 Approved The Detailed Breakdown of YouTube Money</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-the-youtube-studio-essential-checklist-for-video-mastery/"><u>[New] 2024 Approved The YouTube Studio Essential Checklist for Video Mastery</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-youtube-elites-creator-conclave/"><u>[New] 2024 Approved YouTube Elites Creator Conclave</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-navigating-night-time-captures-with-iphone-for-2024/"><u>[New] Navigating Night-Time Captures with iPhone for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-top-tier-laptops-and-pcs-for-ultimate-comfort/"><u>[New] Top-Tier Laptops & PCs for Ultimate Comfort</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-windows-screencast-champions-revealed-for-2024/"><u>[Updated] Windows Screencast Champions Revealed for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/discover-the-unseen-powers-5-overlooked-features-of-chatgpt-that-you-need-now/"><u>Discover the Unseen Powers: 5 Overlooked Features of ChatGPT That You Need Now</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-audit-your-channels-financial-success/"><u>In 2024, Audit Your Channel's Financial Success</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-comfortable-viewing-looping-youtube-videos-on-big-displays/"><u>In 2024, Comfortable Viewing Looping YouTube Videos on Big Displays</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-dial-back-your-playlist-quick-steps-to-reverse-order/"><u>In 2024, Dial Back Your Playlist Quick Steps to Reverse Order</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-flawless-video-calls-from-laptop-using-the-desktop-whatsapp-browser/"><u>In 2024, Flawless Video Calls From Laptop Using the Desktop WhatsApp Browser</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-secrets-of-filmo/"><u>In 2024, Secrets of Filmo</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-iphone-se-2020-by-drfone-ios/"><u>In 2024, Top 11 Free Apps to Check IMEI on iPhone SE (2020)</u></a></li>
-<li><a href="https://common-error.techidaily.com/shockwave-flash-has-crashed-in-google-chrome-fixed/"><u>Shockwave Flash Has Crashed in Google Chrome [FIXED]</u></a></li>
-<li><a href="https://win-answers.techidaily.com/troubleshooting-guide-overcoming-far-cry-6s-black-screen-dilemma/"><u>Troubleshooting Guide: Overcoming Far Cry 6'S Black Screen Dilemma</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138569494-9781450255622-wake-up-for-ascension-to-a-new-earth-or-leave/"><u>Wake up for Ascension to a New Earth - or Leave | Free Book</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-charting-your-course-in-the-realm-of-youtube-shorts/"><u>[New] 2024 Approved Charting Your Course in the Realm of YouTube Shorts</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ailoring-your-viewing-experience-with-youtube-tv/"><u>[New] Tailoring Your Viewing Experience with YouTube TV</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/outube-equipment-for-beginners-ultimate-guide/"><u>[New] YouTube Equipment for Beginners [Ultimate Guide]</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-craft-crisp-visuals-with-picart-background-sweep/"><u>[Updated] 2024 Approved Craft Crisp Visuals with PicArt Background Sweep</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-dividing-opinions-is-mirrorless-better-than-dslr-for-vids/"><u>2024 Approved Dividing Opinions Is Mirrorless Better than DSLR for Vids?</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-initiating-your-sporty-online-presence-with-mac/"><u>2024 Approved Initiating Your Sporty Online Presence with Mac</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fake-the-location-to-get-around-the-mlb-blackouts-on-samsung-galaxy-m14-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Fake the Location to Get Around the MLB Blackouts on Samsung Galaxy M14 4G | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/masterclass-on-overcoming-bugs-in-ac-syndicate-top-fixes-and-updates-released-games/"><u>Masterclass on Overcoming Bugs in AC Syndicate - Top Fixes and Updates Released Games</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/media-magic-which-social-site-captures-the-crowd-faster-youtubes-or-tiktoks/"><u>Mini-Media Magic Which Social Site Captures the Crowd Faster? YouTubes or TikToks?</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ling-video-content-strategies-on-youtube-for-2024/"><u>Unveiling Video Content Strategies on YouTube for 2024</u></a></li>
 </ul></div>
 

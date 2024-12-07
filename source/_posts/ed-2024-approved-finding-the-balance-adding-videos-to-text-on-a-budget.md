@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Finding the Balance  Adding Videos to Text on a Budget\""
-date: 2024-11-20T21:20:04.671Z
-updated: 2024-11-28T10:52:19.987Z
+date: 2024-12-06T16:49:18.588Z
+updated: 2024-12-07T16:23:05.204Z
 tags:
   - ai video
   - ai youtube
@@ -34,7 +34,7 @@ Luckily, video editing and presentation software products offer the tools you wi
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to Add Video to Text for Free with PowerPoint?
@@ -55,10 +55,6 @@ Find the Insert Shape option and choose Subtract from the Merge Shapes drop-down
 
 ![Add video to text - Powerpoint- substract](https://images.wondershare.com/filmora/article-images/subtract-from-merge-shapes.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Click on the Insert tab, and then choose the Video option from the Media menu. You can [insert a video](https://tools.techidaily.com/wondershare/filmora/download/) that is stored on a local hard drive or the Internet to PowerPoint. The video will cover the entire slide, so you must right-click on it and select the Send to Back option.
 
 You can then fine-tune the video playback settings from the Playback tab. Preview the results before you move on to the next slide in your presentation, and make necessary adjustments if you don’t like how the video merged with the text.
@@ -70,12 +66,16 @@ Besides presentation software, you can also use video editing software products 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You should start by creating a new project in Filmora and importing the video you want to add to the text into the project. Click on the Titles tab, and choose the title that matches the visual style of your project.
 
 ![Add video to text - Filmora9](https://images.wondershare.com/filmora/article-images/add-title-effects.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Set the preferred duration of the title by dragging one of its ends to the left or right after you place it on the timeline, and then double-click on it to customize it. Click on the Advanced button once the Text tab opens and insert the text into the Input Text box.
 
@@ -88,7 +88,7 @@ Now it’s time to add the text video and the background video to the project me
 ![Add video to text - Filmora9 Compositing](https://images.wondershare.com/filmora/article-images/compositing-video-9.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Click on the video that contains text to gain access to the Video tab of the Editor panel and then expand the Compositing menu. Change the Blending Mode to Multiply, and the text in the overlaying video should be filled with the parts of the footage from the video below it.
@@ -104,7 +104,7 @@ Merging text with video is equally easy in PowerPoint and Filmora, so you just h
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -128,18 +128,18 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/hoosing-the-right-youtube-tv-package-for-you-for-2024/"><u>[New] Choosing the Right YouTube TV Package for You for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-low-cost-hardware-obs-optimization-tips/"><u>[New] In 2024, Low-Cost Hardware OBS Optimization Tips</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-mastering-youtube-channel-names-a-complete-list-for-vloggers-keep-it-at-or-below-156-characters/"><u>[New] In 2024, Mastering YouTube Channel Names A Complete List for Vloggers (Keep It at or Below 156 Characters)</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-mastering-video-boost-the-essential-handbook-for-vce-22/"><u>[New] Mastering Video Boost The Essential Handbook for VCE 2.2</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-top-earners-in-youtube-enterprises/"><u>[Updated] 2024 Approved Top Earners in YouTube Enterprises</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-unlock-youtube-placement-secrets-what-matters-most/"><u>[Updated] 2024 Approved Unlock YouTube Placement Secrets What Matters Most?</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-expert-analysis-how-showmore-enhances-your-video-capture-techniques-for-2024/"><u>[Updated] Expert Analysis How ShowMore Enhances Your Video Capture Techniques for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ving-perfect-reproduction-tips-for-exceptional-sound-capture/"><u>Achieving Perfect Reproduction Tips for Exceptional Sound Capture</u></a></li>
-<li><a href="https://facebook.techidaily.com/blueprinting-your-social-strategy-with-effective-group-formation-fb/"><u>Blueprinting Your Social Strategy with Effective Group Formation (FB)</u></a></li>
-<li><a href="https://win-help.techidaily.com/discover-excellent-alternatives-to-4k-video-downloader-optimized-for-both-mac-and-pc/"><u>Discover Excellent Alternatives to 4K Video Downloader – Optimized for Both Mac and PC</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/incorporating-individual-gpt-models-seamlessly-in-any-chatgpt-exchange/"><u>Incorporating Individual GPT Models Seamlessly in Any ChatGPT Exchange</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/instant-help-for-speed-boosting-and-fixing-fps-issues-in-assassins-creed-valhalla/"><u>Instant Help for Speed Boosting and Fixing FPS Issues in Assassin's Creed: Valhalla</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/new-uncovering-resources-for-realistic-bellow-and-exasperation-effects/"><u>New Uncovering Resources for Realistic Bellow and Exasperation Effects</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/he-premier-selection-of-11-costless-yt-moniker-makers/"><u>[New] The Premier Selection of 11 Costless YT Moniker Makers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/he-roadmap-to-superior-click-through-rates-youtube-advertising-mastery-for-2024/"><u>[New] The Roadmap to Superior Click-Through Rates YouTube Advertising Mastery for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-step-by-step-guide-transforming-viewers-into-profit/"><u>[Updated] 2024 Approved Step-By-Step Guide Transforming Viewers Into Profit</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-dynamic-photovideo-gimbal-unmatched-stabilization/"><u>[Updated] Dynamic Photo/Video Gimbal Unmatched Stabilization</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-talking-head-tricks-simple-steps-for-stunning-online-presence/"><u>[Updated] In 2024, Talking-Head Tricks Simple Steps for Stunning Online Presence</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-visionary-filmmaker-blending-clips-and-chords/"><u>[Updated] Visionary Filmmaker Blending Clips & Chords</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-oneplus-11r-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on OnePlus 11R | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/how-to-use-windows-media-player-to-enjoy-dvd-movies-on-your-windows-10-pc/"><u>How to Use Windows Media Player to Enjoy DVD Movies on Your Windows 10 PC</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-bypassing-google-account-with-vnrom-bypass-for-lava-yuva-2-pro-by-drfone-android/"><u>In 2024, Bypassing Google Account With vnROM Bypass For Lava Yuva 2 Pro</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-innovate-thumbnails-discover-these-top-8-free-design-aids/"><u>In 2024, Innovate Thumbnails Discover These Top 8 Free Design Aids</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/process-of-screen-sharing-samsung-galaxy-a24-to-pc-detailed-steps-drfone-by-drfone-android/"><u>Process of Screen Sharing Samsung Galaxy A24 to PC- Detailed Steps | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/understanding-intellectual-property-rights-on-video-screen-captures/"><u>Understanding Intellectual Property Rights on Video Screen Captures</u></a></li>
+<li><a href="https://windows11.techidaily.com/unlocking-the-secrets-to-windows-camera-media-storage/"><u>Unlocking the Secrets to Windows Camera Media Storage</u></a></li>
 </ul></div>
 

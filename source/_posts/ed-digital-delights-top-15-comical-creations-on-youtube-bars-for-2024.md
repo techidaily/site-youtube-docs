@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Digital Delights  Top 15 Comical Creations on YouTube Bars for 2024\""
-date: 2024-11-26T08:24:35.709Z
-updated: 2024-11-28T01:54:20.292Z
+date: 2024-12-05T16:30:16.173Z
+updated: 2024-12-07T17:11:30.081Z
 tags:
   - ai video
   - ai youtube
@@ -55,6 +55,10 @@ Whether you are bored or having a bad day, visiting the best prank channels on Y
 
 The Ellen Show is the best prank channel on YouTube by Female comedian and icon Ellen DeGeneres. Comprising over her 16 seasons of _The Ellen Show,_ where she plays pranks, makes fun of herself, and interviews celebrities.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2. **Smosh**
 
 **Total Subscribers**: 24 million
@@ -62,6 +66,10 @@ The Ellen Show is the best prank channel on YouTube by Female comedian and icon 
 Smosh is a Funny YouTube gamer show founded in 2005 by two Friends known as Ian Hecox and Daniel Padilla. They are well known for their funny nerdy spoofs and video game-themed music videos, making their humor enduring and magnetic.
 
 ### 3.**David Dobrik**
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Total subscribers: 13,716,307
 
@@ -72,6 +80,10 @@ David dobrik is well known for his goofy laugh mixed with absurd pranks by his f
 Total subscribers: 13 million
 
 CollegeHumor is a show started by two high school friends and comedy icons to produce original comedy videos centered on parody similar to Mad TV and SNL.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5. **First We Feast**
 
@@ -113,10 +125,6 @@ Good Mythical Morning is a show hosted by Rhett James McLaughlin and Charles Lin
 
 Tana Mongeau, also known as Tana Paul, is a YouTuber and has her own MTV reality TV show. Tana often jokes about herself and what she does as a reckless tween living in Vegas. She would also make fun videos of herself and own up to being unreliable and irresponsible.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 12. **h3h3Productions**
 
 Total subscribers: 6.32M
@@ -128,10 +136,6 @@ H3h3Productions, hosted by Ethan Edward Klein and Hila Klein, is a comedy of hus
 Total subscribers: 10.3M
 
 Dolan Twins is hosted by twins living in L. They are known as Ethan and Grayson Dolan, who love to entertain their followers. They produce unique creative videos showcasing themselves building things, pulling massive pranks, and making fun of each other.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 14. **JennaMarbles**
 
@@ -149,6 +153,10 @@ Emma Chamberlin cracks her fans with her carefree youthful personality and seemi
 
 Filmora is a free and easy-to-use [video editing](https://tools.techidaily.com/wondershare/filmora/download/) software suitable for beginners. The software supports above 50 formats, Filmstock effects store, 4k editing, all basic and advanced editing tools in a manner used and easily accessible. Wondershare Filmora is a perfect editor for making funny videos on YouTube.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Here is a step-by-step guide on making funny videos on YouTube using Filmora
 
 #### Wondershare Filmora
@@ -158,6 +166,10 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **Step 1: Download, install and launch**
 
@@ -246,7 +258,7 @@ Total subscribers : 3.26M
 Funny or Die is a top-rated comedy show on the Internet. Their original sketches and population of celebrities and movie stars help to keep their channel and website thriving and fresh.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 7. **The Tonight Show Starring Jimmy Fallon**
@@ -295,10 +307,6 @@ Total subscribers: 20M
 
 JennaMarbles is popularly known for her comedy, commentaries, honesty, appeal to feminism, and the positive messages in her videos. Her YouTube channel got a break out from her outstanding show titled “How to trick people into thinking you’re good looking.”
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 15. **Emma Chamberlin**
 
 Total subscribers: 11.1M
@@ -345,6 +353,10 @@ PewDiePie for his funny games
 
 Dolan Twins for their Prank
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Conclusion
 
 Finding the best prank channels on YouTube to crack your rib during your boring time is one of the best feelings, as it helps you stay happy and overcome boredom. Filmora has proven to be one of the best tools for creating funny videos for YouTube channels at your comfort. This article also described some of the top funny YouTube channels and explained them in detail.
@@ -369,15 +381,15 @@ YouTube has now become the video precious standard that one can watch the best f
 
 Whether you are bored or having a bad day, visiting the best prank channels on YouTube is the best way to ease your day and cure a case of the Monday blues. Here is a list of Top 15 Funny YouTube Channels to Watch When You're Bored from the best lip-syncing and sketches, comedy skits, and interviews:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1. [****The Ellen Show**](https://www.youtube.com/user/TheEllenShow)
 
 **Total subscribers**: 33,898,023
 
 The Ellen Show is the best prank channel on YouTube by Female comedian and icon Ellen DeGeneres. Comprising over her 16 seasons of _The Ellen Show,_ where she plays pranks, makes fun of herself, and interviews celebrities.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2. **Smosh**
 
@@ -386,10 +398,6 @@ The Ellen Show is the best prank channel on YouTube by Female comedian and icon 
 Smosh is a Funny YouTube gamer show founded in 2005 by two Friends known as Ian Hecox and Daniel Padilla. They are well known for their funny nerdy spoofs and video game-themed music videos, making their humor enduring and magnetic.
 
 ### 3.**David Dobrik**
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Total subscribers: 13,716,307
 
@@ -441,6 +449,10 @@ Good Mythical Morning is a show hosted by Rhett James McLaughlin and Charles Lin
 
 Tana Mongeau, also known as Tana Paul, is a YouTuber and has her own MTV reality TV show. Tana often jokes about herself and what she does as a reckless tween living in Vegas. She would also make fun videos of herself and own up to being unreliable and irresponsible.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 12. **h3h3Productions**
 
 Total subscribers: 6.32M
@@ -479,13 +491,13 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 
 ![](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **Step 1: Download, install and launch**
 
 Download the Filmora program, then tap on Import to load your media files (images or videos) to the timeline.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **Step 2: Edit and Create Videos**
 
@@ -545,29 +557,17 @@ The Ellen Show is the best prank channel on YouTube by Female comedian and icon 
 
 Smosh is a Funny YouTube gamer show founded in 2005 by two Friends known as Ian Hecox and Daniel Padilla. They are well known for their funny nerdy spoofs and video game-themed music videos, making their humor enduring and magnetic.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3.**David Dobrik**
 
 ### Total subscribers: 13,716,307
 
 David dobrik is well known for his goofy laugh mixed with absurd pranks by his fans. He is referred to as the king of pranks due to his crazy personality.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 4. **CollegeHumor**
 
 Total subscribers: 13 million
 
 CollegeHumor is a show started by two high school friends and comedy icons to produce original comedy videos centered on parody similar to Mad TV and SNL.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 5. **First We Feast**
 
@@ -698,18 +698,24 @@ Finding the best prank channels on YouTube to crack your rib during your boring 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/armonize-your-listens-the-complete-path-to-youtube-playlist-making-webmobile-for-2024/"><u>[New] Harmonize Your Listens The Complete Path to YouTube Playlist Making (Web/Mobile) for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-reverse-viewing-crafts-creative-youtube-video-methods/"><u>[New] In 2024, Reverse Viewing Crafts Creative Youtube Video Methods</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-immediate-youtube-audience-insights/"><u>[Updated] 2024 Approved Immediate YouTube Audience Insights</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-elite-audio-modifying-tools-tailored-to-youtube-creators/"><u>[Updated] Elite Audio Modifying Tools Tailored to YouTube Creators</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-video-content-battlefront-short-form-supremacy-youtubes-vs-tiktoks/"><u>2024 Approved Video Content Battlefront Short Form Supremacy – YouTubes Vs. TikToks</u></a></li>
-<li><a href="https://common-error.techidaily.com/6-effective-remedies-to-fix-werfaultexe-error-and-boost-system-stability/"><u>6 Effective Remedies to Fix werFault.exe Error and Boost System Stability</u></a></li>
-<li><a href="https://extra-information.techidaily.com/a-deep-dive-into-toolwiz-app-for-professional-photos/"><u>A Deep Dive Into Toolwiz App for Professional Photos</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/crucial-elements-for-online-tale-artistry/"><u>Crucial Elements for Online Tale Artistry</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/engage-and-enthrall-viewers-gaming-via-obs-studio/"><u>Engage and Enthrall Viewers Gaming via OBS Studio</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-tecno-phantom-v-flip-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Tecno Phantom V Flip | Dr.fone</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-rhythmreview-music-and-dialogue-analysis/"><u>In 2024, RhythmReview Music and Dialogue Analysis</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/ultimate-guide-from-xiaomi-civi-3-disney-100th-anniversary-edition-frp-bypass-by-drfone-android/"><u>Ultimate Guide from Xiaomi Civi 3 Disney 100th Anniversary Edition FRP Bypass</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/update-your-pc-download-the-most-recent-drivers-for-amd-radeon-r5-on-windows-os-111087/"><u>Update Your PC: Download the Most Recent Drivers for AMD Radeon R5 on Windows OS (11/10/8/7)</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-energy-savings-calculations-while-not-directly-impacting-installation-cost-understanding-potential-energy-savings-is-crucial-for-long-term-roi-a/"><u>[New] In 2024, __Energy Savings Calculations__ While Not Directly Impacting Installation Cost, Understanding Potential Energy Savings Is Crucial for Long-Term ROI Analysis</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-selective-mp4-editing-made-simple-on-mac/"><u>[New] In 2024, Selective MP4 Editing Made Simple on Mac</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nleash-creativity-with-these-8-mirrorless-cams-for-video/"><u>[New] Unleash Creativity with These 8 Mirrorless Cams For Video</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nlocking-youtube-live-potential-a-step-by-step-guide/"><u>[New] Unlocking YouTube Live Potential A Step-by-Step Guide</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-comprehensive-tips-for-youtube-video-capture/"><u>[Updated] 2024 Approved Comprehensive Tips for YouTube Video Capture</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-a-beginners-pathway-building-a-simple-youtube-signup-for-2024/"><u>[Updated] A Beginner’s Pathway Building a Simple YouTube Signup for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-bidfarewelltomycam-the-quest-for-improved-options-for-2024/"><u>[Updated] BidFarewellToMyCam The Quest for Improved Options for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-capture-the-essence-of-your-favorite-series-with-these-extractors/"><u>[Updated] In 2024, Capture the Essence of Your Favorite Series with These Extractors</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-maximize-screen-tv-playback-for-youtube-clips/"><u>[Updated] In 2024, Maximize Screen TV Playback for YouTube Clips</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-master-video-production-best-lenses-for-online-platforms-for-2024/"><u>[Updated] Master Video Production Best Lenses for Online Platforms for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/1715859783155-2024-approved-iphone-users-learn-simple-screen-recording-now/"><u>2024 Approved Iphone Users, Learn Simple Screen Recording Now!</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-silencing-distractions-enhancing-youtube-videos/"><u>2024 Approved Silencing Distractions Enhancing YouTube Videos</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-the-ultimate-guide-to-adding-audio-content-in-fb-timeline/"><u>2024 Approved The Ultimate Guide to Adding Audio Content in FB Timeline</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ing-your-youtube-shorts-profits-key-requirements-and-earning-potential/"><u>Boosting Your Youtube Shorts Profits Key Requirements & Earning Potential</u></a></li>
+<li><a href="https://driver-download.techidaily.com/fixing-the-detection-issue-of-tl-wn7n-nic-in-windows-environments/"><u>Fixing the Detection Issue of TL-WN7n NIC in Windows Environments</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/power-boosters-secrets-to-stellar-video-thumbnails-for-2024/"><u>Font Power Boosters Secrets to Stellar Video Thumbnails for 2024</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/resolved-diagnose-and-mend-error-code-0xc0000017-on-your-pc-repair-guide/"><u>RESOLVED: Diagnose & Mend Error Code 0xC0000017 on Your PC - Repair Guide</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/the-ultimate-guide-to-xiaomi-redmi-a2plus-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>The Ultimate Guide to Xiaomi Redmi A2+ Pattern Lock Screen Everything You Need to Know</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ultimate-guide-resolving-persistent-crashes-in-halo-infinite-for-pc-players/"><u>Ultimate Guide: Resolving Persistent Crashes in Halo Infinite for PC Players</u></a></li>
 </ul></div>
 

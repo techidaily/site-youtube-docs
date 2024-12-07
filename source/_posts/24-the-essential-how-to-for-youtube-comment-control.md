@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, The Essential How-To for YouTube Comment Control\""
-date: 2024-09-02T06:48:54.918Z
-updated: 2024-09-03T06:48:54.918Z
+date: 2024-12-03T16:29:23.579Z
+updated: 2024-12-07T18:59:09.718Z
 tags:
   - ai video
   - ai youtube
@@ -58,6 +58,10 @@ Use the method explained above to get to the channel’s **Advanced settings** b
 
 ![  Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 2\. Define Acceptable Comment Types
 
 Click the **Settings** icon from the bottom of the left pane one more time. On the **Settings** box, go to the **Upload defaults** category from the left pane, and go to **Advanced settings** from the right. From the **Comment visibility** drop-down list under the **Comments** section in the right, choose your preferred comment allowance type, and click **SAVE** to allow the comments on the videos the channel has.
@@ -110,11 +114,16 @@ From under the **Audience** section in the right window of the **Video details**
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## FAQs About YouTube Comments
 
 #### 1\. Why can’t I comment on the YouTube video?
@@ -132,8 +141,9 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -149,22 +159,20 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -173,4 +181,26 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-maximize-your-payload-top-10-drone-giants/"><u>[New] 2024 Approved Maximize Your Payload Top 10 Drone Giants</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ssential-insights-for-crafting-youtube-intros-aplusb-methods-for-2024/"><u>[New] Essential Insights for Crafting YouTube Intros A+B Methods for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-understanding-user-psychology-in-youtube-shorts-template-design/"><u>[New] In 2024, Understanding User Psychology in YouTube Shorts Template Design</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-reestablishing-iphone-x-trust-restoring-biometric-lock/"><u>[Updated] 2024 Approved Reestablishing iPhone X Trust Restoring Biometric Lock</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-the-secret-to-understanding-your-youtube-fans/"><u>[Updated] 2024 Approved The Secret to Understanding Your YouTube Fans</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-boost-your-budget-a-straightforward-triple-step-method-to-monitor-youtube-revenue-for-2024/"><u>[Updated] Boost Your Budget A Straightforward Triple-Step Method to Monitor YouTube Revenue for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-bridal-bliss-filmed-alike-high-quality-8-marriage-videos-online-for-2024/"><u>[Updated] Bridal Bliss Filmed Alike High-Quality 8 Marriage Videos Online for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-high-speed-photo-inspector-for-windows-11/"><u>[Updated] High-Speed Photo Inspector for Windows 11</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-get-superior-visuals-from-youtube-downloading-thumbnails-free/"><u>[Updated] In 2024, Get Superior Visuals From YouTube - Downloading Thumbnails Free!</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-global-earning-maestro-of-video-content/"><u>[Updated] In 2024, Global Earning Maestro of Video Content</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-stop-the-void-in-live-gaming-recordings-5-ways-to-avoid-black-screens-with-obs/"><u>[Updated] In 2024, Stop the Void in Live Gaming Recordings 5 Ways to Avoid Black Screens with OBS</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-the-breakdown-of-youtubes-shorts-initiative/"><u>[Updated] In 2024, The Breakdown of YouTube's Shorts Initiative</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-mastering-youtubes-creative-commons-licensing-guide/"><u>2024 Approved Mastering YouTube’s Creative Commons Licensing Guide</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-redirect-mac-images-to-custom-folder/"><u>2024 Approved Redirect Mac Images to Custom Folder</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/are-influencer-marketing-tactics-on-youtube-effective-for-long-term-success-in-2024/"><u>Are Influencer Marketing Tactics on YouTube Effective for Long-Term Success, In 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/elevating-customer-engagement-with-snapkit-tools/"><u>Elevating Customer Engagement with SnapKit Tools</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-easy-ways-to-copy-contacts-from-oppo-a2-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Easy Ways to Copy Contacts from Oppo A2 to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-enjoy-premium-video-artwork-download-at-no-cost-today/"><u>In 2024, Enjoy Premium Video Artwork - Download at No Cost Today</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/um-gadgets-to-save-livestreamed-vids-on-youtube/"><u>Premium Gadgets to Save Livestreamed Vids on YouTube</u></a></li>
+</ul></div>
 
