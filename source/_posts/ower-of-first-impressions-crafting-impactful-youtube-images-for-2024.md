@@ -1,7 +1,7 @@
 ---
 title: "\"The Power of First Impressions  Crafting Impactful YouTube Images for 2024\""
-date: 2024-08-28T17:16:37.672Z
-updated: 2024-08-29T17:16:37.672Z
+date: 2024-12-09T19:36:43.001Z
+updated: 2024-12-13T19:46:17.753Z
 tags:
   - ai video
   - ai youtube
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/d64a92b374563fd7f8dd564ef2b564a68a3b72b9d
  Mar 27, 2024• Proven solutions
 
 The art on your [YouTube channel](https://tools.techidaily.com/wondershare/filmora/download/) – banners, thumbnails, icons, and watermarks – will help to determine how viewers feel about your vlog. If your art does not look like it all goes together then people will get a sloppy, amateurish, impression of your channel. However, if your different pieces of channel art all seem to complement each other and match the tone and theme of your channel then it will help viewers to have a pleasant browsing experience. They will get the impression that you take your YouTube channel seriously and that they can trust you as a source of information, comedy, or general entertainment.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Make YouTube Banners and Thumbnails
 
@@ -65,13 +69,25 @@ There are sites online that will allow you to edit images and use them in templa
 
 ![banner n thumb Canva](https://images.wondershare.com/filmora/article-images/banner-n-thumb-Canva.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Canva** has templates you can use to create YouTube banners, as well as a variety of stock images you can use in combination with your own when creating channel art. It is free to edit images on Canva, but they do have some premium features which cost $1 each to access. This service has both a desktop version and an iPad app.
 
 ![banner n thumb PicMonkey](https://images.wondershare.com/filmora/article-images/banner-n-thumb-PicMonkey.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **PicMonkey** lets you import images from your computer or social media accounts, edit them, and use them in templates for YouTube banners or other kinds of social media graphics. PicMonkey is free to use, but you can only access their more advanced editing tools if you buy a paid subscription. Monthly subscriptions are $4.99 per month, and yearly subscriptions are $2.75 per month.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -79,14 +95,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -95,8 +108,16 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/ecome-a-viral-sensation-maximizing-your-youtube-reach/"><u>[New] Become a Viral Sensation Maximizing Your YouTube Reach</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-from-stir-to-screen-masterful-cooking-videos/"><u>[Updated] From Stir to Screen Masterful Cooking Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-exploring-your-choices-with-youtube-tv-plans/"><u>[Updated] In 2024, Exploring Your Choices with YouTube TV Plans</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unlock-videos-free-effect-sites-ranked/"><u>[Updated] Unlock Videos Free Effect Sites Ranked</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-ideal-thumbnails-for-maximum-clicks/"><u>2024 Approved Ideal Thumbnails for Maximum Clicks</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-the-art-of-youtube-video-trailers-with-filmora-software/"><u>2024 Approved The Art of YouTube Video Trailers with Filmora Software</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-are-location-permissions-life360-on-motorola-edgeplus-2023-drfone-by-drfone-virtual-android/"><u>In 2024, What are Location Permissions Life360 On Motorola Edge+ (2023)? | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/is-photoshops-shake-control-a-game-changer/"><u>Is Photoshop's Shake Control a Game Changer?</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/top-10-best-photo-watermarking-software-you-should-try/"><u>Top 10 Best Photo Watermarking Software You Should Try</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

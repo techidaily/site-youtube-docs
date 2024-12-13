@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Creating Simple Videos  Top 10 YouTube Projects Anyone Can Do\""
-date: 2024-08-28T17:15:34.139Z
-updated: 2024-08-29T17:15:34.139Z
+date: 2024-12-06T19:09:31.444Z
+updated: 2024-12-13T19:19:20.925Z
 tags:
   - ai video
   - ai youtube
@@ -41,11 +41,19 @@ They say that less is more, so let's have a look at how you can apply this princ
 9. [10 Things About You](#nine)
 10. [Video Rant](#ten)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Introduce Yourself
 
 Let the world know who you are and what you do. If you are planning on starting a YouTube channel, or if you’ve already been posting videos on a topic but haven’t formally introduced yourself, it’s a great idea to put some thought into an introduction video. Producing such a YouTube video will enable you to introduce yourself to your future subscribers and give them an idea as to what your channel is all about.
 
 These kinds of videos make great channel trailers, and they’re a good way to highlight the topics you'll be covering on your channel in the future.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. Vlog About Your Day
 
@@ -67,14 +75,15 @@ Everywhere around you, there are items you can review. The Apple Watch and the l
 
 Review videos can also be a source of revenue because a lot of companies sponsor YouTubers who review their products.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 ## 5\. Your Favorite Songs / Movies / Etc
 
 Are you a Tarantino fan? Why not? When you are struggling to find inspiration for your videos, just think about the things you like. Your subscribers are interested in you, so they’ll be interested in knowing about your favorite movies or music albums. Books, movies, and music are an inexhaustible source of fresh ideas because there is always a new song or a film you can talk about in your video.
 
 You can do a ‘my 5 favorite songs’ type of video, or talk in detail about just one favorite.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 6\. What’s on Your Phone?
 
@@ -89,35 +98,21 @@ There's no need to constantly produce new videos because you can just take some 
 If you are a photography enthusiast you can also plan the entire slideshow in advance and then make a short video about how you created the images in the slideshow.
 
 <!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 8\. Make a Tutorial
 
 Education is our only hope for a better world so if you know how to do something well, don't be afraid to share your knowledge. A tutorial is a powerful educational tool that enables you to guide people through the entire process of making origami, solving a complicated video editing problem, maintaining a motorcycle, or anything else.
 
 YouTube channels that feature tutorials often have millions of followers, because YouTube is a popular place to go when you need information.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 9\. 10 Things About You
 
 Being open is important, so why not share 10 things about yourself you think your audience would find interesting or which you think are important for people to know. The top 10 things structure is often used in YouTube videos because it provides a clear rhythm to a video clip, and it enables you to gradually increase the tension as the video progresses.
 
 These types of videos tend to create a better relationship with your audience because they make the viewer feel as if they know the person on the screen.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 10\. Video Rant
 
 Doing things when you are angry is usually a bad idea, but if you feel so strongly about a particular subject then creating a video rant can be a great idea. Rants don’t even have to be angry, they can be about something that puzzles you or something so great you just can’t get over it. These kinds of videos can get your YouTube channel a lot of comments, likes, and subscribers.
@@ -127,8 +122,9 @@ Don't try to fake a rant, because they only work if they are natural. Scripting 
 Do you have any [easy video ideas for other creators](https://tools.techidaily.com/wondershare/filmora/download/) to try?
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Start Editing Videos with Beginner-friendly Software
 
 If you start your YouTube channel but have no video editing experience, Wondershare Filmora will definitely help you get over the problems. Download Filmora now!
@@ -137,23 +133,17 @@ If you start your YouTube channel but have no video editing experience, Wondersh
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -162,4 +152,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-cutting-edge-obs-methods-for-ultimate-android-broadcasting/"><u>[New] Cutting-Edge OBS Methods for Ultimate Android Broadcasting</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-mastering-the-mobile-frontier-of-animation-storage-and-viewing-iphone-for-2024/"><u>[New] Mastering the Mobile Frontier of Animation Storage & Viewing (iPhone) for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-secrets-to-high-quality-roblox-game-footage-on-macos/"><u>[New] Secrets to High-Quality Roblox Game Footage on macOS</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nraveling-online-video-discussions-for-2024/"><u>[New] Unraveling Online Video Discussions for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-remedying-dark-images-while-streaming-youtube-videos/"><u>[Updated] 2024 Approved Remedying Dark Images While Streaming YouTube Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-secure-song-transfers-to-youtube-channel/"><u>[Updated] In 2024, Secure Song Transfers to Youtube Channel</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-step-by-step-guide-enhancing-youtube-content-with-ios-recording/"><u>[Updated] In 2024, Step-by-Step Guide Enhancing YouTube Content with iOS Recording</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/s-unlimited-stock-photos-via-four-noteworthy-youtubes/"><u>Access Unlimited Stock Photos via Four Noteworthy YouTubes</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ing-an-engaging-sports-highlight-reel/"><u>Building an Engaging Sports Highlight Reel</u></a></li>
+<li><a href="https://fake-location.techidaily.com/full-guide-to-fix-itoolab-anygo-not-working-on-honor-magic-vs-2-drfone-by-drfone-virtual-android/"><u>Full Guide to Fix iToolab AnyGO Not Working On Honor Magic Vs 2 | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/how-to-troubleshoot-chatgpts-bodystream-glitch-with-these-effective-solutions/"><u>How to Troubleshoot ChatGPT's BodyStream Glitch with These Effective Solutions</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-go-from-camera-to-cellphone-vt-adjustments-in-fcpx/"><u>In 2024, Go From Camera to Cellphone VT Adjustments in FCPX</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-precision-in-prose-enhancing-narrative-scripts/"><u>In 2024, Precision in Prose Enhancing Narrative Scripts</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/izing-youtube-shorts-earnings-essentials-and-profit-prospects-for-2024/"><u>Maximizing Youtube Shorts Earnings Essentials and Profit Prospects for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/ultimate-guide-choosing-the-ideal-audio-altering-software-2024-across-devices-and-web-platforms/"><u>Ultimate Guide: Choosing the Ideal Audio Altering Software /2024 Across Devices and Web Platforms</u></a></li>
+</ul></div>
 

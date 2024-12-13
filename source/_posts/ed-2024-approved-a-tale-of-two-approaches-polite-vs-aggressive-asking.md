@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  A Tale of Two Approaches  Polite vs Aggressive Asking\""
-date: 2024-08-28T17:14:45.127Z
-updated: 2024-08-29T17:14:45.127Z
+date: 2024-12-08T19:41:30.760Z
+updated: 2024-12-13T16:00:44.037Z
 tags:
   - ai video
   - ai youtube
@@ -36,6 +36,10 @@ There are people who think that if people like their videos they’ll subscribe,
    2. [Step 2: Get to The Point Quickly](#point)  
    3. [Step 3: Create a Moment - Make Subscribing Part of the Experience](#moment)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What is a 'Call To Action'?
 
 It has become the norm for YouTubers to ask viewers to subscribe in their sign-offs. A typical CTA (‘call to action’) goes something like this:
@@ -64,11 +68,16 @@ It’s only after hooking the viewer in and reiterating the promise of the title
 
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-in-perfect-moment.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Collins Key has been one of the fastest-growing channels on YouTube. He does not implement this strategy in every video, but it’s not a stretch to think it’s had something to do with his success. Instead of simply asking you to subscribe at the end of the video, he creates a part of the video early on – before people who don’t watch until the end will have clicked away – where you feel as if you’re ‘supposed to’ subscribe.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Polish Your YouTube Videos with Filmora
 
 Even with the above tricks, you may not get the subscribers as you wish unless you can make sure your videos and contents are of high quality. As YouTube is getting more and more popular and more YouTubers are competing for subscribers, you will need to polish your YouTube videos.
@@ -80,29 +89,28 @@ Here is a tutorial video about how to use Filmora to edit your YouTube video. Ch
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 That's how you can get more YouTube subscribers by asking the right way. You may follow the instructions and try it yourself. Do not forget to [track your YouTube subscribers in real time](https://tools.techidaily.com/wondershare/filmora/download/) to make necessary adjustments.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -111,4 +119,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/ssential-software-to-rip-youtube-trailers-for-2024/"><u>[New] Essential Software to Rip YouTube Trailers for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/asterful-thumbnails-in-a-flash-professional-valorant-creations-for-2024/"><u>[New] Masterful Thumbnails in a Flash Professional Valorant Creations for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/hythms-riches-the-ultimate-dj-templates-collection-for-2024/"><u>[New] Rhythm's Riches The Ultimate DJ Templates Collection for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ynth-symphony-selecting-superior-dj-templates-for-download/"><u>[New] Synth Symphony Selecting Superior DJ Templates for Download</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-digital-pioneer-how-jake-paul-mastered-youtube/"><u>[New] The Digital Pioneer How Jake Paul Mastered Youtube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-essential-guidelines-to-create-impactful-youtube-banners/"><u>[Updated] Essential Guidelines to Create Impactful YouTube Banners</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-7-uncomplicated-steps-for-skyrocketing-subscribers/"><u>[Updated] In 2024, 7 Uncomplicated Steps for Skyrocketing Subscribers</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-pioneering-techniques-for-smooth-recording-in-virtual-sessions/"><u>[Updated] In 2024, Pioneering Techniques for Smooth Recording in Virtual Sessions</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-seamless-transfer-of-high-definition-fb-media/"><u>[Updated] In 2024, Seamless Transfer of High Definition FB Media</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-ultimate-list-of-budget-friendly-editor-apps/"><u>[Updated] The Ultimate List of Budget-Friendly Editor Apps</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-avoid-every-interruption-the-ultimate-guide-to-7-adblocking-tools/"><u>2024 Approved Avoid Every Interruption The Ultimate Guide to 7 AdBlocking Tools</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-chrome-to-iphone-a-guide-to-stripping-youtube-ads/"><u>2024 Approved Chrome to iPhone A Guide to Stripping YouTube Ads</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-gastronomy-goals-attractive-food-network-branding-ideas/"><u>2024 Approved Gastronomy Goals Attractive Food Network Branding Ideas</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-change-your-infinix-smart-8-pro-location-on-twitter-drfone-by-drfone-virtual-android/"><u>How to Change your Infinix Smart 8 Pro Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/plunge-into-metaverse-top-8-high-tech-goggles-and-helmets-for-2024/"><u>Plunge Into Metaverse Top 8 High-Tech Goggles & Helmets for 2024</u></a></li>
+<li><a href="https://driver-error.techidaily.com/ultimate-guide-to-installing-amd-drivers-for-enhanced-windows-10-performance/"><u>Ultimate Guide to Installing AMD Drivers for Enhanced Windows 10 Performance</u></a></li>
+</ul></div>
 

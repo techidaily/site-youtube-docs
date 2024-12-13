@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Mastering Handheld Shots  No Tripod Necessary for 2024\""
-date: 2024-08-28T17:16:32.782Z
-updated: 2024-08-29T17:16:32.782Z
+date: 2024-12-10T19:26:00.007Z
+updated: 2024-12-13T18:17:01.807Z
 tags:
   - ai video
   - ai youtube
@@ -36,6 +36,10 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 
 Here are 3 of our favorite DIY tripods.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **DIY smartphone tripod using binder clips or hair clips**
 
 You’re a solo operation and your best camera is on your phone. That’s pretty common.
@@ -59,8 +63,9 @@ Now you can set your smartphone upon any stable surface, like a table or a stack
  _Here are some more cool ideas!_
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **DIY adjustable tripod using books and a towel**
 
 You’ve probably heard a million times that you can stabilize your camera by sitting it down on any stable surface – on your desk, on a stack of books, up in a tree, etc. This is very true!
@@ -79,8 +84,9 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -90,8 +96,9 @@ Your wire should be fairly stiff and you’ll need three pieces the same length,
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 _All of your supplies plus the finished product._
 
 **Readying your legs**
@@ -115,22 +122,20 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -139,4 +144,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-from-chaos-unleashed-to-organized-oasis-edit-your-hefty-tiktoks/"><u>[New] 2024 Approved From Chaos Unleashed to Organized Oasis Edit Your Hefty TikToks</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ce-your-look-celebrity-youtubers-for-the-year-2024/"><u>[New] Ace Your Look Celebrity YouTubers for the Year 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/usical-masterclasses-in-15-short-video-formats-on-youtube-for-2024/"><u>[New] Musical Masterclasses in 15 Short Video Formats on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ptimizing-ad-revenue-on-youtube-with-new-strategies-for-2024/"><u>[New] Optimizing Ad Revenue on YouTube with New Strategies for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-uniting-platforms-the-seamless-addition-of-linktree-to-tiktok/"><u>[New] Uniting Platforms The Seamless Addition of Linktree to TikTok</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-blending-past-memories-with-instagrams-vivid-filters/"><u>[Updated] 2024 Approved Blending Past Memories with Instagram's Vivid Filters</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-making-dollars-from-skincare-videos/"><u>[Updated] In 2024, Making Dollars From Skincare Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-snippet-spectacle-top-hashes-to-trigger-the-viral-spree-on-youtube/"><u>[Updated] In 2024, Snippet Spectacle Top Hashes to Trigger the Viral Spree on YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-zippy-typography-two-approaches-to-liven-up-your-letters/"><u>2024 Approved Zippy Typography Two Approaches to Liven Up Your Letters</u></a></li>
+<li><a href="https://win-tips.techidaily.com/how-effective-is-windows-defender-in-ensuring-robust-cybersecurity/"><u>How Effective Is Windows Defender in Ensuring Robust Cybersecurity?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-xiaomi-13t-pro-phone-with-broken-screen-by-drfone-android/"><u>How to Unlock Xiaomi 13T Pro Phone with Broken Screen</u></a></li>
+<li><a href="https://win-blog.techidaily.com/improving-your-gaming-experience-tackling-fps-drops-in-cyberpunk-2077/"><u>Improving Your Gaming Experience: Tackling FPS Drops in Cyberpunk 2077</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-exclusive-access-to-6-premium-thumbnail-generators-for-youtube/"><u>In 2024, Exclusive Access to 6 Premium Thumbnail Generators for YouTube</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-share-location-in-messenger-on-realme-gt-5-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share Location in Messenger On Realme GT 5? | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-monetize-like-a-pro-how-to-use-youtube-studio-on-any-device/"><u>In 2024, Monetize Like a Pro How to Use Youtube Studio on Any Device</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/sh-your-potential-with-these-12-best-flip-screen-cameras-for-2024/"><u>Unleash Your Potential with These 12 Best Flip-Screen Cameras for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unleash-your-potential-with-these-elite-12-vlogger-friendly-cameras-for-2024/"><u>Unleash Your Potential with These Elite 12 Vlogger-Friendly Cameras for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Enhancing Quality without the Mic  A Practical Guide\""
-date: 2024-08-28T17:14:34.330Z
-updated: 2024-08-29T17:14:34.330Z
+date: 2024-12-07T19:52:24.173Z
+updated: 2024-12-13T16:25:23.836Z
 tags:
   - ai video
   - ai youtube
@@ -39,6 +39,10 @@ Luckily, there are a lot of easy, free, things you can do to protect the quality
 * [5\. Use a Free Audio App](#app)
 * [6\. Do a Sound Check](#check)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Keep Your Camera Close (like, really close)
 
 The biggest problem with the mic built into any camera or phone is just that, since it’s with the camera, it’s usually too far away from you. Built-in mics can record decent audio up close, but usually, your camera will be set up farther away from you than an external mic would be.
@@ -46,6 +50,10 @@ The biggest problem with the mic built into any camera or phone is just that, si
 For example, your camera’s mic might be just as good as a clip-on LAV, but that LAV is right by your mouth and the camera is a couple of big steps away.
 
 Moving your camera/smartphone physically closer to you will make it hard to include anything besides your head and shoulders in your shot, but it will get you significantly better audio.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2.Shoot Somewhere Quiet
 
@@ -62,12 +70,9 @@ You should also pay attention to what’s in the room you’re recording in. Avo
 Look for a room that has a lot of soft things in it, like beds and sofas.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4\. Protect your Built-In Mic from Wind
 
 If you shoot outside, then the wind passing over your built-in mic will do terrible things to your audio. You can do a lot to counter-act this problem by physically blocking the wind.
@@ -82,14 +87,14 @@ If your built-in mic is on top of your camera you can get something called a ‘
 
 ![Record better audio from wind with micromuff](https://images.wondershare.com/filmora/article-images/record-better-audio-from-wind.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 _You use the adhesive backing to attach the base velcro to your camera. The other side of the velcro has your fluff attached to the back._
 
 The only thing about a micromuff is that it costs about $30, and if you’re going to spend $30 on audio equipment then you could just buy yourself an inexpensive LAV mic. I only bring up the micromuff because it’s a very simple design you can probably DIY – you just need velcro with adhesive backing and any of the fluff-sources we just discussed.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ## 5\. Use a Free Audio App
 
 If you’re recording on a smartphone, you can download a free app that will let you make adjustments to your audio as you record it. With the right app, you can adjust your gain (volume is how you control ‘output’ audio, and gain is for ‘input’ audio. By turning up your gain, you can make your mic more sensitive), tempo, and more. A lot of the time, your audio recording app will also let you edit your audio afterward.
@@ -98,10 +103,6 @@ Even if you’re not recording video from your smartphone, it might be a good id
 
 Free audio apps: Hi-Q MP3 Voice Recorder (Android), RecForge II (Android), Smart Voice Recorder (Android), Audio Memos (iOS), and Recorder Plus (iOS).
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
 ## 6\. Do a Sound Check
 
 Once you think you’ve got good audio set up – test it! You don’t want to do a whole video and find out when you play it back that your audio doesn’t sound good.
@@ -110,38 +111,29 @@ Do you have any of your own audio tips to pass on? Leave them in the comments!
 
 _This topic was suggested by RS Beauty over in the forums. Thanks for the idea!_
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Polish Your YouTube Videos with Filmora
 
 As one of the most widely used video editing software in YouTube video editing, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) allows you to [record voiceover](https://tools.techidaily.com/wondershare/filmora/download/) and edit the recorded audio with mixer, equalizer and provides lots of templates and effects with an intuitive interface, which saves much time. Download the free trial version and get started now.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -150,4 +142,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-full-rotational-rigging-solutions/"><u>[New] Full-Rotational Rigging Solutions</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-premiere-sneak-peeks-cinema-edition/"><u>[New] In 2024, Premiere Sneak Peeks - Cinema Edition</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-top-8-websites-for-3d-graffiti-fonts/"><u>[New] In 2024, Top 8 Websites for 3D Graffiti Fonts</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nleash-the-potential-of-youtube-videos-through-strategic-chapters-and-segments/"><u>[New] Unleash the Potential of YouTube Videos Through Strategic Chapters and Segments</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/outube-gems-celebrating-the-best-music-playback-2023-for-2024/"><u>[New] YouTube Gems Celebrating the Best Music Playback, 2023 for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-dynamic-animated-and-personalized-filmora-subscribe-button-for-youtube/"><u>[Updated] 2024 Approved Dynamic, Animated, and Personalized Filmora Subscribe Button for YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-humor-havens-discovering-comedy-gems-on-youtube/"><u>[Updated] In 2024, Humor Havens Discovering Comedy Gems on YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-unveiling-the-most-effective-honestly-approved-promotion-strategies-for-2024/"><u>[Updated] Unveiling the Most Effective, Honestly-Approved Promotion Strategies for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-the-ultimate-guide-for-transforming-youtube-videos-into-animated-gifs/"><u>2024 Approved The Ultimate Guide for Transforming YouTube Videos Into Animated GIFs</u></a></li>
+<li><a href="https://games-able.techidaily.com/deciphering-signals-recognizing-offline-players-on-xbox-xs/"><u>Deciphering Signals: Recognizing Offline Players on Xbox X/S</u></a></li>
+<li><a href="https://os-tips.techidaily.com/easy-steps-switching-from-heic-to-jpg-transfer-between-your-iphone-ipad-and-mac/"><u>Easy Steps: Switching From HEIC to JPG Transfer Between Your iPhone, iPad & Mac</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-can-you-transfer-files-from-nubia-red-magic-8s-proplus-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How Can You Transfer Files From Nubia Red Magic 8S Pro+ To iPhone 15/14/13? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-nokia-130-music-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed Guide on Faking Your Location in Mozilla Firefox On Nokia 130 Music | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/icks-procuring-start-up-youtube-channel-monetization-platforms/"><u>Top Picks Procuring Start-Up YouTube Channel Monetization Platforms</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/unlock-vivo-v29-pro-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>Unlock Vivo V29 Pro Phone Password Without Factory Reset Full Guide Here</u></a></li>
+</ul></div>
 

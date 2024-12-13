@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Mastering YouTube Insights for Channel Expansion for 2024"
-date: 2024-08-28T17:16:25.211Z
-updated: 2024-08-29T17:16:25.211Z
+date: 2024-12-06T17:00:06.645Z
+updated: 2024-12-13T17:02:13.357Z
 tags:
   - ai video
   - ai youtube
@@ -86,6 +86,11 @@ By default, the dashboard will show you the stats from the last 28 days, but you
 
 ![data-of-specific-region](https://images.wondershare.com/filmora/data-of-specific-region.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Note: You will be able to change the time frame and region for all the data within YouTube Analytics.
   
 #### **See Your Top Performing Videos In Overview**
@@ -94,12 +99,22 @@ The Overview dashboard highlights your Top 10 videos. Right away you can see the
 
 ![top-performing-videos-in-overview](https://images.wondershare.com/filmora/top-performing-videos-in-overview.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### **Get Insights On Your Audience In Overview**
 
 In Overview you can see where the majority of your audience is from, what gender they are, how they are discovering your videos in Traffic Source, and where they are watching your video in Playback Locations:
 
 ![your-audience-in-overview](https://images.wondershare.com/filmora/your-audience-in-overview.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### **How to Use the Overview Dashboard**
 
 The Overview dashboard is your mission control. I recommend popping in weekly to get a top view of your channel’s performance.
@@ -164,6 +179,11 @@ There are 3 ways to change the timeline:
 
 ![slide-bar-line-chart](https://images.wondershare.com/filmora/slide-bar-line-chart.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You can also change how you view your data, whether Daily, Weekly, Monthly, etc. This way you can see exactly how much you made each day, week, or month, and determine if you can correlate a particular dip or spike to an event that occurred.
 
 ![slide-bar-daily-view](https://images.wondershare.com/filmora/slide-bar-daily-view.jpg)  
@@ -313,6 +333,10 @@ In the example below, we see that there is a peak at the point in this video whe
 
 ![how-to-use-audience-retention](https://images.wondershare.com/filmora/how-to-use-audience-retention.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Knowing this, for the next video you make, you can better anticipate where your viewers are going to need more time on a specific part or whether you should skip ahead to something more interesting.
 
 **7\. Demographics**
@@ -369,6 +393,11 @@ If your video is only promoted organically your views will likely be coming from
 
 ![playback-locations](https://images.wondershare.com/filmora/playback-locations.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### **Which External Source Are Your Videos Being Watched**
 
 By clicking into the Embedded in External Websites and Apps report, you’ll be able to see all the different websites and apps that your video is featured on. This will give you a good indication of which sites and apps are driving the most views.
@@ -445,6 +474,11 @@ If you see that you are getting a lot of conversions from the YouTube Watch Page
 
 ![analyzing-conversion](https://images.wondershare.com/filmora/analyzing-conversion.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### **Find Out Which YouTube Keywords Are Leading to Subscriptions**
 
 Click into YouTube search to see the most popular search terms that have lead to people subscribing to your channel.
@@ -565,6 +599,11 @@ Understand how your videos are getting shared by your viewers. Do you see a spik
 
 ![the-frequecy-of-a-video-getting-shared-one](https://images.wondershare.com/filmora/the-frequecy-of-a-video-getting-shared-one.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### **Compare Sharing to Views**
 
 By comparing Shares to other metrics such as Views and Watch Time, you can see if there is a correlation to performance and the amount the video is shared.
@@ -635,6 +674,11 @@ Then it’s good to see what percentage of them actually click to engage with yo
 
 ![end-screen-get-clicked](https://images.wondershare.com/filmora/end-screen-get-clicked.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### **See Performance of Each End Screen Elements**
 
 In this report, you can see which End Screen Element is driving the most clicks and better understand the viewer’s motivation at the end of your videos.
@@ -659,6 +703,11 @@ By clicking into the Best for Viewer section you can see the top-performing vide
 
 ![top-performing-videos-that-youtube-suggest](https://images.wondershare.com/filmora/top-performing-videos-that-youtube-suggest.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### **How to Use The End Screens Report**
 
 The End Screens report is great for letting you know which of your existing content the audience is interested in seeing after they finished watching one of your videos. As you learn more about your viewers and accumulate more videos, with the help of the End Screens report, you can determine which videos to use to increase Views and Watch Time.
@@ -683,14 +732,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -699,9 +745,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-cut-beyond-youtube-unveiling-the-top-5-video-editor-options/"><u>[New] 2024 Approved Cut Beyond Youtube Unveiling the Top 5 Video Editor Options</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-unlocking-high-profile-discussions/"><u>[New] In 2024, Unlocking High-Profile Discussions</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nstantly-create-a-custom-youtube-feed-via-your-smartphone/"><u>[New] Instantly Create a Custom YouTube Feed via Your Smartphone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/he-complete-youtube-editors-toolkit-for-post-publish-adjustments/"><u>[New] The Complete YouTube Editor's Toolkit for Post-Publish Adjustments</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-reverse-video-magic-online-step-by-step-guides/"><u>[Updated] 2024 Approved Reverse Video Magic Online Step-by-Step Guides</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-top-five-revolutionary-facebook-enhancements/"><u>[Updated] 2024 Approved Top Five Revolutionary Facebook Enhancements</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-in-2024-infiltrate-a-tiktok-livestream-with-precision/"><u>[Updated] In 2024, Infiltrate a TikTok Livestream With Precision</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-seamless-addition-of-youtube-video-selections-for-sites/"><u>[Updated] In 2024, Seamless Addition of YouTube Video Selections for Sites</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-top-6-slide-show-creation-apps-on-latest-iphones/"><u>[Updated] In 2024, Top 6 Slide Show Creation Apps on Latest iPhones</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-mastery-over-moments-jake-pauls-youtube-saga/"><u>[Updated] Mastery Over Moments Jake Paul's YouTube Saga</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-your-first-youtubian-venture-building-a-brand-bringing-in-bucks/"><u>[Updated] Your First Youtubian Venture Building a Brand, Bringing in Bucks</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-top-narrative-strategies-top-channels-dual-success-formula/"><u>2024 Approved Top Narrative Strategies, Top Channels Dual Success Formula</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experiencing-the-combination-of-style-and-functionality-with-the-flexispot-theodore-standing-desk/"><u>Experiencing the Combination of Style & Functionality with the Flexispot Theodore Standing Desk</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-a-found-iphone-12-pro-drfone-by-drfone-ios/"><u>How To Unlock A Found iPhone 12 Pro? | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-optimizing-viewing-habits-the-ultimate-guide-to-youtube-save-and-playlists/"><u>In 2024, Optimizing Viewing Habits The Ultimate Guide to YouTube Save and Playlists</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/tout-de-suite-gratuit-transformez-votre-fichier-aiff-en-format-mov-sur-linternet-avec-movieave/"><u>Tout De Suite Gratuit : Transformez Votre Fichier AIFF en Format MOV Sur L'internet Avec Movieave</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->

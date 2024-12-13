@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Enhancing YouTube Videos  Proper Lighting Methods\""
-date: 2024-08-28T17:15:08.156Z
-updated: 2024-08-29T17:15:08.156Z
+date: 2024-12-12T17:49:48.232Z
+updated: 2024-12-13T18:09:17.067Z
 tags:
   - ai video
   - ai youtube
@@ -39,6 +39,10 @@ Below, I’ll go into detail on how you can set up your lighting equipment to ma
 
 Most beginner YouTubers light their videos with what they already have. That’s what I did to start as well. In the past, my video recording space consisted of natural sunlight coming from my window and ceiling light for times when the sunlight wasn’t strong enough.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1.  Window Lighting
 
 The best thing about window lighting is that it’s free. The worst thing about it is that it’s uncontrollable. The amount of light you get in your video can vary with all the changes in the weather.
@@ -48,6 +52,10 @@ Window lighting for me was especially difficult to work with because I live in a
 ![  YouTube Video Lighting ](https://images.wondershare.com/filmora/article-images/window-lighting-comparison.jpg)
 
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2. Home Lighting
 
@@ -61,9 +69,6 @@ Most home lighting is warmer in its color temperature. If you want to use your h
 
 Ceiling lights are also typically situated in the center of a room in order to light an entire room evenly. This is not likely to be the best location for your filming video. Since the ceiling light was directly above the face in the above example, you can see harder shadows beneath his cheeks.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 ## Part 2: Home Studio Lighting
 
 If you rather not deal with all the window and home lighting challenges, you can set up studio lighting in your home.
@@ -73,26 +78,21 @@ If you rather not deal with all the window and home lighting challenges, you can
 The first thing you’ll want to do to set up studio lighting in your home is to pick a room to film in and eliminate as much external lighting as you can. Use blinds, curtains, towels, or any thick fabric to block sunlight from shining into your room.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2. 3-Point Lighting
 
 The most common setup for studio lighting is 3-point lighting. For this kind of lighting you’ll need three lights: a key light, a fill light, and a back light (also called a hair light).
 
 ![3-Point Lighting](https://images.wondershare.com/filmora/article-images/youtube-lighting-3-point-lighting.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 Out of the three lights, the key light should be the brightest. When it is positioned to the left of you (as shown in the diagram above) your right side will have shadows.
 
 To minimize the shadows on your right side, use a weaker light as a fill light. You don’t want your fill light to completely eliminate all your shadows or else your shot will look flat.
 
 Lastly, a backlight positioned behind you can give an appealing highlight to the ends of your head and even help to separate your hair from blending into your background if both happen to be dark.
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3. 4-Point Lighting
 
 As a YouTuber, you may not only want yourself to be seen optimally with proper lighting, but you may also want your background to be seen optimally, especially if you’ve taken the time to decorate it for your audience.
@@ -108,27 +108,26 @@ For more information on lighting equipment, check out my [Top 17 Video Lighting 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -137,4 +136,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-chorus-cache-secure-and-inspect-audio-recordings/"><u>[New] Chorus Cache Secure & Inspect Audio Recordings</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-embrace-cold-choosing-heated-backdrops-for-youtube/"><u>[New] Embrace Cold Choosing Heated Backdrops for YouTube</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-uninterrupted-entertainment-with-our-12-live-networks-for-2024/"><u>[New] Uninterrupted Entertainment with Our 12 Live Networks for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-1-choice-easy-online-video-text-conversion/"><u>[Updated] 2024 Approved 1 Choice Easy Online Video Text Conversion</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-flv-file-symphony-creating-a-single-youtube-playlist/"><u>[Updated] In 2024, FLV File Symphony Creating a Single YouTube Playlist</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-best-buddies-games-top-metagame-escapades/"><u>2024 Approved Best Buddies Games Top Metagame Escapades</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/fy-your-content-navigating-the-world-of-youtube-backlinks/"><u>Amplify Your Content Navigating the World of YouTube Backlinks</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-honor-x50iplus-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Honor X50i+ to New Android? | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-captivating-creations-the-process-of-making-popular-video-memes/"><u>In 2024, Captivating Creations The Process of Making Popular Video Memes</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-top-6-free-online-tools-for-downloading-youtube-shorts/"><u>In 2024, Top 6 Free, Online Tools for Downloading YouTube Shorts</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-video-sharing-titans-ranking-vimeo-youtube-and-dailymotion/"><u>In 2024, Video-Sharing Titans Ranking Vimeo, YouTube & Dailymotion</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/cting-your-videos-narrative-integrating-timestamps-smartly/"><u>Perfecting Your Video's Narrative Integrating Timestamps Smartly</u></a></li>
+</ul></div>
 

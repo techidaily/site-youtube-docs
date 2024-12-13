@@ -1,7 +1,7 @@
 ---
 title: "[New] Digital Dreams Unite Conference for 2024"
-date: 2024-08-28T17:13:07.498Z
-updated: 2024-08-29T17:13:07.498Z
+date: 2024-12-08T19:53:27.331Z
+updated: 2024-12-13T16:48:49.715Z
 tags:
   - ai video
   - ai youtube
@@ -64,11 +64,16 @@ Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. S’well bottle
 
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. Branded slippers
 
@@ -76,35 +81,29 @@ To help them relax after long days at the summit, YouTube provided creators with
 
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 _thinknoodles wearing his YouTube slippers._
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 5\. Pins, pins, pins
 
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
 
 <!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 6\. Denim jacket
 
 A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
 
 _![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
 
@@ -114,34 +113,19 @@ Want to join the YouTube Creator Summit in the future? We all know that there is
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
-
- It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
-
-  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
-
-  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -150,4 +134,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-financial-forecast-shooting-a-music-video-for-2024/"><u>[New] Financial Forecast Shooting a Music Video for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-hardware-hurdles-whats-necessary-for-big-sur-for-2024/"><u>[New] Hardware Hurdles What's Necessary for Big Sur for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-the-blueprint-for-channel-empowerment-via-studio-mastery/"><u>[New] In 2024, The Blueprint for Channel Empowerment via Studio Mastery</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/un-salutations-and-beyond-youtubes-premier-yoga-pages/"><u>[New] Sun Salutations & Beyond – YouTube's Premier Yoga Pages</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ynth-symphony-selecting-superior-dj-templates-for-download/"><u>[New] Synth Symphony Selecting Superior DJ Templates for Download</u></a></li>
+<li><a href="https://win-able.techidaily.com/solved-the-sims-4-crashing-on-pc/"><u>[Solved] The Sims 4 Crashing on PC</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-top-7-social-media-screen-grabs/"><u>[Updated] In 2024, Top 7 Social Media Screen Grabs</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-seamless-filmmaking-kinemaster-transition-techniques/"><u>[Updated] Seamless Filmmaking Kinemaster Transition Techniques</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-sky-high-earnings-leveraging-youtube-analytics-and-monetization-for-2024/"><u>[Updated] Sky High Earnings Leveraging YouTube Analytics & Monetization for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-the-basics-of-electronic-story-craftsmanship/"><u>[Updated] The Basics of Electronic Story Craftsmanship</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-gastronomy-goals-attractive-food-network-branding-ideas/"><u>2024 Approved Gastronomy Goals Attractive Food Network Branding Ideas</u></a></li>
+<li><a href="https://change-location.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-samsung-galaxy-f14-5g-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Samsung Galaxy F14 5G | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-move-your-iphone-pictures-onto-a-mac-computer-a-simple-guide/"><u>How to Move Your iPhone Pictures Onto a Mac Computer: A Simple Guide</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/magicbook-14-review-powerful-14-portable-laptop-with-integrated-graphics-explored-by-zdnet/"><u>MagicBook 14 Review - Powerful 14 Portable Laptop with Integrated Graphics Explored by ZDNet</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/oming-the-most-frequent-youtube-short-hurdles-for-2024/"><u>Overcoming the Most Frequent YouTube Short Hurdles for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/form-your-food-blog-into-an-engaging-mukbang-show-for-2024/"><u>Transform Your Food Blog Into an Engaging Mukbang Show for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/naries-shaping-marvel-online-experience-for-2024/"><u>Visionaries Shaping Marvel Online Experience for 2024</u></a></li>
+</ul></div>
 

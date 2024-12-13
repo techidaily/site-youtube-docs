@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Pro Shortcuts Every YouTuber Needs - The Top 20 List for 2024\""
-date: 2024-09-02T06:44:05.035Z
-updated: 2024-09-03T06:44:05.035Z
+date: 2024-12-10T19:54:39.622Z
+updated: 2024-12-13T17:17:53.651Z
 tags:
   - ai video
   - ai youtube
@@ -42,8 +42,9 @@ While watching a YouTube video, there might be instances when you want to pause 
 | 'Spacebar'        | Play and Pause (Works as a toggle key) |
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Category 2: Scrolling YouTube Videos Back and Forth
 
 This section talks about the shortcut keys to skim the video forward and backward during playback:
@@ -64,13 +65,9 @@ If you’re watching videos on YouTube mobile app, you can use double-tap on the
 Long press the Video Player and swipe right will navigate the video forward; and long press the video player and wwipe left will navigate the video backward.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Category 3: Manage Playback Speed
 
 This category contains information on increasing or decreasing the playback speed of a YouTube video:
@@ -93,8 +90,9 @@ This category talks about managing the video captions using the shortcut keys:
 | '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Category 5: Managing the Audio Video
 
 This category shows the shortcut keys to manage audio for a YouTube video:
@@ -119,9 +117,6 @@ Double press F/T/I on the keyboard will exit the full-screen/theater model/indep
 
 If you are watching video on YouTube mobile app, you can swipe up the video slightly to enter the full screen mode, and swipe down the video slightly to exit the full screen.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Category 7: Viewing 360o/VR Videos
 
 In this category, the navigation and management of shortcut keys for 360o and Virtual Reality (VR) view are discussed:
@@ -134,9 +129,6 @@ In this category, the navigation and management of shortcut keys for 360o and Vi
 | '-' (Minus Key on Keyboard) | Decrease font size                                    |
 | '+' (Plus Key on Keyboard)  | Increase font size                                    |
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Bonus: How to Get the YouTube Shortcut List with One-Click
 
 In this section, you will learn how to pull up the list of important YouTube shortcuts by pressing merely one key:
@@ -158,9 +150,14 @@ As one of the most popular video editing software among YouTubers, Filmora provi
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -168,14 +165,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -184,4 +178,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/ecome-a-viral-sensation-maximizing-your-youtube-reach/"><u>[New] Become a Viral Sensation Maximizing Your YouTube Reach</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/everaging-imovies-power-for-youtube-presence-and-growth/"><u>[New] Leveraging IMovie's Power for YouTube Presence and Growth</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-restore-pristine-photos-easily-discover-top-10-online-enhancers/"><u>[Updated] 2024 Approved Restore Pristine Photos Easily Discover Top 10 Online Enhancers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-from-stir-to-screen-masterful-cooking-videos/"><u>[Updated] From Stir to Screen Masterful Cooking Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-how-to-create-a-live-stream-on-youtube-with-the-best-webcams-for-2024/"><u>[Updated] How to Create a Live Stream on YouTube With the Best Webcams for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-how-to-find-your-comments-on-youtube/"><u>[Updated] In 2024, How to Find Your Comments on YouTube?</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-xsplit-archive-detailed-video-game-analyses/"><u>[Updated] In 2024, XSplit Archive Detailed Video Game Analyses</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-mobile-marvels-the-leading-arvr-app-picks/"><u>[Updated] Mobile Marvels The Leading AR/VR App Picks</u></a></li>
+<li><a href="https://fake-location.techidaily.com/all-must-knows-to-use-fake-gps-go-location-spoofer-on-poco-m6-pro-4g-drfone-by-drfone-virtual-android/"><u>All Must-Knows to Use Fake GPS GO Location Spoofer On Poco M6 Pro 4G | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/easy-adjustment-of-text-emphasis-and-search-effects/"><u>Easy Adjustment of Text Emphasis and Search Effects</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/tial-techniques-in-creating-youtube-thumbnails-that-stand-out-for-2024/"><u>Essential Techniques in Creating YouTube Thumbnails That Stand Out for 2024</u></a></li>
+<li><a href="https://win-unique.techidaily.com/expert-laracasts-ultimate-administrator-panel-and-control-center-layouts-from-creativetim/"><u>Expert Laracasts: Ultimate Administrator Panel & Control Center Layouts From CreativeTim</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-dissecting-viral-trends-for-immersive-fb-ad-content/"><u>In 2024, Dissecting Viral Trends for Immersive FB Ad Content</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-mastery-over-moments-jake-pauls-youtube-saga/"><u>In 2024, Mastery Over Moments Jake Paul's YouTube Saga</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-the-ultimate-checklist-for-professional-youtube-clips/"><u>In 2024, The Ultimate Checklist for Professional YouTube Clips</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/launch-your-stream-top-8-youtube-revenue-tactics-for-2024/"><u>Launch Your Stream Top 8 YouTube Revenue Tactics for 2024</u></a></li>
+<li><a href="https://win-unique.techidaily.com/44om44o844k244o844ov44os44oz44oj44oq44o844gq5pa55rov77ya44or44k944kz44oz5zcm5aor44gn44oh44o844k44gu54sh57ealplusocseodvoodluodqpluss6poapmyatioocueodhuodgpl301/"><u>ユーザーフレンドリーな方法：パソコン同士でデータの無線/ケーブル交換 - ステップバイステップチュートリアル</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Mastering Video Success  A List of 20 Pro Shortcuts\""
-date: 2024-12-02T16:28:48.489Z
-updated: 2024-12-07T19:35:56.137Z
+date: 2024-12-12T16:04:08.222Z
+updated: 2024-12-13T18:58:08.677Z
 tags:
   - ai video
   - ai youtube
@@ -34,12 +34,16 @@ With that said, the following two-columned tables give you detailed information 
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Amazing YouTube Keyboard Shortcuts You May Not Know
 
 To make things convenient for you, the shortcut keys are placed under their corresponding categories, where each category is in the form of a two-columned table.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Category 1: YouTube Playback Hotkeys
 
@@ -78,10 +82,6 @@ This category contains information on increasing or decreasing the playback spee
 | 'SHIFT' + '.' (Period) | Increase playback speed |
 | 'SHIFT' + ',' (Comma)  | Decrease playback speed |
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Category 4: Managing the Captions
 
 This category talks about managing the video captions using the shortcut keys:
@@ -94,10 +94,6 @@ This category talks about managing the video captions using the shortcut keys:
 | '-' (Minus Key)    | Reduce the font size of the captions (Minus key on the Numpad isn't supported)                                       |
 | '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Category 5: Managing the Audio Video
 
 This category shows the shortcut keys to manage audio for a YouTube video:
@@ -107,10 +103,6 @@ This category shows the shortcut keys to manage audio for a YouTube video:
 | 'M'               | Mute YouTube video    |
 | '↑'               | Increase volume by 5% |
 | '↓'               | Decrease volume by 5% |
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Category 6: Switching Between Screen Modes
 
@@ -126,6 +118,10 @@ Double press F/T/I on the keyboard will exit the full-screen/theater model/indep
 
 If you are watching video on YouTube mobile app, you can swipe up the video slightly to enter the full screen mode, and swipe down the video slightly to exit the full screen.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Category 7: Viewing 360o/VR Videos
 
 In this category, the navigation and management of shortcut keys for 360o and Virtual Reality (VR) view are discussed:
@@ -139,7 +135,7 @@ In this category, the navigation and management of shortcut keys for 360o and Vi
 | '+' (Plus Key on Keyboard)  | Increase font size                                    |
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Bonus: How to Get the YouTube Shortcut List with One-Click
@@ -153,6 +149,10 @@ In this section, you will learn how to pull up the list of important YouTube sho
 So, when you press the Shift+? on YouTube, you will see a full list of shortcuts.
 
 ![YouTube Shortcut List](https://images.wondershare.com/filmora/article-images/youtube-keyboard-shortcuts-list.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Conclusion**
 
@@ -185,19 +185,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-2024-approved-system-requirements-guide-for-the-latest-mac-os-release/"><u>[New] 2024 Approved System Requirements Guide for the Latest Mac OS Release</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-hurry-up-get-professional-valorant-thumbnail-skills-now/"><u>[Updated] 2024 Approved Hurry Up, Get Professional Valorant Thumbnail Skills Now</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-step-by-step-guide-to-excelling-at-final-cut-pro/"><u>[Updated] 2024 Approved Step-by-Step Guide to Excelling at Final Cut Pro</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-achieve-professionalism-in-sims-4-videography-for-2024/"><u>[Updated] Achieve Professionalism in Sims 4 Videography for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-building-engaging-learning-experiences-youtube-as-your-classroom-screen-for-2024/"><u>[Updated] Building Engaging Learning Experiences YouTube as Your Classroom Screen for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-elevating-video-visibility-through-thumbnails-for-2024/"><u>[Updated] Elevating Video Visibility Through Thumbnails for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-bringing-videos-to-life-using-youtube-in-educational-environments/"><u>[Updated] In 2024, Bringing Videos to Life Using YouTube in Educational Environments</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-maximize-engagement-the-ultimate-list-of-youtube-growth-tactics-for-2024/"><u>[Updated] Maximize Engagement The Ultimate List of YouTube Growth Tactics for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-digital-dominance-youtubes-best-female-gamers/"><u>2024 Approved Digital Dominance YouTube's Best Female Gamers</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-6-ways-to-change-spotify-location-on-your-samsung-galaxy-f14-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 6 Ways to Change Spotify Location On Your Samsung Galaxy F14 5G | Dr.fone</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-reanimated-warfare-gameplay-excellence-in-the-undead-genre/"><u>In 2024, Reanimated Warfare Gameplay Excellence in the Undead Genre</u></a></li>
-<li><a href="https://techtrends.techidaily.com/overcoming-text-message-reception-problems-in-android-smartphones/"><u>Overcoming Text Message Reception Problems in Android Smartphones</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/score-an-amazing-sale-get-your-8tb-samsung-t5-ssd-for-up-to-36-less-post-prime-day-news/"><u>Score an Amazing Sale: Get Your 8TB Samsung T5 SSD for Up to 36% Less Post-Prime Day News</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>Why does the pokemon go battle league not available On Apple iPhone XR | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/levating-video-branding-the-art-and-science-of-youtube-image-designs-for-2024/"><u>[New] Elevating Video Branding The Art and Science of Youtube Image Designs for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-facebook-fans-access-more-from-your-twitch-channel/"><u>[New] Facebook Fans Access More From Your Twitch Channel</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-5-steps-to-crafting-engaging-cost-effective-youtube-ads/"><u>[New] In 2024, 5 Steps to Crafting Engaging, Cost-Effective YouTube Ads</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-block-spontaneous-youtube-video-triggers/"><u>[New] In 2024, Block Spontaneous YouTube Video Triggers</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-enhancing-meet-visuals-applying-filters-effects-and-masks/"><u>[Updated] 2024 Approved Enhancing Meet Visuals Applying Filters, Effects & Masks</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-does-youtube-offer-frequent-payments-to-you-in-2024/"><u>[Updated] Does YouTube Offer Frequent Payments to You, In 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-fast-techniques-for-reordering-youtube-video-queues/"><u>2024 Approved Fast Techniques for Reordering YouTube Video Queues</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/fast-access-to-up-to-date-asus-pce-ac68-drivers-download-here/"><u>Fast Access to Up-to-Date ASUS PCE-AC68 Drivers - Download Here!</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/how-to-get-and-install-the-best-sound-card-drivers-on-your-pc/"><u>How to Get and Install the Best Sound Card Drivers on Your PC</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-use-google-assistant-on-your-lock-screen-of-motorola-moto-e13-phone-by-drfone-android/"><u>In 2024, How to Use Google Assistant on Your Lock Screen Of Motorola Moto E13 Phone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/superior-7-dslr-choices-perfect-for-social-media-streaming-for-2024/"><u>Superior 7 DSLR Choices Perfect for Social Media Streaming for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/thing-unique-content-for-youtubes-spotlight/"><u>Unearthing Unique Content for Youtube's Spotlight</u></a></li>
 </ul></div>
 

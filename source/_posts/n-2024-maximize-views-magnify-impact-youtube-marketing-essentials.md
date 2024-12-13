@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Maximize Views, Magnify Impact (YouTube Marketing Essentials)"
-date: 2024-08-28T17:17:11.744Z
-updated: 2024-08-29T17:17:11.744Z
+date: 2024-12-11T16:56:36.675Z
+updated: 2024-12-13T18:08:39.751Z
 tags:
   - ai video
   - ai youtube
@@ -54,8 +54,9 @@ Before you start your next project, take a look back at the Audience Retention o
 5. See where a dip in watch time
 
 <!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **What is Good Audience Retention?**
 
 If you want to see how your Audience Retention is performing, the Average Percentage Viewed will give you a broad perspective. The higher the percentage, the more people are watching your entire video.
@@ -68,16 +69,10 @@ In the example above, we see that on average, a viewer will only see 44% of the 
 
 ![audience-retention-two](https://images.wondershare.com/filmora/audience-retention-two.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 There is also a dip that happens at the beginning in the second example, which indicates that viewers are skipping forward and about 20% then deciding it’s not worth continuing. It’s good data to help you improve your introduction and the hook.
 
 If there is important information that you are presenting at a given point and in the Audience Retention you see that only a small percentage of your viewers actually see it, then for the next video, you might want to position the details in a different point in the video.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ### **How to Improve Audience Retention**
 
 Here are a few ways you can retain your audience’s attention if you noticed a drop in viewership:
@@ -100,6 +95,10 @@ Knowing how to structure your video will allow you to be strategic as you build 
 
 Many viewers find YouTube videos via search, and if you aren’t using the appropriate keywords, then YouTube won’t be able to identify your content and display it for your viewers.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **Where Do Keywords Appear on YouTube?**
 
 **\- Title:** Have keywords at the beginning of the title and limit them up to approximately 60 characters so it appears in full in search.
@@ -107,6 +106,10 @@ Many viewers find YouTube videos via search, and if you aren’t using the appro
 **\- Tags**: Include 10-15 tags from general keywords to more specific.
 
 **\- Descriptions:** Put important information and keywords at the beginning of the description so both searcher and the search engine understands what the video is about.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **Why Keywords Matter**
 
@@ -127,31 +130,23 @@ Here is how you can see what keywords were used to find your video:
 ![traffic-source](https://images.wondershare.com/filmora/article-images/traffic-source-youtube-search.png.png)
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 If you want to find some new keywords for your upcoming video, you will need to do some research.
 
 **1\. Enter Keywords You Want to Rank for In YouTube Search:** This allows you to see what the most popular phrases are in the YouTube search engine.
 
 ![search-for-keywords](https://images.wondershare.com/filmora/search-for-keywords.png)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 **2\. Study the Competitors:** See which videos are ranking high for your search term. Use a tool called [VidIQ](https://vidiq.com/)to see the keywords that the top videos are performing.
 
 ![vidlq-tool](https://images.wondershare.com/filmora/vidlq-tool.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **3\. Search for Related Keywords and Evaluate Relevancy:** A tool called [Ubersuggest](https://neilpatel.com/ubersuggest/)can help you find related keywords and allow you to identify the search volume, cost per click (aka CPC is used for determining the budget for paid search), and the competitiveness of the word or phrase.
 
 ![ubersuggest](https://images.wondershare.com/filmora/ubersuggest.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 **Search volume:** The number of searches with that particular keyword. The higher the number the more popular it is. You should aim to use keywords with a high search volume.
 
 **Keyword competition score:** This score is usually indicated by a number and it represents how difficult it is for a keyword to rank due to other pages already ranking for that word or phrase. You want to find a keyword with a low competition score.
@@ -163,9 +158,9 @@ If you want to find some new keywords for your upcoming video, you will need to 
 ![answer-the-public](https://images.wondershare.com/filmora/answer-the-public.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **3\. Engage Your Audience:**
 
 It’s been highly discussed on forums all over the Internet, and there appears to be a strong correlation between [YouTube video ranking and the number of likes, dislikes, and comments](https://backlinko.com/youtube-ranking-factors) the video received.
@@ -210,6 +205,10 @@ If your format allows, go for a longer video instead of a shorter one. But the m
 
 ![related-videos-for-your-audience](https://images.wondershare.com/filmora/related-videos-for-your-audience.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Playlist**: If you have multiple videos that fit a specific topic, add them to a playlist so the viewer can enjoy them all in one viewing.
 
 ![add-videos-of-the-same-topic-to-a-playlist](https://images.wondershare.com/filmora/add-videos-of-the-same-topic-to-a-playlist.jpg)
@@ -248,25 +247,27 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -275,4 +276,17 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-discover-the-elite-live-streaming-platforms/"><u>[New] In 2024, Discover the Elite Live Streaming Platforms</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-how-to-get-royalty-free-music-for-your-youtube-videos/"><u>[New] In 2024, How To Get Royalty Free Music for Your YouTube Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-experts-choice-top-8-proven-video-marketing-actions-for-2024/"><u>[Updated] Expert's Choice Top 8 Proven Video Marketing Actions for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-beat-buzzers-up-and-coming-background-scores-for-yt-shorts/"><u>[Updated] In 2024, Beat Buzzers Up-and-Coming Background Scores For YT Shorts</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-a-step-by-step-guide-to-forming-effective-youtube-partner-relationships/"><u>2024 Approved A Step-by-Step Guide to Forming Effective YouTube Partner Relationships</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/free-electronic-signature-for-xltx-files-by-ldigisigner-sign-a-excel-sign-a-excel/"><u>Free electronic signature - For .xltx files</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-remove-the-two-factor-authentication-on-iphone-6-plus-by-drfone-ios/"><u>How To Remove the Two Factor Authentication On iPhone 6 Plus</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-vivo-s17t-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Vivo S17t | Dr.fone</u></a></li>
+<li><a href="https://network-issues.techidaily.com/1719974657344-streamline-your-system-update-intel-graphics-3000-on-windows-10-now/"><u>Streamline Your System: Update Intel Graphics 3000 on Windows 10 Now</u></a></li>
+<li><a href="https://win-blog.techidaily.com/the-ultimate-fixes-for-smooth-gameplay-no-more-stuttering-in-minecraft-on-your-computer-2023-insights/"><u>The Ultimate Fixes for Smooth Gameplay: No More Stuttering in Minecraft on Your Computer (2023 Insights)</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  IOS/Android Playback  Silent YouTube Autoplay Tips\""
-date: 2024-08-28T17:14:01.604Z
-updated: 2024-08-29T17:14:01.604Z
+date: 2024-12-10T18:56:50.755Z
+updated: 2024-12-13T19:25:46.569Z
 tags:
   - ai video
   - ai youtube
@@ -30,6 +30,10 @@ Another reason why people may want to listen to YouTube in the background could 
 
 With that said, here you will learn how to **play YouTube in the background on iPhone** **or Android** both with and without any specific app.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Best Paid Solution for Playing YouTube in Background: YouTube Premium
 
 YouTube Premium, formerly YouTube Red, is a paid subscription with three types of plans namely ‘Individual’, ‘Family’, and ‘Student’ offered by the streaming giant for $11.99, $17.99, and $6.99 per month respectively. All the plans give you ad-free and uninterrupted streaming experience.
@@ -51,8 +55,9 @@ Launch **YouTube Music**, search for your favorite music using the **Search** ic
 ![ YouTube Premium Play Music background](https://images.wondershare.com/filmora/article-images/youtube-premium-play-music-background.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Step 2: Switch to Audio Only (Optional)
 
 Tap anywhere on the video player window, and tap **Audio** from the top of the screen to switch to the audio only mode where the video of the song won’t be played.
@@ -61,16 +66,10 @@ Tap anywhere on the video player window, and tap **Audio** from the top of the s
 
 Use your phone-specific button or option to minimize YouTube Music. You can then either continue using your smartphone normally, or turn off the screen to **play YouTube in background**.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Play YouTube Videos in Background on iPhone
 
 If you don’t want to pay for YouTube Premium, there are a few other workarounds that you can try to play YouTube in background on your iPhone. One of the easiest methods among them is explained below:
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Step 1: Play YouTube Video on Browser
 
 Launch Safari on your iPhone, and go to [**www.youtube.com**](https://www.youtube.com) (important). Make sure to type the URL in the address bar so the YouTube app doesn’t start, and you can access YouTube from within the browser window itself.
@@ -89,21 +88,19 @@ Press the **Home** button or swipe up on iPhone X or above to get to the Home sc
 
 The process to **play YouTube in background** on an Android smartphone is slightly different than what it is on an iPhone if you don’t have a Premium subscription. To get this done on your Android, you must:
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ### Step 1: Switch to Desktop Mode
 
 Launch Google Chrome (default) on your Android phone, and go to [**www.youtube.com**](https://www.youtube.com). Click the **More options** icon (with three vertically aligned dots) from the top-right corner of the browser, and check the **Desktop site** box from the menu that appears.
 
 ![ Switch to YouTube desktop site on Android](https://images.wondershare.com/filmora/article-images/switch-to-desktop-site-youtube.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Step 2: Search for and Stream a Video
 
 Use the **Search** bar at the top of the interface to search for and tap the video you want to stream.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Step 3: Play YouTube in Background
 
@@ -112,9 +109,9 @@ Once the video starts streaming, get back to the Home screen, pull down the **No
 ![ Play YouTube  background on Android](https://images.wondershare.com/filmora/article-images/play-youtube-background-android.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3 Best Apps to Play YouTube Videos in Background on Android
 
 Instead of using the above workaround on Android, if you want something simpler and more straightforward, there are a few apps that can help you **play YouTube videos in background**. Some of the most used programs are listed below:
@@ -123,23 +120,29 @@ Instead of using the above workaround on Android, if you want something simpler 
 
 Being one of the most versatile media playing software, VLC needs no introduction, and icing on the cake was added when the program was made available on Google Play Store. After you have installed VLC on your Android phone, you can launch the YouTube app, search for and tap the video you want to play in the background, tap the streaming video, tap the ‘More options’ icon from the top-right corner, and tap ‘Play in VLC’ from the available options.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
-<!-- affiliate ads end -->
 ### [Minimize play in background](https://play.google.com/store/apps/details?id=de.kostenlose.musik.app&hl=en%5FUS)
 
 This app does exactly what its name suggests. The program has a ‘Minimize player’ mode that allows you to stream YouTube videos in a small window that reduces its size and resides at the bottom of the screen, thus letting you use your Android phone for other important tasks simultaneously.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### [Background player for YouTube Vanced minimizer](https://play.google.com/store/apps/details?id=com.free.music.app&hl=en%5Fus)
 
 Yet another app available on Google Play Store that lets you search for your favorite videos on YouTube, stream them, and then minimize the player to a floating window that goes down to the bottom of the screen. This lets you **play YouTube in background** in order to allow you to use your phone for other tasks.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Best Video Editing Software for YouTube
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Conclusion**
 
@@ -148,22 +151,20 @@ Watching YouTube videos has become a part of people’s day-to-day life now. Whi
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -172,4 +173,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-conquering-macs-record-functionality-keyboard-driven-tips-for-2024/"><u>[New] Conquering Mac's Record Functionality Keyboard-Driven Tips for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-beyond-mainstream-a-list-of-6-exclusive-icon-and-logo-providers/"><u>[Updated] In 2024, Beyond Mainstream A List of 6 Exclusive Icon & Logo Providers</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-comprehensive-angles-in-filming-versus-diverse-dimensions/"><u>2024 Approved Comprehensive Angles in Filming versus Diverse Dimensions</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-google-frp-lock-from-htc-u23-pro-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock from HTC U23 Pro Devices</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-samsung-galaxy-s21-fe-5g-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Does Life360 Notify When You Log Out On Samsung Galaxy S21 FE 5G (2023)? | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-essential-tips-for-producing-engaging-educational-content-for-youtube/"><u>In 2024, Essential Tips for Producing Engaging Educational Content for YouTube</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-top-rated-economical-timer-services/"><u>In 2024, Top-Rated Economical Timer Services</u></a></li>
+<li><a href="https://win-able.techidaily.com/itunes-sounds-broken-heres-how-to-fix-the-detected-audio-setup-problems-effortlessly/"><u>ITunes Sounds Broken? Here's How to Fix the Detected Audio Setup Problems Effortlessly</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/rful-monetization-crafting-a-revenue-driven-youtube-presence-for-2024/"><u>Masterful Monetization Crafting a Revenue-Driven Youtube Presence for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/simple-solutions-troubleshooting-and-enhancing-your-file-explorer-on-windows-11/"><u>Simple Solutions: Troubleshooting & Enhancing Your File Explorer on Windows 11</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/mlining-short-form-content-leading-edits-for-iosandroid-for-2024/"><u>Streamlining Short-Form Content Leading Edits for iOS/Android for 2024</u></a></li>
+</ul></div>
 

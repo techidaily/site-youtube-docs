@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The Premier Video Symposium  Life Past VidCon\""
-date: 2024-09-02T06:45:17.534Z
-updated: 2024-09-03T06:45:17.534Z
+date: 2024-12-09T16:42:51.402Z
+updated: 2024-12-13T19:49:40.409Z
 tags:
   - ai video
   - ai youtube
@@ -52,6 +52,10 @@ Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video 
 
 ![VidCon-On-Spot](https://images.wondershare.com/filmora/VidCon-On-Spot.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 In 2017 over 30,000 YouTube enthusiasts – from fans to A-list creators – attended VidCon US, and that was thousands of more people than attended in 2016\. It’s hard to imagine that this event – the biggest convention for YouTube and online video – will do anything but grow over the next few years.
 
 VidCon was founded by the Vlogbrothers in 2010 as a place for internet friends to meet in real life.
@@ -79,6 +83,10 @@ You have a two-week window (usually the first half of May) to submit your choice
 **Washington DC:** September
 
 ![Playlistlive](https://images.wondershare.com/filmora/Playlistlive.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Playlist Live is a YouTube event for creators and their supporters that has a particular focus on music. Where VidCon is advertised using images of sunshine, crowded convention halls, and speakers, Playlist Live is advertised with images of city skylines, concerts, and fireworks.
 
@@ -113,6 +121,10 @@ There is also business **Passes** with Merch and Deluxe (Business Deluxe can cos
 **London, UK:** November
 
 ![beautycon-festivals](https://images.wondershare.com/filmora/beautycon-festivals.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Beautycon is an event meant to highlight innovators in the fields of Beauty, Makeup, and Lifestyle. They bring together online creators, fans, celebrities, and brands for two-day festivals full of fun, panel discussions, shopping, and free samples.
 
@@ -188,6 +200,10 @@ For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
 
 ![summer-in-the-city](https://images.wondershare.com/filmora/summer-in-the-city.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 This is the largest online video festival in the UK. It features discussion panels, workshops, and live performances targeted at creators, fans of online video, and industry professionals. YouTubers might hang out on the show floor meeting fans, and there are also Meet and Greet sessions for top creators. All ticket holders can submit online ballots for a chance at Meet and Greet access.
 
 Summer in the City even has its own awards show, SitC, to honor the best in online content. Previous winners include Dodie, Tomska, Jack & Dean, and Nathan Zed.
@@ -212,20 +228,21 @@ Have you ever attended an offline YouTube event? Which one, and how did you like
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -234,8 +251,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/ompilation-worlds-leading-youtube-mp3-downloaders/"><u>[New] Compilation World's Leading YouTube Mp3 Downloaders</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-beginning-your-journey-to-digital-creation/"><u>[New] In 2024, Beginning Your Journey to Digital Creation</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-mastering-youtubes-defense-confronting-critics/"><u>[New] In 2024, Mastering YouTube's Defense Confronting Critics</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-utilizing-royalty-free-beats-in-your-youtube-clips/"><u>[New] In 2024, Utilizing Royalty-Free Beats in Your YouTube Clips</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nlock-creative-potentials-youtube-trailers-with-filmora/"><u>[New] Unlock Creative Potentials YouTube Trailers with Filmora</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-overcoming-black-screens-in-youtube-content/"><u>[Updated] 2024 Approved Overcoming Black Screens in YouTube Content</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-top-8-youtube-ranks-expertly-navigating-with-key-tools-for-2024/"><u>[Updated] Top 8 YouTube Ranks Expertly Navigating with Key Tools for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-mastering-media-analysis-evaluating-your-vs-opponents-youtube-content/"><u>2024 Approved Mastering Media Analysis Evaluating Your Vs. Opponents' YouTube Content</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-the-definitive-playbook-enhancing-your-videos-first-impression/"><u>2024 Approved The Definitive Playbook Enhancing Your Video's First Impression</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/expanding-visibility-how-to-connect-and-utilize-two-screens-on-a-mac-machine/"><u>Expanding Visibility: How to Connect and Utilize Two Screens on a Mac Machine</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/exploring-the-superiority-of-claude-3-over-gpt-3-in-four-parts/"><u>Exploring the Superiority of Claude 3 Over GPT-3, In Four Parts</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/fire-detection-systems-should-be-selected-based-on-the-type-of-environment-and-expected-fire-risks-in-each-area-of-a-building/"><u>Fire Detection Systems Should Be Selected Based on the Type of Environment and Expected Fire Risks in Each Area of a Building.</u></a></li>
+<li><a href="https://techidaily.com/how-to-soft-reset-honor-x7b-phone-drfone-by-drfone-reset-android-reset-android/"><u>How to Soft Reset Honor X7b phone? | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-leveraging-hashtags-and-mentions/"><u>In 2024, Leveraging Hashtags and Mentions</u></a></li>
+<li><a href="https://fox-info.techidaily.com/removing-unneeded-podcast-advice-from-spotify-for-2024/"><u>Removing Unneeded Podcast Advice From Spotify for 2024</u></a></li>
+<li><a href="https://win-excellent.techidaily.com/schnelle-und-effiziente-methode-fur-den-wechsel-von-kontakten-zwischen-zwei-apple-ids-ein-leitfaden-mit-vier-tipps/"><u>Schnelle Und Effiziente Methode Für Den Wechsel Von Kontakten Zwischen Zwei Apple IDs - Ein Leitfaden Mit Vier Tipps</u></a></li>
+<li><a href="https://win-blog.techidaily.com/step-by-step-tutorial-to-repair-rainbow-six-sieges-persistent-black-screen-on-pc-setups/"><u>Step-by-Step Tutorial to Repair Rainbow Six Siege's Persistent Black Screen on PC Setups</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/the-comprehensible-guide-to-dji-inspire-2-for-2024/"><u>The Comprehensible Guide to DJI Inspire 2 for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/forming-viewers-into-livelihood-with-right-numbers/"><u>Transforming Viewers Into Livelihood with Right Numbers</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->

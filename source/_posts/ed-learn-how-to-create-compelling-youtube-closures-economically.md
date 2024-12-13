@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Learn How To Create Compelling YouTube Closures Economically"
-date: 2024-08-28T17:17:51.642Z
-updated: 2024-08-29T17:17:51.642Z
+date: 2024-12-11T19:23:16.063Z
+updated: 2024-12-13T17:28:00.278Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/3b240b43c93d639302106c546caada2668474e961
 
 [How To Make an End Card](#how-to)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -68,6 +72,10 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -76,6 +84,10 @@ You can create a simple intro card in **Filmora**.
 6. Go to the Text/Titles menu and choose an animated title that suits your channel. Drag it into your text track and edit it to include your name.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: End Cards
 
@@ -112,20 +124,21 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -134,8 +147,26 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-youtube-banners-makers-10plus-online-tools-to-create-channel-art/"><u>[New] In 2024, Youtube Banners Makers 10+ Online Tools to Create Channel Art</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-optimizing-edit-videos-with-m1-powered-macbook-air-for-2024/"><u>[New] Optimizing Edit Videos with M1 Powered MacBook Air for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ncover-the-quickest-rising-youtube-channels-to-uplift-you/"><u>[New] Uncover the Quickest Rising YouTube Channels to Uplift You</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-expertise-in-edits-selecting-premier-video-tools/"><u>[Updated] Expertise in Edits Selecting Premier Video Tools</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-first-steps-in-camera-shopping-for-newcomers-to-film-for-2024/"><u>[Updated] First Steps in Camera Shopping – For Newcomers to Film for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-highlighting-the-top-video-creation-apps-iphone-android/"><u>[Updated] Highlighting the Top Video Creation Apps (iPhone, Android)</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-decoding-the-modern-content-creators-dilemma/"><u>[Updated] In 2024, Decoding the Modern Content Creator's Dilemma</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-youtube-streams-optimal-webm-converters-ranked-for-2024/"><u>[Updated] YouTube Streams Optimal WebM Converters Ranked for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/free-mp4-recovery-tutorial-restore-your-damaged-video-files-without-costs-on-pc-or-mac/"><u>Free MP4 Recovery Tutorial: Restore Your Damaged Video Files Without Costs on PC or Mac</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/freemake/"><u>Freemakeを利用してダウンロード失敗する原因と対処法</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/clicks-to-cash-the-journey-of-youtubes-ajay-nagar-for-2024/"><u>From Clicks to Cash The Journey of YouTube's Ajay Nagar for 2024</u></a></li>
+<li><a href="https://win-guides.techidaily.com/how-to-securely-back-up-windows-os-essential-techniques-for-effective-data-preservation/"><u>How to Securely Back Up Windows OS: Essential Techniques for Effective Data Preservation</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-a-lost-nubia-z50-ultra-for-free-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track a Lost Nubia Z50 Ultra for Free? | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-youtube-analytics-how-to-analyze-your-and-competitors-youtube-video/"><u>In 2024, YouTube Analytics – How to Analyze Your and Competitor's YouTube Video</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-youtube-milestone-mastery-breaking-into-the-millions/"><u>In 2024, Youtube Milestone Mastery Breaking Into the Millions</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/powerful-performance-on-screen-the-definitive-gigabyte-aorus-oled-monitor-guide-with-rich-colors-and-dynamic-range/"><u>Powerful Performance on Screen: The Definitive Gigabyte Aorus OLED Monitor Guide with Rich Colors & Dynamic Range</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/streamline-your-gameplay-memory-with-these-6-steps-for-2024/"><u>Streamline Your Gameplay Memory with These 6 Steps for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/tackle-try-connections-fiasco-with-this-guide-for-pcs/"><u>Tackle 'Try Connections' Fiasco with This Guide for PCs</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/unlock-educational-success-7-free-apps-perfect-for-school-season/"><u>Unlock Educational Success: 7 Free Apps Perfect for School Season</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

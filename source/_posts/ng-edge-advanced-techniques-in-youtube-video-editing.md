@@ -1,7 +1,7 @@
 ---
 title: "\"Cutting Edge  Advanced Techniques in YouTube Video Editing\""
-date: 2024-08-28T17:11:40.915Z
-updated: 2024-08-29T17:11:40.915Z
+date: 2024-12-11T18:45:02.013Z
+updated: 2024-12-13T18:28:28.055Z
 tags:
   - ai video
   - ai youtube
@@ -89,9 +89,6 @@ Camera shake is a video effect that makes the original clip appear like it was f
 
 A lot of comedy YouTubers change the color and levels of their videos in order to emphasize different moods. One common thing YouTubers do when they talk about anything slightly sad is to gradually fade out the colors in their talking head shots. In a cheesy way, the black and white look can emphasize a feeling of emptiness. For his “sad” reactions, PewDiePie often jump cuts into a black and white, slowed down clip of his sad face while playing some sad music in the background. To emphasize a darker message, some YouTubers increase the amount of shadows in their video. In the video below, while his daughter is delivering a darker message from 0:32 to 0:50, La Guardia Cross gradually adds more shadows around his daughter’s face through what appears to be a vignette effect.
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Part 4: Transitions
 
 #### 1. Wipe
@@ -103,8 +100,9 @@ Many YouTubers transition from one scene into the next using a wipe transition. 
 The zoom transition is quite similar to the wipe transition, except it uses a zoom effect. Many of the top YouTubers combine this transition with a lower-pitched “woosh” sound effect.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Part 5: Visual Elements
 
 In other genres of film, the only appropriate visual elements filmmakers can tastefully add to their footage seem to be clean looking, seamlessly integrated text and motion graphics. YouTube, on the other hand, is another world with much more room to get outrageous. Many of the top YouTubers add a lot of visual elements ([emojis](https://tools.techidaily.com/wondershare/filmora/download/), images, filters, explosions) to their videos to emphasize their jokes, play-on-words, historical or cultural references, and mood.
@@ -112,6 +110,10 @@ In other genres of film, the only appropriate visual elements filmmakers can tas
 #### 1. Call-To-Action Visuals
 
 Whether they’re prompting you to subscribe, like, comment, or check out their purchasable merchandise, many YouTubers include visuals to strengthen their calls-to-action.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Part 6: Time Manipulation
 
@@ -128,8 +130,9 @@ Slowing down footage is another way YouTubers like to manipulate the passage of 
 **![Slow Motion](https://media.giphy.com/media/hEZfnQRnS4eBO/giphy.gif)**
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Part 7: Audio
 
 #### 1. Censor
@@ -159,35 +162,30 @@ A lot of video editing software programs give you the option to add compression 
 ![ How to edit YouTube video](https://images.wondershare.com/filmora/article-images/compresssor-audio-in-youtube-video-editing.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 For those who want to make their YouTube videos better, I recommend Wondershare Filmora for [editing YouTube videos](https://tools.techidaily.com/wondershare/filmora/download/). [Filmora video editor](https://tools.techidaily.com/wondershare/filmora/download/) allows you to create and edit a YouTube video easily with plentiful templates and effects pre-programmed.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -196,4 +194,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-how-to-safely-extract-youtube-audio-a-study-of-3-techniques/"><u>[Updated] 2024 Approved How to Safely Extract YouTube Audio A Study of 3 Techniques</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-breaking-down-t-series-income-mechanism-on-youtube-for-2024/"><u>[Updated] Breaking Down T-Series Income Mechanism on YouTube for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-cinematic-brilliance-in-motion-kinemaster-techniques-for-2024/"><u>[Updated] Cinematic Brilliance in Motion Kinemaster Techniques for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-leaders-in-virtual-marvel-universe-creation/"><u>[Updated] In 2024, Leaders in Virtual Marvel Universe Creation</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/10-best-webcam-recorders-windows-10/"><u>10 Best Webcam Recorders Windows 10</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-navigating-to-youtubes-video-editor-interface/"><u>2024 Approved Navigating to YouTube's Video Editor Interface</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024s-video-mastery-in-high-definition-cameras/"><u>2024'S Video Mastery in High-Definition Cameras</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-mastering-youtube-live-imagery-a-comprehensive-overview/"><u>In 2024, Mastering YouTube Live Imagery A Comprehensive Overview</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/quick-guide-to-converting-iso-files-into-movies-mov-on-your-apple-computer/"><u>Quick Guide to Converting ISO Files Into Movies (MOV) on Your Apple Computer</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/by-step-guide-to-crafting-youtube-splitscreen-content-for-2024/"><u>Step-by-Step Guide to Crafting YouTube Splitscreen Content for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/the-ultimate-guide-to-honor-magic-6-lite-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>The Ultimate Guide to Honor Magic 6 Lite Pattern Lock Screen Everything You Need to Know</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-10-best-spy-watches-for-your-xiaomi-redmi-note-12-pro-4g-drfone-by-drfone-virtual-android/"><u>Top 10 Best Spy Watches For your Xiaomi Redmi Note 12 Pro 4G | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-a-non-functioning-headphone-port-on-your-laptop-solved/"><u>Troubleshooting a Non-Functioning Headphone Port on Your Laptop - Solved!</u></a></li>
+</ul></div>
 

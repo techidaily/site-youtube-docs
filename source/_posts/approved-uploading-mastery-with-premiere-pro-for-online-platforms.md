@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Uploading Mastery with Premiere Pro for Online Platforms\""
-date: 2024-12-01T17:50:16.748Z
-updated: 2024-12-07T18:16:58.293Z
+date: 2024-12-11T17:58:50.546Z
+updated: 2024-12-13T19:03:47.741Z
 tags:
   - ai video
   - ai youtube
@@ -46,6 +46,10 @@ thumbnail: https://thmb.techidaily.com/9b9d2e5e3221cfe29f11fdae3e34a8712951d1bbc
 
 ![exportdialogue](https://images.wondershare.com/multimedia/exportdialogue.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  To create your Master Copy, simply select the first option of 'Match Sequence Settings', this exports a file that is of the same quality as your original footage, essentially producing a digital copy of the work for archiving before anything else is done.
 
  With you work safe and secure it is now time to look at ensuring the project is suitable for YouTube. With our sequence selected in the Timeline or Project Panel again, we go through the same **File > Export > Media** path to bring up the media export dialogue as before.
@@ -57,7 +61,7 @@ thumbnail: https://thmb.techidaily.com/9b9d2e5e3221cfe29f11fdae3e34a8712951d1bbc
 ![youtube-recommended-settings](https://images.wondershare.com/multimedia/youtube-recommended-settings.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  We can also see further recommended settings in this screenshot that will be covered later.
@@ -72,10 +76,6 @@ thumbnail: https://thmb.techidaily.com/9b9d2e5e3221cfe29f11fdae3e34a8712951d1bbc
 
 ![choosing-format](https://images.wondershare.com/multimedia/choosing-format.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Once you select  you can check the 'output name' field and see that premiere is automatically set the output file to .mp4 which is exactly what we need.
 
 #### 4\. Preset
@@ -83,6 +83,10 @@ thumbnail: https://thmb.techidaily.com/9b9d2e5e3221cfe29f11fdae3e34a8712951d1bbc
  The next field we come to is the 'Preset' dropdown menu. This is a major help to most people, as Adobe have very kindly included large numbers of presets to quickly adapt video settings to suit specific uses. They vary depending on the exact version of Premiere you are using, and each format type does have its own list of presets,  as we can see has a large number for YouTube, but also has many presets for specific devices (presets for iPad, Kindle, Nook, various other tablets and phones, Vimeo and a host of others) to make getting the right settings that bit easier for us.
 
 ![presets](https://images.wondershare.com/multimedia/presets.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  It is important here to select the correct preset from the various YouTube options. You want to select the resolution and frame rate that match your source file, for the best results. So, if your source file is 1080p with a frame rate of 29.97 fps then that is the YouTube setting you would select.
 
@@ -116,28 +120,24 @@ thumbnail: https://thmb.techidaily.com/9b9d2e5e3221cfe29f11fdae3e34a8712951d1bbc
 
 ![upload-menu](https://images.wondershare.com/multimedia/upload-menu.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  You can either drag your file into the window or click on it to open a standard file browser to locate the desired file, click and the upload will begin. The dropdown underneath allows you to set the video as Public, Unlisted or Private. You can change this at any time once the video is uploaded as well.
 
  This opens the upload progress window, where you can add in a name, description and tags as well as add the video to a playlist or adjust the privacy settings as the video is uploading.
 
 ![upload-progress](https://images.wondershare.com/multimedia/upload-progress.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Once the upload as finished, you can do final adjustments to settings and choose a thumbnail for the video. The final step is to click the 'Publish' button and your video will be processed and go live.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Benjamin Arango
@@ -161,18 +161,18 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/tep-by-step-validating-your-online-identity-on-youtube/"><u>[New] Step by Step Validating Your Online Identity on YouTube</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-unlock-your-youtube-potential-expert-tips-on-writing-video-outlines/"><u>[Updated] 2024 Approved Unlock Your YouTube Potential Expert Tips on Writing Video Outlines</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-effortless-snapchat-integration-mac-tips-and-tricks/"><u>[Updated] Effortless Snapchat Integration Mac Tips & Tricks</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-prime-guidelines-youtube-respect-and-usage-for-2024/"><u>[Updated] Prime Guidelines YouTube Respect & Usage for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-the-path-to-proficiency-mastering-gif-sharing-on-snapchat/"><u>[Updated] The Path to Proficiency Mastering Gif Sharing on Snapchat</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-worlds-highest-paying-streamer-for-2024/"><u>[Updated] World's Highest Paying Streamer for 2024</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-send-and-fake-live-location-on-facebook-messenger-of-your-itel-p55t-drfone-by-drfone-virtual-android/"><u>How to Send and Fake Live Location on Facebook Messenger Of your Itel P55T | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-hero5-black-vs-yi-4k-which-takes-the-crown-in-action-cam-war/"><u>In 2024, Hero5 Black Vs. Yi 4K Which Takes the Crown in Action Cam War?</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-step-by-step-webcam-recording-on-hp-systems/"><u>In 2024, Step-by-Step Webcam Recording on HP Systems</u></a></li>
-<li><a href="https://win-wonderful.techidaily.com/master-the-art-of-fixing-tech-glitches-tips-from-yl-software-experts/"><u>Master the Art of Fixing Tech Glitches: Tips From YL Software Experts</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/step-by-step-tutorial-for-opening-rar-files-with-a-mac-computer/"><u>Step-by-Step Tutorial for Opening RAR Files with a Mac Computer</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/top-apps-and-online-tools-to-track-honor-x50i-phone-withwithout-imei-number-by-drfone-android/"><u>Top Apps and Online Tools To Track Honor X50i Phone With/Without IMEI Number</u></a></li>
-<li><a href="https://solve-news.techidaily.com/winx-hd-video-converter-pro-the-top-free-download-for-high-definition-video-transformation-and-youtube-downloading/"><u>WinX HD Video Converter Pro: The Top Free Download for High-Definition Video Transformation & YouTube Downloading</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-capturing-dark-scenes-with-iphone-pros-for-2024/"><u>[New] Capturing Dark Scenes with iPhone Pros for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-avoid-the-quake-optimal-tripod-placement-for-stellar-vlogs/"><u>[New] In 2024, Avoid the Quake Optimal Tripod Placement for Stellar Vlogs</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-personalize-your-tune-list-a-step-by-step-guide-to-youtube-playlist-creation/"><u>[New] In 2024, Personalize Your Tune List A Step-by-Step Guide to YouTube Playlist Creation</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-top-10-guidelines-for-breaking-through-cover-art-for-2024/"><u>[Updated] Top 10 Guidelines for Breaking Through Cover Art for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-youtubers-essential-camera-guidebook/"><u>[Updated] YouTubers' Essential Camera Guidebook</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-unlock-video-insights-mastering-youtube-statistics-with-social-blade/"><u>2024 Approved Unlock Video Insights Mastering YouTube Statistics with Social Blade</u></a></li>
+<li><a href="https://location-fake.techidaily.com/4-methods-to-turn-off-life-360-on-xiaomi-13t-pro-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>4 Methods to Turn off Life 360 On Xiaomi 13T Pro without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-intel-thunderbolt-drivers-today-fast-setup-and-installation/"><u>Download Intel Thunderbolt Drivers Today – Fast Setup and Installation!</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/download-media-player-classic-no-cost-version-compatible-with-windows-10-x64-architecture/"><u>Download Media Player Classic - No Cost Version Compatible with Windows 10 X64 Architecture</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-instant-photo-browser-for-modern-windows/"><u>In 2024, Instant Photo Browser for Modern Windows</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-videosnapper-quickly-download-twitter-content-on-iphone/"><u>In 2024, VideoSnapper Quickly Download Twitter Content on iPhone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/r-youtube-ad-creation-with-no-cost-guide-inside/"><u>Master YouTube Ad Creation with No Cost – Guide Inside!</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-2024-approved-innovations-in-audio-production-adding-subtle-fading-techniques-to-your-toolkit/"><u>Updated 2024 Approved Innovations in Audio Production Adding Subtle Fading Techniques to Your Toolkit</u></a></li>
 </ul></div>
 

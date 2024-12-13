@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Vlog Confidently Like Popular YouTubers, In 2024"
-date: 2024-12-03T18:19:59.868Z
-updated: 2024-12-07T19:04:20.687Z
+date: 2024-12-07T16:50:42.518Z
+updated: 2024-12-13T20:12:30.190Z
 tags:
   - ai video
   - ai youtube
@@ -55,6 +55,10 @@ Once all the pieces of the story are captured — including your storytelling, b
 
 Take a look at this example from [Tiffany Alvord](https://www.youtube.com/user/TiffanyAlvord) and notice how there are jump cuts both to skip information that can be assumed by the audience and add the tension to the story she’s telling.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **3\. Surprise and Delight Your Audience**
 
 There is a saying that a great ending to a story is that it is [surprising, yet inevitable](https://www.huffingtonpost.com/david-kudler/writing-the-inevitable-bu%5Fb%5F1630419.html).
@@ -62,10 +66,6 @@ There is a saying that a great ending to a story is that it is [surprising, yet 
 The ending needs to be justified even if there is a twist. Everything before that had worked to build up the tension and when it concludes it needs to be logical. However, the ending cannot be something that the audience can guess. Remember those mystery movies where you know who the murderer is after the first few scenes? Yeah… those aren’t satisfying. A good story ends with a surprise, and with everything prior leading up to it.
 
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **4\. Be Inviting**
 
@@ -76,7 +76,7 @@ Unlike being invited to a party, there is no obligation when it comes to YouTube
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **5\. Compose the Shot**
@@ -92,7 +92,7 @@ Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UC
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **6\. Be Prepared**
@@ -106,7 +106,7 @@ Good preparation includes having all your gear ready for filming when you need i
 Take a look at [Ashley Nichole](https://www.youtube.com/channel/UC8GTe3Wn7dtWXf3B%5Fv5gm9w) in this vlog and notice that although she sounds spontaneous, it is also evident that she knows what she is going to talk about next.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **7\. Be Expressive**
@@ -118,6 +118,10 @@ If you speak on camera in a monotone voice, you are not being expressive. Your f
 Consider your audience: they are coming home from school or work, where there were classes and meetings, and the last thing they want to watch is a video of your speaking without energy.
 
 Want to see a vlogger that is awesome at being expressive on camera? Check out [Emma Chamberlain](https://www.youtube.com/channel/UC78cxCAcp7JfQPgKxYdyGrg), if you haven’t already. Every word she says in her video is layered with emotion. We know exactly how she feels.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **8\. Stay Organized**
 
@@ -145,10 +149,6 @@ If you want to find a video editing solution that empowers your imagination and 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -170,24 +170,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-mastering-sierras-icloud-drive-accessibility/"><u>[New] Mastering Sierra’s iCloud Drive Accessibility</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/remier-top-selections-affordable-sbd-applications-for-2024/"><u>[New] Premier Top Selections Affordable SBD Applications for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-beyond-vidcon-a-guide-to-the-most-important-youtube-events/"><u>[Updated] Beyond VidCon - A Guide to the Most Important YouTube Events</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-multiplatform-iptv-encoding-for-2024/"><u>[Updated] Multiplatform IPTV Encoding for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/91757373-updated-step-by-written-by-a-language-model-ai-i-can-help-rewrite-the-paragraph-into-an-academic-style-but-please-note-that-my-responses-may-not-have-the-sa/"><u>[Updated] Step-By Written by a Language Model AI. I Can Help Rewrite the Paragraph Into an Academic Style, but Please Note that My Responses May Not Have the Same Depth as Those Written by Subject Matter Experts. Here Is a Revised Version For 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-subtle-techniques-make-unwanted-backgrounds-disappear-in-videos/"><u>[Updated] Subtle Techniques Make Unwanted Backgrounds Disappear in Videos</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/automated-file-disposal-in-windows-using-the-advanced-setup-of-stellar-shredder-edition/"><u>Automated File Disposal in Windows Using the Advanced Setup of Stellar Shredder Edition</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/como-cambiar-tu-foto-del-perfil-de-windows-a-una-version-mas-compacta-en-su-unidad-local/"><u>Cómo Cambiar Tu Foto Del Perfil De Windows a Una Versión Más Compacta en Su Unidad Local</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/easy-instructions-for-connecting-a-new-receiver-to-your-logitech-bluetooth-mouse/"><u>Easy Instructions for Connecting a New Receiver to Your Logitech Bluetooth Mouse</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Tecno Camon 30 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://iphone-location.techidaily.com/hide-location-on-apple-iphone-14-pro-and-android-without-others-knowing-drfone-by-drfone-virtual-ios/"><u>Hide location on Apple iPhone 14 Pro and Android without others knowing | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-honor-magic-6-lite-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Honor Magic 6 Lite | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-snappy-fortnite-visuals-in-no-time/"><u>In 2024, Snappy Fortnite Visuals in No Time</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/managing-a-day-job-and-your-thriving-youtube-channel/"><u>Managing a Day Job and Your Thriving YouTube Channel</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/tum-masters-youtubes-freshly-watched-hits-for-2024/"><u>Momentum Masters Youtube’s Freshly Watched Hits for 2024</u></a></li>
-<li><a href="https://win11.techidaily.com/tackling-unexpected-system-call-issues-on-windows/"><u>Tackling Unexpected System Call Issues on Windows</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ditors-toolkit-elevating-your-youtube-videos-via-windows-pc/"><u>The Editor's Toolkit Elevating Your YouTube Videos via Windows PC</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/5-hilarious-youtube-hubs-for-your-next-vacation-for-2024/"><u>Top 15 Hilarious YouTube Hubs for Your Next Vacation for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/unlocking-the-skies-the-unbeatable-quality-of-microsoft-flight-simulator-x-gold-examined/"><u>Unlocking the Skies: The Unbeatable Quality of Microsoft Flight Simulator X (Gold) Examined</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-breakthrough-backdoor-facebook-access-restored-for-2024/"><u>[New] Breakthrough Backdoor Facebook Access Restored for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/egal-ways-to-boost-your-video-watch-count-responsibly/"><u>[New] Legal Ways to Boost Your Video Watch Count Responsibly</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/peedy-sketching-techniques-for-fortnite-tiles/"><u>[New] Speedy Sketching Techniques for Fortnite Tiles</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-unleash-focus-the-pros-guide-to-distraction-free-google-meet-sessions-for-2024/"><u>[New] Unleash Focus The Pro's Guide to Distraction-Free Google Meet Sessions for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/91928145-updated-2024-approved-how-to-make-a-youtube-subscribe-link-easy/"><u>[Updated] 2024 Approved How to Make a YouTube Subscribe Link - Easy</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-premier-selector-exclusive-app-selection-for-your-videos/"><u>[Updated] 2024 Approved Premier Selector Exclusive App Selection for Your Videos</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-save-your-fb-pages-download-8-best-tools-online-and-free/"><u>[Updated] 2024 Approved Save Your FB Pages Download 8 Best Tools Online & Free</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-excellence-in-efficiency-top-5-chromes-for-vids-from-fb/"><u>2024 Approved Excellence in Efficiency Top 5 Chromes for Vids From FB</u></a></li>
+<li><a href="https://techtrends.techidaily.com/comprehensive-step-by-step-tutorial-on-recording-google-meet-sessions-with-movavi/"><u>Comprehensive Step-by-Step Tutorial on Recording Google Meet Sessions with Movavi</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-a-sturdy-cost-effective-solution-with-the-omoton-t1-tablet-stand/"><u>Experience a Sturdy, Cost-Effective Solution with the Omoton T1 Tablet Stand</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-vivo-y200e-5g-frp-in-3-different-ways-by-drfone-android/"><u>How To Bypass Vivo Y200e 5G FRP In 3 Different Ways</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-verdict-on-microsofts-dual-screen-phone-expensive-flawed-and-frustrating/"><u>The Verdict on Microsoft's Dual-Screen Phone: Expensive, Flawed & Frustrating</u></a></li>
 </ul></div>
 

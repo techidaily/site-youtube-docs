@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Indulge in 9 Holiday Blockbusters  Free Online Christmas Viewing\""
-date: 2024-12-05T16:37:30.636Z
-updated: 2024-12-07T17:48:05.045Z
+date: 2024-12-06T16:46:38.799Z
+updated: 2024-12-13T17:15:33.592Z
 tags:
   - ai video
   - ai youtube
@@ -32,7 +32,7 @@ If you are looking for Christmas entertainment this season you may be quick to l
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1. The nutcracker 1990
@@ -44,7 +44,7 @@ The Nutcracker is a holiday classic that many people seek out every year on the 
 A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and starring Lee Majors and Dolly Parton. The full musical fairy tale can be found online on YouTube and it's about a country singer who is trying to spend a quiet Christmas holiday at home. She suddenly becomes involved with a mysterious mountain man, an evil witch and is forced to protect seven orphans over the holidays. This film can be found at:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3. Ernest saves Christmas
@@ -52,32 +52,32 @@ A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and sta
 This film from 1989 features Jim Varney and his most famous character Ernest in a holiday Christmas movie that is an instant classic. This film is very funny and a favorite amongst some of the Ernest films for many. This Christmas movie from 1989 can be found at:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4. A Christmas story
 
 A Christmas story has long been one of the favorite Christmas movies for many families. In this film from 1983 we travel back in time to a traditional 1940s Christmas. In this film we follow the nine-year-old Ralphie who is looking for the famous red Ryder BB gun for Christmas and will stop at absolutely nothing to get it. A Christmas story can be found at:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 5. Richie Rich's Christmas wish
 
 In this film from 1998 we hear the story of the richest kid in the world on Christmas. In this film we see the richest in the world wishing that he had never been born with the wish coming true. Richie needs to find himself a new wishing machine and a way out of the parallel universe he gets stuck in to get back to his family. You can find this film at:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 6. On the second day of Christmas
 
 This film stars the hulk Mark Ruffalo in one of his earlier roles as a store employee who catches a con woman trying to steal from a department store on Christmas. His character agrees to be responsible for the con woman and her niece over the holidays to prevent them from staying with social services. A romance develops! This 1997 film can be found at:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 7. Santa Who?
 
 Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday classic Santa suffers a severe case of amnesia on Christmas Eve and needs to recover for Christmas day in order to make it through and deliver presents to all of the good children of the world. See if Santa gets his Christmas memories back by watching Santa Who here:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 8. A Christmas Carol
 
@@ -110,19 +110,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-chromebooks-best-vocal-transformers-the-top-5-chrome-apps-for-2024/"><u>[New] Chromebook's Best Vocal Transformers The Top 5 Chrome Apps for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ree-10-best-intro-maker-apps-for-iphone-and-android/"><u>[New] FREE 10 Best Intro Maker Apps for iPhone and Android</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-ryans-wealth-wonders-a-kids-fortune-in-the-streaming-space/"><u>[New] In 2024, Ryan’s Wealth Wonders A Kid's Fortune in the Streaming Space</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-transformative-content-blocks-enhanced-youtube-decks/"><u>[New] In 2024, Transformative Content Blocks Enhanced Youtube Decks</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/implicity-in-video-creation-a-guide-to-10-easy-to-make-youtube-videos-for-2024/"><u>[New] Simplicity in Video Creation A Guide to 10 Easy-to-Make YouTube Videos for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-freeloading-without-breaking-your-budget-on-aes-for-2024/"><u>[Updated] Freeloading Without Breaking Your Budget on AEs for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-discover-7-premier-android-apps-to-banish-ads/"><u>[Updated] In 2024, Discover 7 Premier Android Apps to Banish Ads</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-uniting-realms-a-comparative-study-of-mr-ar-and-vr-technologies/"><u>[Updated] Uniting Realms A Comparative Study of MR, AR, and VR Technologies</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/2-ways-to-monitor-apple-iphone-12-pro-max-activity-drfone-by-drfone-virtual-ios/"><u>2 Ways to Monitor Apple iPhone 12 Pro Max Activity | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-vivo-t2x-5g-drfone-by-drfone-virtual-android/"><u>Apply These Techniques to Improve How to Detect Fake GPS Location On Vivo T2x 5G | Dr.fone</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/get-your-sades-headset-drivers-for-windows-trustworthy-and-risk-free-downloads/"><u>Get Your Sades Headset Drivers for Windows: Trustworthy and Risk-Free Downloads</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-can-tecno-pop-8mirror-share-to-pc-drfone-by-drfone-android/"><u>How Can Tecno Pop 8Mirror Share to PC? | Dr.fone</u></a></li>
-<li><a href="https://common-error.techidaily.com/how-to-fix-windows-10-kb4056892-installation-issues-a-comprehensive-guide/"><u>How to Fix Windows 10 KB4056892 Installation Issues: A Comprehensive Guide</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/be-studios-pathway-to-high-quality-videography/"><u>YouTube Studio's Pathway to High-Quality Videography</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-advanced-tactics-for-maximizing-the-use-of-virtual-boards-during-zoom-sessions-desktopiosandroid/"><u>[New] 2024 Approved Advanced Tactics for Maximizing the Use of Virtual Boards During Zoom Sessions (Desktop/iOS/Android)</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-apex-series-select-7-top-fps-games-for-2024/"><u>[New] Apex Series Select 7 Top FPS Games for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/irect-download-destiny-10-online-tool-reviewers-choice-for-2024/"><u>[New] Direct Download Destiny #10 Online Tool Reviewers' Choice for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-inside-look-at-youtubes-creator-workshop-space/"><u>[New] In 2024, Inside Look at YouTube's Creator Workshop Space</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/tep-by-step-guide-to-add-clearer-subtitles-on-youtube-for-2024/"><u>[New] Step-By-Step Guide to Add Clearer Subtitles on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-flawless-soundscapes-in-the-world-of-social-media-videos/"><u>[Updated] 2024 Approved Flawless Soundscapes in the World of Social Media Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-youtube-to-gif-a-simple-no-download-guide-for-video-creators/"><u>[Updated] 2024 Approved YouTube-to-GIF A Simple, No-Download Guide for Video Creators</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-mastery-in-minimalism-essential-thumbnail-font-selection/"><u>[Updated] In 2024, Mastery in Minimalism Essential Thumbnail Font Selection</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-monetizing-video-content-8-essentials-for-novices/"><u>[Updated] In 2024, Monetizing Video Content - 8 Essentials for Novices</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-about-oppo-find-x6-pro-frp-bypass-by-drfone-android/"><u>In 2024, About Oppo Find X6 Pro FRP Bypass</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-in-depth-explanation-implementing-cc-license-types/"><u>In 2024, In-Depth Explanation Implementing CC License Types</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-understanding-and-proficiently-implementing-cc-rights/"><u>In 2024, Understanding and Proficiently Implementing CC Rights</u></a></li>
+<li><a href="https://article-tips.techidaily.com/masterpieces-in-film-script-writing-by-genre-for-2024/"><u>Masterpieces in Film Script Writing, By Genre for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/solving-gobi-map-fatal-errors-in-black-mesa-ut-a-guide/"><u>Solving Gobi Map Fatal Errors in Black Mesa UT: A Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-essential-guide-why-adding-thumbsticks-grips-to-all-your-controllers-enhances-playtime/"><u>The Essential Guide: Why Adding Thumbsticks Grips to All Your Controllers Enhances Playtime</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-evolution-of-nlp-comparing-googles-bert-to-microsofts-gpt-models/"><u>The Evolution of NLP: Comparing Google's BERT to Microsoft's GPT Models</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/the-ultimate-guide-to-bypassing-icloud-activation-lock-on-apple-iphone-11-pro-by-drfone-ios/"><u>The Ultimate Guide to Bypassing iCloud Activation Lock on Apple iPhone 11 Pro</u></a></li>
 </ul></div>
 

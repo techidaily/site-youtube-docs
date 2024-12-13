@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Upload Made Easy  Your Device-Based Guide for YouTube Shorts for 2024\""
-date: 2024-08-28T17:12:35.326Z
-updated: 2024-08-29T17:12:35.326Z
+date: 2024-12-07T19:34:14.405Z
+updated: 2024-12-13T18:03:25.285Z
 tags:
   - ai video
   - ai youtube
@@ -82,6 +82,10 @@ The process of **uploading YouTube Shorts** from the mobile app is fairly simple
 
 **Note:** The guidelines for creating and uploading short videos to YouTube remain the same, regardless of the platform or device you use.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Method 1: Upload an Existing Short Video
 
 **Note:** Make sure to have the target video on the smartphone and that you have downloaded, installed, and signed in to the YouTube app before proceeding.
@@ -91,13 +95,18 @@ The process of **uploading YouTube Shorts** from the mobile app is fairly simple
 ![Select a Video to Upload as Shorts](https://images.wondershare.com/filmora/article-images/select-shorts-videos-to-upload-on-youtube.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 On your Android or iOS smartphone, launch the YouTube app, tap the **+** (**Create**) icon from the bottom, tap **Create a Short** from the **Create** box that pops up from the bottom, tap **Upload** from the bottom-right corner of the next screen, and select and upload a short, 60 seconds video recorded in portrait orientation from your device’s storage to the app.
 
 #### Step 2: Add Details
 
 ![add details to Shorts video](https://images.wondershare.com/filmora/article-images/add-details-to-youtube-shrots-video.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the bottom-left corner to add a background music and caption to the video respectively, and tap **NEXT** from the top-right corner. On the next screen, enter a name for the video in the **Title** field along with the **#Shorts** tag, and tap **Select audience** to choose your preferred audience.
 
@@ -105,9 +114,6 @@ On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the b
 
 Finally tap **UPLOAD** from the top-right corner to upload the short video on YouTube.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Method 2: Record a Short Video and Upload
 
 **Step 1:** Record Shorts Video
@@ -119,13 +125,9 @@ Please note you will not see the **Create a Short** option if you are outsides o
 ![ Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
 
 <!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 In the YouTube app, tap the **+** (**Add**) button and select **Create** **a Short**. Please note you will not see the **Create a Short** option if you are outsides of India.
 
 Next, use the **Speed** and **Timer** icons to set the speed of the video and the countdown timer duration before the app starts recording the video when you press the **Record** button respectively.
@@ -143,8 +145,9 @@ On the **Add details** window, enter a name for the video along with the **#Shor
 **[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)**
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 **Conclusion**
 
 Learning the process of **how to post short videos on YouTube** is fairly simple as long as you have the video recorded in the portrait orientation, it is up to 60 seconds long, and contains the ‘#Shorts’ tag (without quotes) in the title or description. The good thing is, if you don’t have access to the YouTube app on your smartphone, the method for **how to upload short video on YouTube** explained in the first section can be followed while using your desktop computer.
@@ -152,27 +155,22 @@ Learning the process of **how to post short videos on YouTube** is fairly simple
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -181,4 +179,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-a-compreous-guide-to-recording-and-securing-periscope-videos/"><u>[New] 2024 Approved A Compreous Guide to Recording & Securing Periscope Videos</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-building-a-following-with-captivating-instagram-reels/"><u>[New] 2024 Approved Building a Following with Captivating Instagram Reels</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-unparalleled-vr-game-setups-top-8-edition/"><u>[New] In 2024, Unparalleled VR Game Setups Top 8 Edition</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-youtube-clips-captured-a-no-cost-screencasting-tutorial/"><u>[New] In 2024, YouTube Clips, Captured A No-Cost Screencasting Tutorial</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/he-role-of-analytics-in-amplifying-your-youtube-presence/"><u>[New] The Role of Analytics in Amplifying Your YouTube Presence</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-twitter-gif-mastery-on-your-desktop/"><u>[Updated] 2024 Approved Twitter Gif Mastery on Your Desktop</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-expand-your-horizons-with-a-bundle-of-youtube-videos/"><u>[Updated] In 2024, Expand Your Horizons With A Bundle of YouTube Videos</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-implementing-invisible-sound-transitions-in-premiere-pro/"><u>2024 Approved Implementing Invisible Sound Transitions in Premiere Pro</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210198730-9780760361184-in-focus-palmistry/"><u>In Focus Palmistry | Free Book</u></a></li>
+<li><a href="https://windows11.techidaily.com/overcoming-audacity-audio-error-in-windows-1111/"><u>Overcoming Audacity Audio Error in Windows 11/11</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ate-list-10-costless-video-caption-extractors/"><u>Ultimate List 10 Costless Video Caption Extractors</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/value-heat-dispersion-faceoff-in-depth-review-of-the-frozen-notte-and-aqua-elite-360-ev3-models-under-65/"><u>Value Heat Dispersion Faceoff: In-Depth Review of the Frozen Notte and Aqua Elite 360 eV3 Models Under $65</u></a></li>
+</ul></div>
 
