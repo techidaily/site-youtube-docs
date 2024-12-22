@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Vlog Confidently Like Popular YouTubers, In 2024"
-date: 2024-12-07T16:50:42.518Z
-updated: 2024-12-13T20:12:30.190Z
+date: 2024-12-18T18:52:04.340Z
+updated: 2024-12-22T22:06:55.486Z
 tags:
   - ai video
   - ai youtube
@@ -35,6 +35,10 @@ When we watch the most popular YouTubers, the traits that make them successful a
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **1\. Be Authentic**
 
 People opt to watch vlogs because they want to see something real.
@@ -44,6 +48,10 @@ Vlogging is about honesty, telling a story that is truthful and showing your per
 There will be an urge for you to mimic other vloggers, talking and acting the way they do, but savvy YouTube viewers will be able to see your faux personality pretty quickly.
 
 Don’t focus on your image, but instead focus on your voice. What makes you different? That is how you will build a proper reputation.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **2\. Tell A Story**
 
@@ -56,7 +64,7 @@ Once all the pieces of the story are captured — including your storytelling, b
 Take a look at this example from [Tiffany Alvord](https://www.youtube.com/user/TiffanyAlvord) and notice how there are jump cuts both to skip information that can be assumed by the audience and add the tension to the story she’s telling.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **3\. Surprise and Delight Your Audience**
@@ -76,7 +84,7 @@ Unlike being invited to a party, there is no obligation when it comes to YouTube
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **5\. Compose the Shot**
@@ -92,7 +100,7 @@ Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UC
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **6\. Be Prepared**
@@ -105,10 +113,6 @@ Good preparation includes having all your gear ready for filming when you need i
 
 Take a look at [Ashley Nichole](https://www.youtube.com/channel/UC8GTe3Wn7dtWXf3B%5Fv5gm9w) in this vlog and notice that although she sounds spontaneous, it is also evident that she knows what she is going to talk about next.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **7\. Be Expressive**
 
 Remember those teachers that drone on and on, without adding any expression or passion to what they are lecturing? While they might have been perfectly suitable as teachers, they wouldn’t make good vloggers.
@@ -118,10 +122,6 @@ If you speak on camera in a monotone voice, you are not being expressive. Your f
 Consider your audience: they are coming home from school or work, where there were classes and meetings, and the last thing they want to watch is a video of your speaking without energy.
 
 Want to see a vlogger that is awesome at being expressive on camera? Check out [Emma Chamberlain](https://www.youtube.com/channel/UC78cxCAcp7JfQPgKxYdyGrg), if you haven’t already. Every word she says in her video is layered with emotion. We know exactly how she feels.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **8\. Stay Organized**
 
@@ -170,17 +170,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-breakthrough-backdoor-facebook-access-restored-for-2024/"><u>[New] Breakthrough Backdoor Facebook Access Restored for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/egal-ways-to-boost-your-video-watch-count-responsibly/"><u>[New] Legal Ways to Boost Your Video Watch Count Responsibly</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/peedy-sketching-techniques-for-fortnite-tiles/"><u>[New] Speedy Sketching Techniques for Fortnite Tiles</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-unleash-focus-the-pros-guide-to-distraction-free-google-meet-sessions-for-2024/"><u>[New] Unleash Focus The Pro's Guide to Distraction-Free Google Meet Sessions for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/91928145-updated-2024-approved-how-to-make-a-youtube-subscribe-link-easy/"><u>[Updated] 2024 Approved How to Make a YouTube Subscribe Link - Easy</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-premier-selector-exclusive-app-selection-for-your-videos/"><u>[Updated] 2024 Approved Premier Selector Exclusive App Selection for Your Videos</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-save-your-fb-pages-download-8-best-tools-online-and-free/"><u>[Updated] 2024 Approved Save Your FB Pages Download 8 Best Tools Online & Free</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-excellence-in-efficiency-top-5-chromes-for-vids-from-fb/"><u>2024 Approved Excellence in Efficiency Top 5 Chromes for Vids From FB</u></a></li>
-<li><a href="https://techtrends.techidaily.com/comprehensive-step-by-step-tutorial-on-recording-google-meet-sessions-with-movavi/"><u>Comprehensive Step-by-Step Tutorial on Recording Google Meet Sessions with Movavi</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/experience-a-sturdy-cost-effective-solution-with-the-omoton-t1-tablet-stand/"><u>Experience a Sturdy, Cost-Effective Solution with the Omoton T1 Tablet Stand</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-vivo-y200e-5g-frp-in-3-different-ways-by-drfone-android/"><u>How To Bypass Vivo Y200e 5G FRP In 3 Different Ways</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-verdict-on-microsofts-dual-screen-phone-expensive-flawed-and-frustrating/"><u>The Verdict on Microsoft's Dual-Screen Phone: Expensive, Flawed & Frustrating</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/deal-screen-capture-device-for-effective-video-sharing/"><u>[New] Ideal Screen Capture Device for Effective Video Sharing</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-exploring-per-view-money-flow-among-youtubers/"><u>[New] In 2024, Exploring Per-View Money Flow Among YouTubers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/he-beginners-guide-to-camera-lenses-in-filmmaking-and-vlogging/"><u>[New] The Beginner's Guide to Camera Lenses in Filmmaking & Vlogging</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-a-comprehensive-list-of-8-authentic-propagation-tools/"><u>[Updated] A Comprehensive List of 8 Authentic Propagation Tools</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-analyzing-huawei-p10s-impact-on-mobile-photography-trends/"><u>[Updated] Analyzing Huawei P10's Impact on Mobile Photography Trends</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-in-2024-cutting-edge-tiktok-techniques-for-new-video-borders/"><u>[Updated] In 2024, Cutting-Edge TikTok Techniques for New Video Borders</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-streamline-your-content-transform-videos-into-playful-animation-gifs-for-2024/"><u>[Updated] Streamline Your Content Transform Videos Into Playful Animation Gifs for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/android-2024/"><u>Android動画再生最新アプリ - 2024年のベストメディアプレイヤー選び</u></a></li>
+<li><a href="https://howto.techidaily.com/app-wont-open-on-your-vivo-s18-here-are-all-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>App Wont Open on Your Vivo S18? Here Are All Fixes | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/t-conscious-broadcayers-guide-to-cheap-mics/"><u>Budget-Conscious Broadcayer's Guide to Cheap Mics</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-realme-12plus-5g-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Realme 12+ 5G | Dr.fone</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/compact-yet-powerful-the-new-apple-m4-powered-mac-mini-review-how-does-it-stack-up-against-an-apple-tv/"><u>Compact Yet Powerful: The New Apple M4-Powered Mac Mini Review – How Does It Stack Up Against An Apple TV?</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-3-easy-ways-to-factory-reset-a-locked-iphone-7-plus-without-itunes-by-drfone-ios/"><u>In 2024, 3 Easy Ways to Factory Reset a Locked iPhone 7 Plus Without iTunes</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-how-to-add-timestamp-on-youtube-video-link-desktop-and-mobile/"><u>In 2024, How to Add Timestamp on YouTube Video Link? [Desktop and Mobile]</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-honor-100-pro-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Honor 100 Pro to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-soundwave-success-adding-audio-to-your-instastory/"><u>In 2024, Soundwave Success Adding Audio to Your InstaStory</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-time-reversal-tactics-unique-youtube-video-experiences/"><u>In 2024, Time-Reversal Tactics Unique YouTube Video Experiences</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-fake-gps-location-pro-and-is-it-good-on-honor-magic-v2-drfone-by-drfone-virtual-android/"><u>In 2024, What is Fake GPS Location Pro and Is It Good On Honor Magic V2? | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/er-content-creators-colloquy-for-2024/"><u>Premier Content Creators Colloquy for 2024</u></a></li>
 </ul></div>
 

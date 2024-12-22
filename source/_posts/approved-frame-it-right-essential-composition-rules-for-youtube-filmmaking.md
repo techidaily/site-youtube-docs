@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Frame It Right  Essential Composition Rules for YouTube Filmmaking\""
-date: 2024-08-28T17:07:57.152Z
-updated: 2024-08-29T17:07:57.152Z
+date: 2024-12-16T16:22:49.000Z
+updated: 2024-12-22T20:57:38.828Z
 tags:
   - ai video
   - ai youtube
@@ -27,6 +27,10 @@ thumbnail: https://thmb.techidaily.com/d00f8f89497ceffd0abb3141cb4e3658817be8d65
  We have mentioned before about [the equipment you should have to start your YouTube video shooting](https://tools.techidaily.com/wondershare/filmora/download/), however, being methodical in your approach to the video making process and knowing exactly what and where you are going to stage and record will increase the quality of the content. Focus on the technical aspects of your YouTube video before you actually start shooting and strive to be well prepared for all the challenges a day on the set may bring.
 
  These and other useful tips may help you make better videos for your YouTube channel, so let's explore different ways of improving your video making skills.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 10 Tips for Shooting Better YouTube Videos
 
@@ -60,6 +64,10 @@ thumbnail: https://thmb.techidaily.com/d00f8f89497ceffd0abb3141cb4e3658817be8d65
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Posting vertically oriented videos to your YouTube channel will make you look unprofessional because portrait mode is never used for capturing videos. YouTubers who record their videos with Smartphones are more likely to fall into this trap, but all you need to do to avoid this is remember to hold the device horizontally.
 
  By switching to portrait mode, you'll be cropping the frame in a way, so you might unknowingly end up removing parts of the shot you wanted to record.
@@ -76,6 +84,10 @@ thumbnail: https://thmb.techidaily.com/d00f8f89497ceffd0abb3141cb4e3658817be8d65
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 8. Keep The Shot in Focus
 
  You can always keep the shot in focus by simply enabling the autofocus feature, but if you do so you won't be able to control where the focus is going to be. Pulling focus manually is an art that takes years to master, and you have to keep practicing it as much as you can in order to become good at it.
@@ -85,6 +97,10 @@ thumbnail: https://thmb.techidaily.com/d00f8f89497ceffd0abb3141cb4e3658817be8d65
 #### 9. Put The Camera on a Tripod
 
 ![Camera tripod ](https://images.wondershare.com/filmora/article-images/cartoni-omega-professional-tripod-system.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The footage you produce should be smooth and free of camera shakes. All video cameras pick up vibrations easily, so even the slightest movement or impact can ruin a shot. Putting the camera on a tripod is one of the best ways to stabilize the shot and avoid camera shaking.
 
@@ -108,20 +124,21 @@ thumbnail: https://thmb.techidaily.com/d00f8f89497ceffd0abb3141cb4e3658817be8d65
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -130,13 +147,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/uidelines-for-authoritative-life-lesson-videos-for-2024/"><u>[New] Guidelines for Authoritative Life Lesson Videos for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/he-ultimate-diy-guide-for-building-powerful-youtube-ad-videos/"><u>[New] The Ultimate DIY Guide for Building Powerful YouTube Ad Videos</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-no-delay-scrutinized-top-8-capture-tools/"><u>[Updated] 2024 Approved No Delay Scrutinized Top 8 Capture Tools</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-diy-filmmaking-for-youtube-personalities/"><u>[Updated] In 2024, DIY Filmmaking for YouTube Personalities</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-stepwise-guide-to-leveraging-picture-in-picture-feature-on-microsoft-edge-for-2024/"><u>[Updated] Stepwise Guide to Leveraging Picture-in-Picture Feature on Microsoft Edge for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-audit-your-channels-financial-success/"><u>2024 Approved Audit Your Channel's Financial Success</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-choosing-superior-tools-for-vocal-change-in-content-making/"><u>2024 Approved Choosing Superior Tools for Vocal Change in Content Making</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-generating-attention-grabbing-video-teasers/"><u>2024 Approved Generating Attention-Grabbing Video Teasers</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-superior-storytellers-sanctuary/"><u>2024 Approved Superior Storyteller's Sanctuary</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-vibrant-visions-a-guide-through-the-top-5-color-tvs/"><u>2024 Approved Vibrant Visions A Guide Through the Top 5 Color TVs</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/all-you-need-to-know-about-mega-greninja-for-infinix-smart-7-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Infinix Smart 7 | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/best-of-the-best-10-recorders-for-your-device-for-2024/"><u>Best of the Best #10 Recorders for Your Device for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/expert-advice-on-correcting-errors-found-when-your-pc-initiates-boot-process-post/"><u>Expert Advice on Correcting Errors Found When Your PC Initiates Boot Process (POST)</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nalized-melodies-made-easy-building-a-youtube-music-collection-on-webmobile/"><u>Personalized Melodies Made Easy Building a YouTube Music Collection on Web/Mobile</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ricoh-theta-sc2-review/"><u>Ricoh Theta SC2 Review</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/mline-your-soundscape-best-free-apps-to-download-youtube-songs-on-android/"><u>Streamline Your Soundscape Best Free Apps to Download YouTube Songs on Android</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/total-data-rehab-totans-strategies-for-stellar-data-rescue/"><u>Total Data Rehab: Totan's Strategies for Stellar Data Rescue</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
-<!-- affiliate ads end -->

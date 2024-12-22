@@ -1,7 +1,7 @@
 ---
 title: "Simplified Approach to Removing YouTube Comments with Ease"
-date: 2024-12-03T16:32:06.656Z
-updated: 2024-12-07T16:40:19.127Z
+date: 2024-12-21T21:54:27.467Z
+updated: 2024-12-22T19:39:58.111Z
 tags:
   - ai video
   - ai youtube
@@ -41,6 +41,10 @@ So how do you delete all YouTube comments? In this how-to blog, we will show you
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Delete YouTube Comments from Desktop?
 
 In this section, we will tell you how you can do it from your desktop.
@@ -53,7 +57,7 @@ In this section, we will tell you how you can do it from your desktop.
 You also have the option to report the comment or [hide the user from your channel](https://tools.techidaily.com/wondershare/filmora/download/).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Delete All YouTube Comments from Mobile?
@@ -65,10 +69,6 @@ The steps to deleting someone else’s YouTube comments from your mobile are sim
 3. Select the video from where you want to delete a comment. Scroll down to reach the desired comment.
 4. Once you reach the target comment, click on the three vertical dots at the bottom corner. There should be an option called Remove. Tap on it.
 5. This will create another dialog box on the mobile app where you have to click on Remove again to delete the comment.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How Do You Delete Your Comments from YouTube?
 
@@ -117,7 +117,7 @@ To find your History from your desktop, you need to click on the three horizonta
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Delete All Your Posted YouTube Comments?
@@ -129,10 +129,6 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
@@ -143,6 +139,10 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Final Thoughts
 
 YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
@@ -150,7 +150,7 @@ YouTube can be an unsafe place with unwanted comments everywhere. In this blog, 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -174,17 +174,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-webcamsecure-silk-screen-sticker/"><u>[New] WebCamSecure Silk Screen Sticker</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/outube-mastery-creating-quality-videos-on-phones-for-2024/"><u>[New] YouTube Mastery Creating Quality Videos on Phones for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-ar-merging-physical-and-fictional-worlds/"><u>[Updated] AR Merging Physical and Fictional Worlds</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-video-earning-excellence-mastering-youtube-monetization-anywhere/"><u>[Updated] In 2024, Video Earning Excellence Mastering YouTube Monetization Anywhere</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/diagnosing-and-repairing-inoperative-audio-ports-on-notebook-computers/"><u>Diagnosing and Repairing Inoperative Audio Ports on Notebook Computers</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/extraction-top-10-youtube-text-grabber-apps-reviewed-for-2024/"><u>Easy Extraction Top 10 YouTube Text Grabber Apps Reviewed for 2024</u></a></li>
-<li><a href="https://win-blog.techidaily.com/fixing-sluggish-streaming-on-steam-tips-and-solutions-for-better-performance/"><u>Fixing Sluggish Streaming on Steam - Tips & Solutions for Better Performance</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-enhancing-engagement-imovie-techniques-for-youtube-intros/"><u>In 2024, Enhancing Engagement IMovie Techniques for YouTube Intros</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-prime-video-editors-for-youtube-enthusiasts/"><u>In 2024, Prime Video Editors for YouTube Enthusiasts</u></a></li>
-<li><a href="https://win11.techidaily.com/overcoming-dual-app-access-to-camera-error-code-0xa00f4243/"><u>Overcoming Dual App Access to Camera (Error Code: 0XA00F4243)</u></a></li>
-<li><a href="https://techtrends.techidaily.com/step-by-step-solution-for-msvcr71dll-file-not-found-problems/"><u>Step-by-Step Solution for 'MSVCR71.DLL' File Not Found Problems</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/we-cant-sign-into-your-account-in-windows-11-solved/"><u>We Can't Sign Into Your Account in Windows 11 [Solved]</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-breaking-barriers-worlds-best-and-largest-shorts-downloaders/"><u>[New] 2024 Approved Breaking Barriers World’s Best & Largest Shorts Downloaders</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-cognitive-cornerstones-essential-educational-content-yt-for-2024/"><u>[New] Cognitive Cornerstones Essential Educational Content YT for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ow-to-effectively-reduce-your-youtube-video-lengths/"><u>[New] How To Effectively Reduce Your YouTube Video Lengths</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-monetization-mastery-thriving-in-the-youtube-economy-no-ads-included/"><u>[New] In 2024, Monetization Mastery Thriving in the YouTube Economy, No Ads Included</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/he-route-to-revenue-crafting-content-around-consumer-commodities-for-2024/"><u>[New] The Route to Revenue Crafting Content Around Consumer Commodities for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-charting-success-top-15-investment-educational-videos/"><u>[Updated] Charting Success Top 15 Investment Educational Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-become-the-brand-you-want-with-our-exclusive-set-of-free-graphics/"><u>[Updated] In 2024, Become the Brand You Want With Our Exclusive Set of FREE Graphics!</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-global-content-makers-conference/"><u>[Updated] In 2024, Global Content Makers' Conference</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-match-up-with-moguls-six-questions-to-identify-youtubers/"><u>[Updated] In 2024, Match Up With Moguls Six Questions to Identify YouTubers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ver-the-prime-lineup-of-affordable-cutting-tools-for-2024/"><u>Discover the Prime Lineup of Affordable Cutting Tools for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/diy-disk-clone-mastery-for-pc-enthusiasts/"><u>DIY Disk Clone Mastery for PC Enthusiasts</u></a></li>
+<li><a href="https://win-trending.techidaily.com/download-and-convert-your-favorite-movies-on-wickedfun-with-one-click-to-mp4-mov-or-avi/"><u>Download and Convert Your Favorite Movies on Wickedfun with One Click to MP4, MOV or AVI!</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/earning-mastery-youtube-short-video-tips/"><u>Earning Mastery Youtube Short Video Tips</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-infinix-phone-without-password-by-drfone-android/"><u>How To Unlock Infinix Phone Without Password?</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/the-ultimate-guide-to-using-robocopy-with-windows-11-plus-effective-substitutes/"><u>The Ultimate Guide to Using Robocopy with Windows 11 Plus Effective Substitutes</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/video-sharing-showdown-20-decoding-the-platform-preferences-vimeo-youtubes-and-dailymotions-for-2024/"><u>Video Sharing Showdown 2.0 Decoding the Platform Preferences - Vimeo, YouTubes & DailyMotions for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Nine All-Inclusive Free Holiday Movies Streamed on YouTube\""
-date: 2024-12-05T16:42:11.580Z
-updated: 2024-12-07T18:57:26.688Z
+date: 2024-12-19T18:08:50.261Z
+updated: 2024-12-22T17:53:46.613Z
 tags:
   - ai video
   - ai youtube
@@ -31,24 +31,28 @@ If you are looking for Christmas entertainment this season you may be quick to l
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1. The nutcracker 1990
 
 The Nutcracker is a holiday classic that many people seek out every year on the stage. This family ballet classic was filmed by the Pacific Northwest ballet in a huge and lavish version of the production in 1986\. This still stands as one of the best versions of the Nutcracker ever captured on film and you can watch it for free on YouTube. You can find the Nutcracker at :
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2. A smoky mountain Christmas
 
 A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and starring Lee Majors and Dolly Parton. The full musical fairy tale can be found online on YouTube and it's about a country singer who is trying to spend a quiet Christmas holiday at home. She suddenly becomes involved with a mysterious mountain man, an evil witch and is forced to protect seven orphans over the holidays. This film can be found at:
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3. Ernest saves Christmas
 
 This film from 1989 features Jim Varney and his most famous character Ernest in a holiday Christmas movie that is an instant classic. This film is very funny and a favorite amongst some of the Ernest films for many. This Christmas movie from 1989 can be found at:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4. A Christmas story
@@ -56,7 +60,7 @@ This film from 1989 features Jim Varney and his most famous character Ernest in 
 A Christmas story has long been one of the favorite Christmas movies for many families. In this film from 1983 we travel back in time to a traditional 1940s Christmas. In this film we follow the nine-year-old Ralphie who is looking for the famous red Ryder BB gun for Christmas and will stop at absolutely nothing to get it. A Christmas story can be found at:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 5. Richie Rich's Christmas wish
@@ -72,7 +76,7 @@ This film stars the hulk Mark Ruffalo in one of his earlier roles as a store emp
 Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday classic Santa suffers a severe case of amnesia on Christmas Eve and needs to recover for Christmas day in order to make it through and deliver presents to all of the good children of the world. See if Santa gets his Christmas memories back by watching Santa Who here:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 8. A Christmas Carol
@@ -84,10 +88,6 @@ In this film from 1984 George C Scott brings to life the role of Ebenezer Scroog
 In this recreation of the original film from 1947 this shortened full-length version from 1955 per trade is the classic story of santa on trial. A department store Santa suggests that he's the real santa and goes on trial to prove it. In this version of miracle on 34th Street starring Thomas Mitchell and Macdonald Carey we learn who really believes in Santa Claus. You can find this classic film here:
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -110,20 +110,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/udio-to-text-converter-for-videos/"><u>[New] Audio-to-Text Converter for Videos</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/uilding-your-asmr-empire-key-concepts-and-best-practices-for-2024/"><u>[New] Building Your ASMR Empire Key Concepts and Best Practices for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-enhanced-team-collaboration-with-slack-plus-filmora-timelines/"><u>[New] Enhanced Team Collaboration with Slack + Filmora Timelines</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/wiftly-swap-songs-in-your-youtube-collection/"><u>[New] Swiftly Swap Songs in Your YouTube Collection</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/outube-copyrights-demystified-understanding-and-managing-strikes/"><u>[New] YouTube Copyrights Demystified Understanding and Managing Strikes</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-fostering-relationships-not-just-viewers-a-guide-to-subscriptions/"><u>[Updated] 2024 Approved Fostering Relationships, Not Just Viewers A Guide to Subscriptions</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-boosting-story-reach-through-linked-profile-ties-for-2024/"><u>[Updated] Boosting Story Reach Through Linked Profile Ties for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-elite-recording-tools-for-gamers/"><u>[Updated] In 2024, Elite Recording Tools for Gamers</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-achieving-economical-data-management-with-cloud-services/"><u>2024 Approved Achieving Economical Data Management with Cloud Services</u></a></li>
-<li><a href="https://article-helps.techidaily.com/2024-approved-from-silence-to-soundscape-embedding-mp3s-in-presentations/"><u>2024 Approved From Silence to Soundscape Embedding MP3s in Presentations</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/convert-your-kindle-books-to-portable-document-format-pdf-with-ease/"><u>Convert Your Kindle Books to Portable Document Format (PDF) with Ease</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-video-growth-booster-top-seo-tools-uncovered/"><u>In 2024, Video Growth Booster – Top SEO Tools Uncovered</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-how-to-generate-speech-from-text-the-top-text-to-speech-converters-for-2024/"><u>New How To Generate Speech From Text | The Top Text-to-Speech Converters for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-tech-titans-meet-zucks-pet-the-crypto-goat/"><u>The Tech Titans Meet: Zuck's Pet, the Crypto-Goat</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/why-claude-ai-outperforms-chatgpt-discover-4-key-reasons/"><u>Why Claude AI Outperforms ChatGPT: Discover 4 Key Reasons</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-the-basics-of-youtube-compliance-guidelines/"><u>[New] In 2024, The Basics of YouTube Compliance Guidelines</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-key-techniques-for-capturing-youtube-streaming-content-for-2024/"><u>[New] Key Techniques for Capturing YouTube Streaming Content for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ight-up-the-screen-techniques-for-stunning-youtube-visuals-for-2024/"><u>[New] Light Up the Screen Techniques for Stunning YouTube Visuals for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ocial-sites-showdown-youtubers-choice/"><u>[New] Social Sites Showdown YouTubers' Choice</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/hat-every-independent-youtuber-should-know-about-mcns/"><u>[New] What Every Independent YouTuber Should Know About MCNs</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-effective-engagement-incorporating-youtube-videos-into-slides/"><u>[Updated] 2024 Approved Effective Engagement Incorporating YouTube Videos Into Slides</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-from-sound-to-sight-choosing-between-audio-and-video-media/"><u>[Updated] From Sound to Sight Choosing Between Audio and Video Media</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-easy-way-to-edit-youtube-videos-in-imovie/"><u>[Updated] In 2024, Easy Way to Edit YouTube Videos in iMovie</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-smoothly-stitching-images-together/"><u>[Updated] Smoothly Stitching Images Together</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/augment-realities-mondly-redefining-language-learning/"><u>Augment Realities: Mondly Redefining Language Learning</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/focusing-on-the-best-our-countdown-of-camera-lenses-1-10/"><u>Focusing on the Best Our Countdown of Camera Lenses, #1-10</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/es-goldmine-a-simplified-three-step-blueprint-for-calculating-subscriber-earning-potential-for-2024/"><u>Google's Goldmine A Simplified Three-Step Blueprint for Calculating Subscriber Earning Potential for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-expert-picks-laptops-that-transform-raw-footage/"><u>In 2024, Expert Picks Laptops That Transform Raw Footage</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/infographic-premier-fifa-videos-popularity-spotlight/"><u>Infographic Premier FIFA Videos Popularity Spotlight</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/refreshing-windows-paperwork-handler/"><u>Refreshing Windows Paperwork Handler</u></a></li>
 </ul></div>
 

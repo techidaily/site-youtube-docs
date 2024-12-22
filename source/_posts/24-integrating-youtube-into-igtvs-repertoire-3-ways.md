@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Integrating YouTube Into IGTV's Repertoire (3 Ways)"
-date: 2024-08-28T17:08:50.147Z
-updated: 2024-08-29T17:08:50.147Z
+date: 2024-12-18T21:49:03.942Z
+updated: 2024-12-22T20:31:41.103Z
 tags:
   - ai video
   - ai youtube
@@ -38,6 +38,10 @@ YouTube videos, on the other hand, are mostly horizontally oriented. If you atte
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 If you don’t already have the original file of the video you’d like to upload to your IGTV channel, you can [download a video from YouTube](https://tools.techidaily.com/wondershare/filmora/download/), but keep in mind that you can’t use any content without permission from its owner.
 
 Once you have the file, you can **create a new project** in Filmora and then after the project loads you should click on the **File menu** and select the **Project Settings option**. Pick one of the **9:16** video resolution options provided by the editor and click **OK to confirm the changes**.
@@ -60,6 +64,10 @@ Latest News: In Filmora V10.5 and later versions, there is a new feature called 
 
 ![Filmora  Auto-Reframe YouTube video to IGTV](https://images.wondershare.com/filmora/article-images/auto-reframe-youtube-video-to-vertical-igtv-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You can watch the video below to find out more information about the Auto-Reframe tool.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -72,6 +80,10 @@ Click on the Resize tool and simply **copy and paste the URL** of a YouTube into
 
 ![Kapwing  Crop YouTube video to IGTV](https://images.wondershare.com/filmora/article-images/kapwing-crop-youtube-to-igtv.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Pick the **Story (Snap/Insta) or IGTV 9:16 option** and then proceed to **choose the background color for your IGTV video, increase or decrease the zoom level or change the position of the video**. Click on the **Create button** when ready and wait for Kapwing to process your video. **All videos you create with the free version of this online video editor are going to be watermarked** and you have to pay a six-dollar fee for each watermark-free video you edit with Kapwing or you can opt for a $20 monthly subscription fee that enables you to export an unlimited amount of videos without watermarks each month.
 
 ![Kapwing  Rotate YouTube video to IGTV](https://images.wondershare.com/filmora/article-images/rotate-youtube-video-convert-to-igtv.jpg)
@@ -81,8 +93,9 @@ A growing number of IGTV users choose to rotate their videos, instead of resizin
 **You may also like:** [ How to Convert MKV to MP4 without Losing Quality \[Free Converters Provided\] >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 3: Changing the Aspect Ratio of a YouTube Video with Final Cut Pro
 
 Editing videos with professional video editing software products like Final Cut Pro or Premiere Pro requires a certain amount of skill. There is more than just one way to change the aspect ratio of a video in Final Cut Pro, but probably the best one is to **set the project resolution to 2160X3840 or any other lower resolution that matches the 9:16 aspect ratio**. During the video editing process, you will have to **resize all of the footage** you want to include in the final version of the video. Planning your shots and composing them differently than you would compose horizontally oriented shots can potentially save you a little time on resizing and repositioning the video clips you’re working with.
@@ -98,22 +111,20 @@ Posting YouTube videos on your IGTV channel is still a somewhat complicated proc
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -122,4 +133,23 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-maximize-your-youtube-yields-small-channel-sponsorship-strategies/"><u>[New] In 2024, Maximize Your YouTube Yields Small Channel Sponsorship Strategies</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/astering-youtube-list-mix-a-step-by-step-guide-for-2024/"><u>[New] Mastering YouTube List Mix A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-diverging-paths-youtube-licensing-and-creative-commons/"><u>[Updated] In 2024, Diverging Paths YouTube Licensing & Creative Commons</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-streamlining-earnings-with-youtube-studio-techniques/"><u>[Updated] In 2024, Streamlining Earnings with Youtube Studio Techniques</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-ultimate-child-friendly-game-collection/"><u>[Updated] In 2024, Ultimate Child-Friendly Game Collection</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-ryans-revenue-revolution-from-childhood-to-youtube-riches/"><u>[Updated] Ryan’s Revenue Revolution From Childhood to YouTube Riches</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-experts-choice-top-8-proven-video-marketing-actions/"><u>2024 Approved Expert's Choice Top 8 Proven Video Marketing Actions</u></a></li>
+<li><a href="https://blog-min.techidaily.com/winx-mediatrans-pciphone-ipad/"><u>使用WinX MediaTrans™提升数字内容管理 - 专业PC到iPhone iPad转移方法</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/everything-you-need-to-know-about-lock-screen-settings-on-your-gionee-f3-pro-by-drfone-android/"><u>Everything You Need to Know about Lock Screen Settings on your Gionee F3 Pro</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-including-a-cover-letter-in-profile/"><u>In 2024, Including a Cover Letter in Profile</u></a></li>
+<li><a href="https://games-able.techidaily.com/key-advantages-5-the-case-for-vintage-game-devices/"><u>Key Advantages 5: The Case for Vintage Game Devices</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/purchase-today-exceptional-image-restoration-services/"><u>Purchase Today: Exceptional Image Restoration Services</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/reasons-for-itel-a70-stuck-on-startup-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Itel A70 Stuck on Startup Screen and Ways To Fix Them | Dr.fone</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209518619-9781620558430-slavic-witchcraft/"><u>Slavic Witchcraft | Free Book</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/oadmap-to-youtube-fame-essential-steps-for-successful-content-for-2024/"><u>The Roadmap to YouTube Fame Essential Steps for Successful Content for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/tutorial-complet-derouler-le-cryptage-sur-vos-dvd-et-blu-rays-disney-pour-un-visionnage-facile-a-domicile/"><u>Tutorial Complet : Dérouler Le Cryptage Sur Vos DVD Et Blu-Rays Disney Pour Un Visionnage Facile À Domicile</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  A Beginner's Guide to Making Attractive Video Thumbnails for Social Media Platforms\""
-date: 2024-12-12T17:04:20.471Z
-updated: 2024-12-13T17:35:31.184Z
+date: 2024-12-21T17:40:45.096Z
+updated: 2024-12-22T17:36:45.840Z
 tags:
   - ai video
   - ai youtube
@@ -44,7 +44,7 @@ Here are 5 easy tips for creating thumbnails that get views.
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Edit Your Videos Before Creating Video Thumbnails
@@ -52,11 +52,11 @@ Here are 5 easy tips for creating thumbnails that get views.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. Have a Consistent Layout
@@ -67,6 +67,10 @@ An example of a standard layout could be you in the middle of the screen wearing
 
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **2\. Use Your Face**
 
 People feel automatically connected and drawn into images that make eye contact. This makes thumbnails which feature faces more click-able than thumbnails which don’t, in most genres (i.e. if you make food videos then this may not apply – featuring the food might be more important than featuring your face). [Check out more tips like this here](https://tools.techidaily.com/wondershare/filmora/download/).
@@ -74,7 +78,7 @@ People feel automatically connected and drawn into images that make eye contact.
 Also, if somebody recognizes you in your thumbnail from a previous video of yours, that will go a long way towards making them click.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Use Graphics/Emojis that are On Topic
@@ -82,10 +86,6 @@ Also, if somebody recognizes you in your thumbnail from a previous video of your
 Anybody can take a screenshot of themselves in their video and use it as a thumbnail. To make your thumbnails look polished, consider using small images (like emojis or hearts) to stand out. This will add color and personality to your thumbnail.
 
 Make sure the images you choose are relevant to the topic of your video.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 4\. Make Your Text Huge
 
@@ -126,21 +126,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-a-clearer-sight-youtube-watching-tweets-at-1080p/"><u>[New] A Clearer Sight YouTube, Watching Tweets at 1080P</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/nhancing-engagement-with-solutions-to-common-shorts-challenges/"><u>[New] Enhancing Engagement with Solutions to Common Shorts Challenges</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/aximizing-impact-strategies-for-overcoming-video-short-snags-for-2024/"><u>[New] Maximizing Impact Strategies for Overcoming Video Short Snags for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-secure-your-webcam-with-these-10-tips/"><u>[New] Secure Your Webcam with These 10 Tips</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/op-picks-for-vloggers-8-mirrorless-cameras-leading-the-pack-for-2024/"><u>[New] Top Picks for Vloggers 8 Mirrorless Cameras Leading the Pack for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-tele-loop-triumph-repeat-your-favorite-video-anytime-on-tv/"><u>[Updated] 2024 Approved Tele-Loop Triumph Repeat Your Favorite Video Anytime on TV</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-elevate-your-video-game-select-top-20-thumbnail-fonts/"><u>[Updated] Elevate Your Video Game Select Top 20 Thumbnail Fonts</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/y-music-production-tutorial-videos-for-home-studios/"><u>15 DIY Music Production Tutorial Videos for Home Studios</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-se-2020-to-other-iphone-15-pro-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone SE (2020) To Other iPhone 15 Pro devices? | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-honor-magic-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Watch Hulu Outside US On Honor Magic 5 Pro | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-three-ways-to-sim-unlock-honor-magic5-ultimate-by-drfone-android/"><u>In 2024, Three Ways to Sim Unlock Honor Magic5 Ultimate</u></a></li>
-<li><a href="https://win-excellent.techidaily.com/seamless-integration-syncing-your-sandisk-mp3-player-with-spotify-a-step-by-step-guide/"><u>Seamless Integration: Syncing Your SanDisk MP3 Player with Spotify - A Step-by-Step Guide</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/solve-dolby-digital-problems-in-windows-1/"><u>Solve Dolby Digital Problems in Windows 1</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/steal-the-show-with-the-low-cost-240hz-acer-nitro-gaming-monitor-just-pay-a-sweet-159/"><u>Steal the Show with the Low-Cost 240Hz Acer Nitro Gaming Monitor – Just Pay a Sweet $159!</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-6-appsservices-to-trace-any-tecno-phantom-v-fold-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>Top 6 Apps/Services to Trace Any Tecno Phantom V Fold Location By Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ling-the-top-10-historic-content-creators-on-youtube-for-2024/"><u>Unveiling the Top 10 Historic Content Creators on YouTube for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-expanding-your-audience-on-youtube-step-by-step/"><u>[New] 2024 Approved Expanding Your Audience on Youtube Step by Step</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-conquering-the-labyrinth-of-lesser-known-youtube-content-for-2024/"><u>[New] Conquering the Labyrinth of Lesser-Known YouTube Content for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-how-to-watch-twitter-videos-in-full-hd-for-2024/"><u>[New] How To Watch Twitter Videos in Full HD for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-instagrams-best-captured-moments-made-available-to-iphone/"><u>[New] In 2024, Instagram's Best Captured Moments Made Available to iPhone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-professional-insights-expert-level-youtube-video-tweaks/"><u>[New] In 2024, Professional Insights Expert-Level Youtube Video Tweaks</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/uick-fortnite-tile-sketch-a-30-second-guide/"><u>[New] Quick Fortnite Tile Sketch A 30-Second Guide</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-skybound-creativity-essential-editing-skills-for-drone-films/"><u>[New] Skybound Creativity Essential Editing Skills for Drone Films</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/kyrocket-your-channel-to-over-a-million-subscribers/"><u>[New] Skyrocket Your Channel to Over a Million Subscribers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/id-wizards-guide-to-glitter-and-glamour-creating-your-chanel-for-2024/"><u>[New] Vid-Wizards Guide to Glitter and Glamour Creating Your Chanel for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-cutting-edge-tech-meets-creativity-top-12-camera-picks-for-vloggers/"><u>[Updated] 2024 Approved Cutting-Edge Tech Meets Creativity Top 12 Camera Picks for Vloggers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-pioneering-visual-stunts-from-the-ground-up/"><u>[Updated] In 2024, Pioneering Visual Stunts From the Ground Up</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-streamline-your-soundtrack-selection-for-youtube/"><u>[Updated] In 2024, Streamline Your Soundtrack Selection for YouTube</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/audience-attracting-innovations-in-fb-video-ad-design/"><u>Audience-Attracting Innovations in FB Video Ad Design</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/greatest-copyright-free-pubg-image-anthology/"><u>Greatest Copyright-Free PUBG Image Anthology</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-how-to-make-a-cooking-video-in-steps-an-ultimate-guide/"><u>In 2024, How to Make a Cooking Video in Steps - an Ultimate Guide</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-xiaomi-redmi-note-12-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Watch Hulu Outside US On Xiaomi Redmi Note 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-pioneers-in-the-realm-of-multimedia-synergy/"><u>In 2024, Pioneers in the Realm of Multimedia Synergy</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-future-of-gaming-at-your-fingertips-top-10-vr-headsets-for-pc/"><u>The Future of Gaming at Your Fingertips Top 10 VR Headsets for PC</u></a></li>
+<li><a href="https://fake-location.techidaily.com/thinking-about-changing-your-netflix-region-without-a-vpn-on-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>Thinking About Changing Your Netflix Region Without a VPN On Apple iPhone 15? | Dr.fone</u></a></li>
 </ul></div>
 

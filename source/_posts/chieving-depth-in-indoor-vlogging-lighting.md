@@ -1,7 +1,7 @@
 ---
 title: "[New] Achieving Depth in Indoor Vlogging Lighting"
-date: 2024-12-11T18:48:56.185Z
-updated: 2024-12-13T18:50:21.968Z
+date: 2024-12-18T19:20:51.124Z
+updated: 2024-12-22T16:00:56.236Z
 tags:
   - ai video
   - ai youtube
@@ -34,12 +34,16 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Video Lighting Basics: Three Point Lighting
 
 ![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
@@ -53,15 +57,7 @@ The **fill light** is less bright than the primary source of light and it is pla
 
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Watch Video! Top Lighting Tips for Vlogging
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
 
@@ -89,6 +85,10 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
 
 If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
@@ -96,7 +96,7 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
@@ -106,7 +106,7 @@ If you are stuck shooting in **low light conditions** it is best to use a lens w
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -130,22 +130,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/reating-cash-flow-on-youtube-an-ad-free-blueprint-for-income-for-2024/"><u>[New] Creating Cash Flow on YouTube An Ad-Free Blueprint for Income for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-downloading-audio-made-simple-with-these-19-top-quality-free-rippers-from-youtube-for-2024/"><u>[New] Downloading Audio Made Simple with These 19 Top-Quality Free Rippers From YouTube for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-from-bland-to-brilliant-transform-your-youtube-channels-image/"><u>[Updated] 2024 Approved From Bland to Brilliant Transform Your YouTube Channels' Image</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-laugh-loops-crafting-comical-content-for-brevity-based-videos/"><u>[Updated] 2024 Approved Laugh Loops Crafting Comical Content for Brevity-Based Videos</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-8-free-online-video-editors-for-youtube-for-2024/"><u>[Updated] 8 Free Online Video Editors for YouTube for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-cutting-edge-techniques-for-excellent-sound-no-mic-included-for-2024/"><u>[Updated] Cutting-Edge Techniques for Excellent Sound, No Mic Included for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-getting-the-most-out-of-live-sports-on-youtube-tv-for-2024/"><u>[Updated] Getting the Most Out of Live Sports on YouTube TV for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-hunt-for-heated-online-hearings/"><u>[Updated] Hunt for Heated Online Hearings</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-investment-icons-top-15-youtube-stock-gurus/"><u>[Updated] In 2024, Investment Icons Top 15 YouTube Stock Gurus</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-key-strategies-utilizing-hashtags-in-youtube-gaming-content/"><u>[Updated] In 2024, Key Strategies Utilizing Hashtags in YouTube Gaming Content</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/become-a-master-chef-with-7-helpful-gpt-powered-tips/"><u>Become a Master Chef with 7 Helpful GPT-Powered Tips</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-remove-activation-lock-from-the-iphone-se-2020-without-previous-owner-by-drfone-ios/"><u>How to Remove Activation Lock From the iPhone SE (2020) Without Previous Owner?</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/tarting-your-digital-voice-the-complete-process-of-starting-a-youtube-chanel/"><u>Kickstarting Your Digital Voice The Complete Process of Starting a YouTube Chanel</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/t-sized-prodigy-a-boys-quest-for-cash-in-the-cloud-for-2024/"><u>Pocket-Sized Prodigy A Boy's Quest for Cash in the Cloud for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/starlingx-revolutionized-with-enhanced-cloud-edge-integration-latest-update-unveiled-on-zdnet/"><u>StarlingX Revolutionized with Enhanced Cloud-Edge Integration - Latest Update Unveiled on ZDNet</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/the-hidden-dangers-of-downloading-chatgpt-applications-from-apples-mac-app-store/"><u>The Hidden Dangers of Downloading ChatGPT Applications From Apple's Mac App Store</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/vimeo-id-picture-guide-width-depth-moment/"><u>Vimeo ID Picture Guide Width, Depth, Moment</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/dentifying-causes-for-disappearing-youtube-shorts-thumbnails-for-2024/"><u>[New] Identifying Causes for Disappearing YouTube Shorts Thumbnails for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-views-velocity-harnessing-powerful-hashtags-for-video-popularity/"><u>[New] In 2024, Views Velocity Harnessing Powerful Hashtags for Video Popularity</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ound-sanitization-cleaning-up-your-online-footage/"><u>[New] Sound Sanitization Cleaning Up Your Online Footage</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-bloodthirsty-horror-your-ultimate-8-zombie-game-compilation/"><u>[Updated] 2024 Approved Bloodthirsty Horror Your Ultimate 8 Zombie Game Compilation</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-decoding-video-potential-dslr-vs-mirrorless-innovation/"><u>[Updated] 2024 Approved Decoding Video Potential DSLR vs Mirrorless Innovation</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-discover-the-ultimate-path-to-boundless-space-with-20-no-cost-services/"><u>[Updated] Discover The Ultimate Path to Boundless Space with 20 No-Cost Services</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-cinema-for-all-a-comparative-look-at-vimeo-and-youtube/"><u>[Updated] In 2024, Cinema for All? A Comparative Look at Vimeo & YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-hit-the-jackpot-of-humor-craft-top-tier-youtube-reaction-videos-3-techniques/"><u>[Updated] In 2024, Hit the Jackpot of Humor – Craft Top-Tier YouTube Reaction Videos (3 Techniques)</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-live-stream-champions-clash-pick-your-preferred-software/"><u>[Updated] Live Stream Champions Clash – Pick Your Preferred Software?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/best-honor-magic5-ultimate-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>Best Honor Magic5 Ultimate Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ning-youtube-videos-for-seamless-playback-for-2024/"><u>Combining YouTube Videos for Seamless Playback for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-a-found-iphone-se-2022-drfone-by-drfone-ios/"><u>How To Unlock A Found iPhone SE (2022)? | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-the-art-of-podcast-imagery-creating-memorable-graphics/"><u>In 2024, The Art of Podcast Imagery Creating Memorable Graphics</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/system-revamp-upgrade-from-windows-8-to-windows-11-pro/"><u>System Revamp: Upgrade From Windows 8 to Windows 11 Pro</u></a></li>
 </ul></div>
 

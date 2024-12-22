@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Permanent Silence of the Quick Content Platform"
-date: 2024-12-10T16:52:11.701Z
-updated: 2024-12-13T16:37:02.371Z
+date: 2024-12-15T20:10:00.526Z
+updated: 2024-12-22T18:38:19.447Z
 tags:
   - ai video
   - ai youtube
@@ -51,6 +51,10 @@ Now, as you have reached this section, you should be curious, what are the steps
 
 You can choose either of them as per your suitability or the one which best suits you. Some of these methods are pretty easy to follow, or you might need to follow some steps for some. But the main essence is, following any method will show how to remove shorts from YouTube. So, now go with the methods one by one and follow the guidelines to remove shorts from YouTube.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Method 1: Three dots option
 
 One of the primary things you can do with any short videos is to click on the three dots next to each of such videos if you are not particularly willing to see something. Doing so will open the pop-up window, which will give you the option of “Not interested”. Click on this option. That’s it. Next time, such a video will not appear to you while surfing videos on YouTube.
@@ -58,13 +62,13 @@ One of the primary things you can do with any short videos is to click on the th
 ![not intereted to ban youtube shorts](https://images.wondershare.com/filmora/disable-youtube-shorts-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Here, no doubt the method is simple, but this method needs repetitiveness. As, whenever you see Shorts videos, you need to click on three dots to remove that.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Method 2: Settings menu of YouTube
@@ -76,7 +80,7 @@ From there, you need to select “General”, which will show up some options. H
 ![turn of youtube shorts](https://images.wondershare.com/filmora/article-images/2023/04/turn-off-youtube-shorts.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 This way, by simply following and managing settings, you can easily disable YouTube shorts from the platform.
@@ -98,10 +102,6 @@ As a YouTube fan, you can also create interesting video by yourself with [**Film
 Hey guys, there is one more trick. Whenever you want to access YouTube, instead of going through the application, try to open YouTube website either from your mobile or PC browser window. You would wonder why so and what difference it will make. The fact is that the Shorts tab has not yet been incorporated under the browser version of YouTube.
 
 So friends, try this to avoid seeing YouTube Shorts videos either from phone or desktop. This is not only simple but also device-free. And even if you do not have a YouTube application, you can use this trick to solve your concern.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Method 4: Factory reset
 
@@ -130,7 +130,7 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg) ](https://app.adjust.com/w06dr6m%5F19za1f6)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -146,10 +146,6 @@ On your smartphone, open the **Settings** \> **Apps** or **Manage Apps** option 
 ![filmora](https://images.wondershare.com/filmora/disable-youtube-shorts-4.jpg)
 
 Using this method, you can remove shorts easily from YouTube. And, it is not going to take much amount of time. So, go and follow the steps.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Method 7: Try YouTube Vanced
 
@@ -173,6 +169,10 @@ Once you have launched the application, under the settings, you need to go for t
 
 ![filmora](https://images.wondershare.com/filmora/disable-youtube-shorts-5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Doing so will disable the YouTube Shorts option from the **Home** screen.
 
 Alternatively, remove the **YouTube Shorts** button also from the screen. Under the “Vanced settings” > Visit **Layout settings** \> Switch on the **Comments location** option. That will further remove the Shorts button from the bottom end of the Home screen of the YouTube page.
@@ -186,16 +186,12 @@ Thus, following the methods mentioned above gives you multiple ways to turn off 
 ![filmora logo](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-horizontal.svg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## A cross-platform for making videos anywhere for all creators
 
 ![filmora-02](https://images.wondershare.com/filmora/filmora12/side_brand_filmora12.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Why your video editing isn't good enough? How about some creative inspo?
 
@@ -213,6 +209,10 @@ Thus, following the methods mentioned above gives you multiple ways to turn off 
  \* Secure Download
 
 ![filmora12](https://images.wondershare.com/filmora/12-filmora/img/filmora12-01.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -245,22 +245,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-grid-artistry-at-its-peak-the-definitive-10-for-insta-posts-for-2024/"><u>[New] Grid Artistry at Its Peak The Definitive 10 for Insta Posts for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/arnessing-youtube-statistics-to-increase-subscribers/"><u>[New] Harnessing YouTube Statistics to Increase Subscribers</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-mastering-insta-photo-watermarks-a-step-by-step-guide/"><u>[New] Mastering Insta Photo Watermarks A Step-by-Step Guide</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/he-ultimate-outro-checklist-for-youtube-success-for-2024/"><u>[New] The Ultimate Outro Checklist for YouTube Success for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-top-viewership-archive-youtube-visionaries/"><u>[New] Top Viewership Archive YouTube Visionaries</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-easy-to-follow-guide-to-using-youtube-tv-effectively/"><u>[Updated] 2024 Approved Easy-to-Follow Guide to Using YouTube TV Effectively</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-top-alternative-movies-to-watch-ranked-7/"><u>[Updated] Top Alternative Movies to Watch, Ranked #7</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ing-youtube-popularity-two-simple-strategies/"><u>Boosting YouTube Popularity Two Simple Strategies</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/creating-captivating-podcast-summaries-for-2024/"><u>Creating Captivating Podcast Summaries for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/eliminating-the-no-driver-files-found-error-on-your-new-windows-7-system/"><u>Eliminating the 'No Driver Files Found' Error on Your New Windows 7 System</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/eye-catching-clues-to-fraudulent-chatgpt-websites/"><u>Eye-Catching Clues to Fraudulent ChatGPT Websites</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-oppo-reno-10-5g-location-by-number-drfone-by-drfone-virtual-android/"><u>How to Track Oppo Reno 10 5G Location by Number | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-uncover-these-ten-youtube-sources-with-the-fastest-growth-rates/"><u>In 2024, Uncover These Ten YouTube Sources with the Fastest Growth Rates</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/art-automated-views-to-propel-your-channel-for-2024/"><u>Outsmart Automated Views to Propel Your Channel for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/t-peaks-techniques-to-maximize-revenue-from-mobile-youtube-content-for-2024/"><u>Profit Peaks Techniques to Maximize Revenue From Mobile YouTube Content for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ess-video-to-text-best-ones-online-at-your-fingertips/"><u>Seamless Video-to-Text Best Ones Online at Your Fingertips</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/the-comprehensive-guide-to-crafting-great-fb-cover-videos/"><u>The Comprehensive Guide to Crafting Great FB Cover Videos</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-optimal-conclusion-to-vr-journeys/"><u>[New] 2024 Approved Optimal Conclusion to VR Journeys</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-best-watched-youtube-film-channels-ranked/"><u>[New] In 2024, Best-Watched YouTube Film Channels Ranked</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-step-by-step-process-for-making-a-stellar-podcast-launch-video/"><u>[New] In 2024, Step-By-Step Process for Making a Stellar Podcast Launch Video</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-pushing-the-boundaries-of-screen-recording-with-recmeister/"><u>[New] Pushing the Boundaries of Screen Recording with Recmeister</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ailoring-your-video-content-for-wide-platform-distribution/"><u>[New] Tailoring Your Video Content for Wide Platform Distribution</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-from-humble-beginnings-to-sponsored-success-channels-blueprint/"><u>[Updated] 2024 Approved From Humble Beginnings to Sponsored Success Channels' Blueprint</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-launchpad-for-novice-gopro-owners-must-have-gear-guide/"><u>[Updated] 2024 Approved Launchpad for Novice GoPro Owners - Must-Have Gear Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-craft-your-best-youtubing-exit-tips-from-industry-leaders/"><u>[Updated] Craft Your Best YouTubing Exit - Tips From Industry Leaders</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-evaluating-youtubes-potential-monthly-earnings/"><u>[Updated] Evaluating YouTube's Potential Monthly Earnings</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-techniques-for-discarding-backlogged-youtube-videos/"><u>[Updated] In 2024, Techniques for Discarding Backlogged YouTube Videos</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-unleashing-power-plays-exclusive-insights-into-best-7-total-war-battles/"><u>[Updated] In 2024, Unleashing Power Plays Exclusive Insights Into Best 7 Total War Battles</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-whatsapp-messages-on-xiaomi-redmi-note-13-pro-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>How to Track WhatsApp Messages on Xiaomi Redmi Note 13 Pro 5G Without Them Knowing? | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/ultimate-tutorial-linking-disneyplus-streams-effortlessly-to-your-chromecast-device/"><u>Ultimate Tutorial: Linking Disney+ Streams Effortlessly to Your Chromecast Device</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/bes-trophy-chain-for-engaged-audiences-for-2024/"><u>YouTube's Trophy Chain for Engaged Audiences for 2024</u></a></li>
 </ul></div>
 

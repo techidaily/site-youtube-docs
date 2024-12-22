@@ -1,7 +1,7 @@
 ---
 title: "Creating Captivating Visuals with DIY Filming Methods for 2024"
-date: 2024-12-04T17:11:43.430Z
-updated: 2024-12-07T16:25:59.372Z
+date: 2024-12-21T20:46:45.223Z
+updated: 2024-12-22T16:57:20.665Z
 tags:
   - ai video
   - ai youtube
@@ -36,25 +36,17 @@ A big part of being a YouTuber involves talking to the camera. How you set up yo
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Set Up Your Talking Heads Shots for YouTube Video \[Infographic\]
 
 We’ve summarized the key points about setting up talking head style video shots with the Infographic below. It is welcomed to share on social media.
 
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
 
@@ -70,10 +62,6 @@ Objects and people that just make it into the sides of the frame will appear mor
 
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2.  Medium Vlog Set-Up
 
 If you have more space and want to shoot a more professional-looking talking-head shot with more realistic perspectives, a medium vlog set-up may be a better alternative for you.
@@ -87,6 +75,10 @@ At the 39 second mark of the above video, electronic music producer deadmau5 is 
 You can see from how even the background and couch looks across the entire camera frame that there is no distortion or enhanced perspective.
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3.  Two Person Vlog Set-Up
 
@@ -113,7 +105,7 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Tips for Making a Talking Head Video Better
@@ -122,7 +114,15 @@ To make a talking-head video more interesting, you can add some background music
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -145,19 +145,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-streamline-playlist-dissemination-on-youtube/"><u>[New] In 2024, Streamline Playlist Dissemination on Youtube</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/he-guide-to-earning-through-streams-dm-and-yo-unveiled-for-2024/"><u>[New] The Guide to Earning Through Streams Dm & Yo Unveiled for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-unveiling-tricky-feed-functions-more-vids-please/"><u>[New] Unveiling Tricky Feed Functions More Vids Please</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-gamers-ultimate-guide-selecting-the-best-video-card-brands/"><u>[Updated] 2024 Approved Gamer’s Ultimate Guide Selecting the Best Video Card Brands</u></a></li>
-<li><a href="https://android-location.techidaily.com/3-effective-methods-to-fake-gps-location-on-android-for-your-xiaomi-redmi-a2plus-drfone-by-drfone-virtual/"><u>3 Effective Methods to Fake GPS location on Android For your Xiaomi Redmi A2+ | Dr.fone</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/efficient-and-comfy-reading-anywhere-with-the-kobo-clara-hd-bookworms-guide-and-review/"><u>Efficient and Comfy Reading Anywhere with the Kobo Clara HD – Bookworm's Guide & Review</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-remove-a-previously-synced-google-account-from-your-vivo-v29-pro-by-drfone-android/"><u>How to Remove a Previously Synced Google Account from Your Vivo V29 Pro</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-realme-10t-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Realme 10T 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-boosting-or-slowing-down-the-netflix-playback-rate-guide/"><u>In 2024, Boosting or Slowing Down The Netflix Playback Rate Guide</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-tecno-pova-5-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On Tecno Pova 5? | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-learn-how-to-add-descriptive-texts-to-your-youtube-videos/"><u>In 2024, Learn How to Add Descriptive Texts to Your YouTube Videos</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-the-pathway-to-perfect-audio-placement-on-youtube/"><u>In 2024, The Pathway to Perfect Audio Placement on YouTube</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ize-view-count-responsibly-legal-avenues-to-a-million-fans/"><u>Maximize View Count Responsibly Legal Avenues to a Million Fans</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/pearlescent-pictures-brighten-with-android/"><u>Pearlescent Pictures Brighten with Android</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-one-click-coordination-sync-your-zoom-calls-across-devices/"><u>[New] 2024 Approved One-Click Coordination Sync Your Zoom Calls Across Devices</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-top-picks-best-free-cross-platform-video-communication-tools/"><u>[New] In 2024, Top Picks Best Free Cross-Platform Video Communication Tools</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/everaging-yt-playlist-features-for-site-enhancement-for-2024/"><u>[New] Leveraging YT Playlist Features for Site Enhancement for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-a-compre-written-in-code-deciphering-youtube-backlink-building-techniques/"><u>[Updated] 2024 Approved A Compre Written in Code Deciphering YouTube Backlink Building Techniques</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-essential-steps-to-curate-youtube-music-selections/"><u>[Updated] 2024 Approved Essential Steps to Curate YouTube Music Selections</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-from-raw-to-refined-your-guide-to-youtube-video-edits/"><u>[Updated] In 2024, From Raw to Refined Your Guide to YouTube Video Edits</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-superior-audio-options-for-video-makers/"><u>[Updated] Superior Audio Options for Video Makers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-captivating-channels-spotlight-on-the-most-popular-female-creators/"><u>2024 Approved Captivating Channels Spotlight on the Most Popular Female Creators</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-strategies-for-sustainable-income-via-product-based-videos/"><u>2024 Approved Strategies for Sustainable Income via Product-Based Videos</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/budgeted-skyvault-storing-mountains-of-data-for-2024/"><u>Budgeted SkyVault Storing Mountains of Data for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ary-carousel-swirling-up-top-food-network-names/"><u>Culinary Carousel Swirling Up Top Food Network Names</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/is-it-safe-to-put-additional-ram-in-my-devise/"><u>Is It Safe to Put Additional RAM in My Devise?</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/perfect-pitches-made-simple-installing-and-utilizing-autotune-with-audacity-for-2024/"><u>Perfect Pitches Made Simple Installing and Utilizing Autotune with Audacity for 2024</u></a></li>
 </ul></div>
 

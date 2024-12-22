@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, FLV File Symphony  Creating a Single YouTube Playlist\""
-date: 2024-12-08T17:31:02.645Z
-updated: 2024-12-13T17:48:00.269Z
+date: 2024-12-17T19:49:45.390Z
+updated: 2024-12-22T20:58:41.932Z
 tags:
   - ai video
   - ai youtube
@@ -34,12 +34,16 @@ YouTube is the most popular video sites in the world. You may have downloaded lo
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to Merge Downloaded YouTube Videos
 
 ![Filmora9 editing interface ](https://images.wondershare.com/filmora/guide/editing-mode.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Tool you need: [Wondershare Filmora video editor](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -59,7 +63,7 @@ Download and install Wondershare Filmora. It gives good support to the downloade
 ![import source media in Filmora9 ](https://images.wondershare.com/filmora/article-images/filmora9-import-options.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 2. Drag and drop YouTube videos to merge
@@ -67,6 +71,14 @@ Download and install Wondershare Filmora. It gives good support to the downloade
 To merge YouTube videos, select multiple YouTube videos in the User's Album by holding down Ctrl or Shift key, and then drag and drop them to the video track on the Timeline. All YouTube files will join one after another without interrupts and there is none transition by default, but you can add transitions between video clips as you want. This will be introduced in Step 3.
 
 ![drag and drop media to timeline in Filmora9 ](https://images.wondershare.com/filmora/article-images/add-media-to-timeline.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Step 3. Merge YouTube videos with transition
 
@@ -79,6 +91,10 @@ By adding transitions, YouTube videos will flow nicely from one to the next. To 
 Make sure you are satisfied with everything. You can click Play button to preview how YouTube videos will be merged. If the result is good, click "Export" button to save the YouTube video as one.
 
 ![export in Filmora9 ](https://images.wondershare.com/filmora/article-images/export-output.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Therefore, go to the "Format" tab and select one desired format and click Create to start merging YouTube videos. By the way, if you want to play the merged YouTube files on iPod, iPhone, iPad, choose "Device" and select your device from the list. You can also directly upload back to YouTube for sharing or burn to DVD for playing on TV.
 
@@ -94,19 +110,11 @@ YouTube Video Editor is a browser-based video editor released by YouTube itself.
 
 ![import video](https://images.wondershare.com/images/multimedia/youtube-downloader/find-videos.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Get access to the editor
 
 Sign in to your YouTube (or Google) account. Click "Upload">> "Edit" to the Video Editor tab.
 
 ![ Add video](https://images.wondershare.com/images/multimedia/video-editor/step-1.jpg)  
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ##### Place videos on the timeline
 
@@ -114,19 +122,11 @@ Simply drag the videos that need merge onto the timeline or hit the plus icon in
 
 ![save video](https://images.wondershare.com/images/multimedia/video-editor/step-3.png "save video")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Save the settings
 
 Review the result. If satisfied, hit the "Publish" button to save the settings.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -149,22 +149,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/eginners-guide-to-video-production-free-course-series/"><u>[New] Beginner's Guide to Video Production Free Course Series</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/nlocking-more-traffic-the-ultimate-list-of-keyword-tools/"><u>[New] Unlocking More Traffic The Ultimate List of Keyword Tools</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-making-your-mark-with-youtubes-creative-commons-tools/"><u>[Updated] 2024 Approved Making Your Mark with YouTube’s Creative Commons Tools</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-maximizing-instagram-video-exposure/"><u>[Updated] 2024 Approved Maximizing Instagram Video Exposure</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-easy-tutorial-uploading-youtube-shorts-video-via-computer-and-phone-for-2024/"><u>[Updated] Easy Tutorial Uploading YouTube Shorts Video via Computer & Phone for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-a-step-by-step-guide-to-youtube-image-branding/"><u>2024 Approved A Step-by-Step Guide to YouTube Image Branding</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-learn-to-negate-video-ordering-in-android/"><u>2024 Approved Learn To Negate Video Ordering in Android</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-tailor-made-youtube-url-strategies-an-easier-approach/"><u>2024 Approved Tailor-Made YouTube URL Strategies An Easier Approach</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-unboxed-talent-the-breakout-females-dominating-youtube/"><u>2024 Approved Unboxed Talent The Breakout Females Dominating YouTube</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-unlocking-the-door-to-dual-video-playback/"><u>2024 Approved Unlocking the Door to Dual Video Playback</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-youtubes-ultimate-mp3-creators-list/"><u>2024 Approved YouTube's Ultimate MP3 Creators List</u></a></li>
-<li><a href="https://android-location.techidaily.com/3-effective-methods-to-fake-gps-location-on-android-for-your-itel-p40-drfone-by-drfone-virtual/"><u>3 Effective Methods to Fake GPS location on Android For your Itel P40 | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/how-to-fix-it-samsung-galaxy-a23-5g-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix It Samsung Galaxy A23 5G Wont Turn On | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-unlock-youtube-collaboration-a-guide-to-partnering-and-producing-together/"><u>In 2024, Unlock YouTube Collaboration A Guide to Partnering and Producing Together</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/mastering-webcam-driver-updates-on-windows-11-best-practices-and-tips/"><u>Mastering Webcam Driver Updates on Windows 11: Best Practices & Tips</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ating-the-360-streaming-landscape-with-ease-on-youtube/"><u>Navigating the 360° Streaming Landscape with Ease on Youtube</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/sync-your-day-right-altering-time-display-on-amazon-kindle-paperwhite/"><u>Sync Your Day Right: Altering Time Display on Amazon Kindle Paperwhite</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-earnings-update-navigating-youtube-monetization/"><u>[New] Earnings Update Navigating YouTube Monetization</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/xploring-the-essence-of-youtube-live-imagery-language-for-2024/"><u>[New] Exploring the Essence of YouTube Live Imagery Language for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-achieving-instagram-recognition-swiftly/"><u>[Updated] Achieving Instagram Recognition Swiftly</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-boost-creativity-with-free-audio-effects-online-in-2024/"><u>[Updated] Boost Creativity with Free Audio Effects Online, In 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-effortless-srt-to-txt-change-up-made-simple-and-swift/"><u>[Updated] Effortless SRT to TXT Change-Up Made Simple and Swift</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-youtube-income-guide-whats-new-in-2024/"><u>[Updated] YouTube Income Guide - What's New, In 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-guffaws-in-grooves-parody-playlist/"><u>2024 Approved Guffaws in Grooves Parody Playlist</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-youtube-earnings-per-thousand-views-explained/"><u>2024 Approved YouTube Earnings Per Thousand Views Explained</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-youtube-mastery-starts-here-building-and-monetizing-your-channel/"><u>2024 Approved YouTube Mastery Starts Here Building and Monetizing Your Channel</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-solutions-to-find-your-vivo-x90s-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Solutions to Find Your Vivo X90S Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-7-top-ways-to-resolve-apple-id-not-active-issue-for-iphone-12-mini-by-drfone-ios/"><u>In 2024, 7 Top Ways To Resolve Apple ID Not Active Issue For iPhone 12 mini</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-navigating-vector-editing-beyond-magixs-domain/"><u>In 2024, Navigating Vector Editing Beyond Magix's Domain</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-in-2024-10-free-online-sticker-makers-to-make-your-own-stickers/"><u>New In 2024, 10 Free Online Sticker Makers to Make Your Own Stickers</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/scrutinizing-wirecast-plus-similar-tools-for-2024/"><u>Scrutinizing WireCast + Similar Tools for 2024</u></a></li>
 </ul></div>
 

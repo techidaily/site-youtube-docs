@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Varied Ideas for Daily Vlogging Talks for 2024"
-date: 2024-12-03T17:40:31.978Z
-updated: 2024-12-07T18:12:25.633Z
+date: 2024-12-15T20:16:37.949Z
+updated: 2024-12-22T19:58:12.062Z
 tags:
   - ai video
   - ai youtube
@@ -51,7 +51,7 @@ The other reason it’s good to have a niche is that you’ll be able to use key
 Here are 4 things to talk about in your daily vlog:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What are you watching/reading?
@@ -66,10 +66,6 @@ By commenting on what you’re watching/reading you have a better chance of capi
 
 Carrying a camera around like Casey may or may not suit your lifestyle, but you can still pick out one story from your day to tell. It doesn’t have to be a major event, and you shouldn’t worry that it won’t be interesting to other people. It’s your personality they’re tuning in for, so even if you’re just talking about a funny thing your cat did it will keep your audience interested because a) it’s you talking about it and b) it gives them a bit of insight into your life.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Whatever You Need to Get Out
 
 _Flula is frequently puzzled by English expressions, like 'Party Pooper', and needs to get his confusion off his chest at odd hours of the day._
@@ -79,6 +75,10 @@ _Flula is frequently puzzled by English expressions, like 'Party Pooper', and ne
 It does not matter what it is that is making you have this strong reaction (unless, again, it’s an actual person who might see your video and cause problems for you). If you’re mad about a real injustice in the world then that’s a great thing to talk about – you might even raise some awareness for the issue – but you can also rant about your favorite flavor of yogurt being cut and that’ll be engaging to viewers too.
 
 Alternatively: you could do a vlog about how happy you are to have gotten engaged or a vlog about how happy you are that it was sunny today, and your enthusiasm will carry your audience through either video with you.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What did you learn today?
 
@@ -97,7 +97,7 @@ The puya chilensis is a plant that ‘eats’ sheep (sheep get stuck to it, star
 Sea monkeys can survive in space.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## EVERYTHING
@@ -105,22 +105,22 @@ Sea monkeys can survive in space.
 You could also just flick the camera on and tell the full story of your day like you’d do in a traditional daily blog. What did you have for breakfast, how was school/work, did you talk to any friends, how was the weather – anything and everything. Generally, these videos can run a bit long and don’t have a lot of snappy editing. They’re faster to make, which is good if you’re doing them every day, but the unpolished nature of them won’t appeal to everyone. It will be exactly what appeals to some people, though.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Customize Your Vlog Stories with Powerful Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **We’ve got a new eBook out!**
 
 It’s got strategies that have worked for other YouTubers, boiled down to simple action steps.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -143,24 +143,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/hannel-ownership-and-revenue-with-2024-ytp-plan/"><u>[New] Channel Ownership & Revenue with 2024 YTP Plan</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-clip-concoction-station/"><u>[New] In 2024, Clip Concoction Station</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/nnovating-your-approach-a-compre-written-by-an-industry-expert-on-effective-youtube-banner-strategies-for-advertisers-for-2024/"><u>[New] Innovating Your Approach A Compre Written by an Industry Expert on Effective YouTube Banner Strategies for Advertisers for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/our-journey-through-the-maze-of-uploading-videos-on-youtube/"><u>[New] Your Journey Through the Maze of Uploading Videos on YouTube</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-how-to-add-music-to-youtubevideo-with-youtube-video-editor-for-2024/"><u>[Updated] How to Add Music to YouTubeVideo with YouTube Video Editor for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-in-2024-breaking-ground-in-editing-an-examination-of-the-vida-app/"><u>[Updated] In 2024, Breaking Ground in Editing An Examination of the Vida App</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-maximizing-income-mastering-short-video-markets-for-2024/"><u>[Updated] Maximizing Income Mastering Short Video Markets for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-virtual-reality-gamers-wealth-for-2024/"><u>[Updated] Virtual Reality Gamers' Wealth for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/a-comprehensive-list-selecting-best-free-srt-translators-for-2024/"><u>A Comprehensive List Selecting Best FREE SRT Translators for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ion-of-chiseled-cheeks-starting-your-youtube-aesthetic-venture-for-2024/"><u>Champion of Chiseled Cheeks Starting Your YouTube Aesthetic Venture for 2024</u></a></li>
-<li><a href="https://win-blog.techidaily.com/how-to-ensure-your-graphics-card-supports-call-of-duty-warzone-on-windows-11/"><u>How To Ensure Your Graphics Card Supports Call of Duty: Warzone on Windows 11</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-xiaomi-redmi-a2plus-phones-by-drfone-android/"><u>In 2024, Top 11 Free Apps to Check IMEI on Xiaomi Redmi A2+ Phones</u></a></li>
-<li><a href="https://extra-information.techidaily.com/leading-tech-in-action-sports-recording/"><u>Leading Tech in Action Sports Recording</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/er-filmmaking-for-channelnode-increase-strategies-for-2024/"><u>Partner Filmmaking for Channelnode Increase Strategies for 2024</u></a></li>
-<li><a href="https://win-superb.techidaily.com/solving-windows-11-safe-mode-issues-a-guide-to-3-efficient-fixes/"><u>Solving Windows 11 Safe Mode Issues: A Guide to 3 Efficient Fixes</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/v-joshis-guide-to-earning/"><u>Sourav Joshi's Guide to Earning</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-in-this-article-we-are-going-to-take-you-through-some-of-the-best-time-lapse-video-editing-software-you-can-find-on-the-market/"><u>Updated 2024 Approved In This Article, We Are Going to Take You Through some of the Best Time-Lapse Video Editing Software, You Can Find on the Market</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-get-your-swap-on-the-best-face-swap-apps-for-mobile-devices/"><u>Updated Get Your Swap On The Best Face Swap Apps for Mobile Devices</u></a></li>
-<li><a href="https://fake-location.techidaily.com/will-the-ipogo-get-you-banned-and-how-to-solve-it-on-xiaomi-redmi-note-13-proplus-5g-drfone-by-drfone-virtual-android/"><u>Will the iPogo Get You Banned and How to Solve It On Xiaomi Redmi Note 13 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ffortless-tutorial-for-top-notch-yt-video-thumbnails/"><u>[New] Effortless Tutorial for Top-Notch YT Video Thumbnails</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-exploring-the-world-of-desktop-capturing-a-sprout-review-for-2024/"><u>[New] Exploring the World of Desktop Capturing - A Sprout Review for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-15-premium-free-music-websites-every-videographer-needs/"><u>[New] In 2024, 15 Premium, Free Music Websites Every Videographer Needs</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/aximizing-earnings-in-beauty-vlogs/"><u>[New] Maximizing Earnings in Beauty Vlogs</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-superior-zero-price-switch-emulators/"><u>[New] Superior Zero Price Switch Emulators</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-purchasing-options-choosing-premium-vs-standard-fixtures-and-whether-they-are-integrated-or-retrofit-options-can-alter-costs/"><u>[Updated] __Purchasing Options__ Choosing Premium Vs. Standard Fixtures and Whether They Are Integrated or Retrofit Options Can Alter Costs</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-best-live-recording-gadgets-for-youtube-content-creators/"><u>[Updated] 2024 Approved Best Live Recording Gadgets for YouTube Content Creators</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-how-to-upload-a-video-from-imovie-to-youtube/"><u>[Updated] In 2024, How to Upload a Video From iMovie to YouTube?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-securely-downloading-youtube-audios-3-easy-and-reliable-methods/"><u>[Updated] Securely Downloading YouTube Audios 3 Easy & Reliable Methods</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-youtube-clips-captured-a-no-cost-screencasting-tutorial/"><u>[Updated] YouTube Clips, Captured A No-Cost Screencasting Tutorial</u></a></li>
+<li><a href="https://extra-information.techidaily.com/3-simple-ways-to-color-grading-in-photoshop-for-2024/"><u>3 Simple Ways to Color Grading in Photoshop for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/exclusive-access-to-pinnacle-android-viewer/"><u>Exclusive Access to Pinnacle Android Viewer</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-contacts-files-from-honor-x7b-by-fonelab-android-recover-contacts/"><u>How To Restore Missing Contacts Files from Honor X7b.</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/mastery-unleashed-top-10-no-cost-mac-painting-tools/"><u>Mastery Unleashed Top 10 No-Cost Mac Painting Tools</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/top-5-must-have-audio-experts-insights-from-zdnet/"><u>Top 5 Must-Have Audio Experts : Insights From ZDNet</u></a></li>
 </ul></div>
 

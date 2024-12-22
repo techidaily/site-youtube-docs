@@ -1,7 +1,7 @@
 ---
 title: "\"From Static to Sprightly  Bouncing Text Animations\""
-date: 2024-12-12T18:19:30.609Z
-updated: 2024-12-13T18:54:32.093Z
+date: 2024-12-17T21:08:06.135Z
+updated: 2024-12-22T17:09:35.707Z
 tags:
   - ai video
   - ai youtube
@@ -52,7 +52,7 @@ In the timeline, double-click the title you just added, use the upper-left secti
 ![Create Bouncing Text video Filmora9](https://images.wondershare.com/filmora/article-images/add-up-down-animation-to-bounce.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 3: Add Shake Filters**
@@ -62,26 +62,18 @@ Go to **Effects** from the standard toolbar, expand the **Filters** category fro
 ![Shake filters in Filmora9](https://images.wondershare.com/filmora/article-images/shake-filter.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You can customize the default effect by double-clicking the shake filter in the timeline, using the sliders in the upper-left area of the interface to make necessary adjustments, and then clicking **OK** to save the changes and to get back to the previous interface.
 
 ![Mild Shake filters adjust](https://images.wondershare.com/filmora/article-images/mild-shake-filter-adjust.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 4: Export the Final Output**
 
 Click **EXPORT** from the top of the interface, go to the **Local** tab in the **Export** box, choose your preferred output format from the list in the left, make required customizations from the right pane, and click **EXPORT** from the bottom-right corner to export the video.
 
 ![Filmora9 Export Options](https://images.wondershare.com/filmora/article-images/export-filmora9-video.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Now, you can add the bouncing text video and the background video to the timeline, and then place the bouncing text video above the background video track.
 
@@ -92,7 +84,7 @@ As explained before, Wondeshare Filmora makes the entire process of creating and
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Method 2: Generate Animated Bouncing Texts Online
@@ -106,6 +98,10 @@ Some most trusted websites to generate **bounce text** are listed below:
 Website: <https://engfto.com/index/create%5Fanimated%5Fbouncing%5Ftext/0-26>
 
 ![Create Animated Bouncing Text with ENGFTO](https://images.wondershare.com/filmora/article-images/engfto-create-animated-bouncing-text.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You can follow the instructions given below to use Engfto to generate bouncing text for your footages:
 
@@ -132,6 +128,10 @@ Launch your favorite web browser and go to <https://loading.io/animation/text/>.
 **Step 2: Customize the Text and Choose Animation Effect**
 
 ![Create Animated Bouncing Text with Loading.io](https://images.wondershare.com/filmora/article-images/create-bouncing-text-with-loadingio.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Use the options available on the webpage to type your text, and change its font, color, background, transparency level etc. Select **Bounce** (or any of its variants) from the **Animation** drop-down list, and adjust the speed using the **Speed** slider.
 
@@ -168,24 +168,22 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/emystifying-the-world-of-youtube-shorts/"><u>[New] Demystifying the World of YouTube Shorts</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-exploring-top-open-source-video-tools-for-pcs-and-macs/"><u>[New] Exploring Top Open Source Video Tools for PCs and Macs</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-making-your-slides-come-alive-with-youtube-in-ppt/"><u>[Updated] 2024 Approved Making Your Slides Come Alive with YouTube in PPT</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-premium-background-music-compilations/"><u>[Updated] 2024 Approved Premium Background Music Compilations</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-best-alternative-top-10-flv-to-youtube-converter-apps-for-2024/"><u>[Updated] Best Alternative Top 10 FLV to YouTube Converter Apps for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-converting-youtube-audio-securely-master-3-proven-techniques-for-2024/"><u>[Updated] Converting YouTube Audio Securely Master 3 Proven Techniques for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-elevate-your-youtube-livestream-game-plan/"><u>[Updated] Elevate Your YouTube Livestream Game Plan</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-how-to-use-the-instagram-question-sticker-the-way-you-may-miss-for-2024/"><u>[Updated] How to Use the Instagram Question Sticker [The Way You May Miss] for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-a-gamers-guide-to-twisting-videos-on-youtube-2e/"><u>[Updated] In 2024, A Gamer's Guide to Twisting Videos on YouTube (2E)</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-mastering-youtube-banner-success-a-complete-strategy/"><u>[Updated] In 2024, Mastering YouTube Banner Success A Complete Strategy</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-settled-evasive-behavior-of-shorts-content/"><u>[Updated] Settled Evasive Behavior of Shorts Content</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-unlocking-youtube-profits-a-comprehensive-manual/"><u>2024 Approved Unlocking YouTube Profits A Comprehensive Manual</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/5yaz55yf44gu44gn44km44ge44gq6z2s56m644g4ic0g44gf44gh44gplus44gh44cm5pif44gu5lplusu5b6p5rov44cn5ywl5oml5pa55rov/"><u>写真のきれいな青空へ - たちまち「星の修復法」入手方法</u></a></li>
-<li><a href="https://win-dash.techidaily.com/comprehensive-tutorial-for-usb-driver-enhancement-in-various-windows-editions/"><u>Comprehensive Tutorial for USB Driver Enhancement in Various Windows Editions</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-hidefake-snapchat-location-on-your-vivo-s17e-drfone-by-drfone-virtual-android/"><u>How to Hide/Fake Snapchat Location on Your Vivo S17e | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fake-snapchat-location-without-jailbreak-on-itel-s23-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location without Jailbreak On Itel S23 | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-navigating-instagram-live-anonymously-a-step-by-step-approach/"><u>In 2024, Navigating Instagram Live Anonymously A Step-by-Step Approach</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-start-saving-smiles-on-youtube-a-beginners-mac-tutorial/"><u>In 2024, Start Saving Smiles on YouTube A Beginner's Mac Tutorial</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ltimate-checklist-for-understanding-the-value-of-youtube-tv-for-2024/"><u>The Ultimate Checklist for Understanding the Value of YouTube TV for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-quick-strategies-for-randomizing-youtube-tracks-across-media/"><u>[New] 2024 Approved Quick Strategies for Randomizing YouTube Tracks Across Media</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-from-social-to-storage-iphone-and-android-gif-savings-for-2024/"><u>[New] From Social to Storage IPhone & Android GIF Savings for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-hazy-days-no-more-ensuring-clean-gopro-images/"><u>[New] In 2024, Hazy Days No More Ensuring Clean GoPro Images</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-prime-mp3-converters-the-ultimate-list-from-youtube/"><u>[New] In 2024, Prime MP3 Converters The Ultimate List From YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-securing-your-youtube-profitability-monetization-auditing-guide/"><u>[Updated] 2024 Approved Securing Your YouTube Profitability Monetization Auditing Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-your-ultimate-playbook-to-monetize-youtube-traffic/"><u>[Updated] In 2024, Your Ultimate Playbook to Monetize Youtube Traffic</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-payment-structure-behind-item-assessment-videos-for-2024/"><u>[Updated] Payment Structure Behind Item Assessment Videos for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-snapshots-secured-techniques-for-instagrams-close-ups-and-distances-for-2024/"><u>[Updated] Snapshots Secured Techniques for Instagram's Close-Ups & Distances for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-desktop-and-mobile-solutions-how-to-rotate-videos-for-instagram/"><u>2024 Approved [Desktop & Mobile Solutions] How to Rotate Videos for Instagram?</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-10-most-popular-beauty-gurus-on-youtube/"><u>2024 Approved 10 Most Popular Beauty Gurus on YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-mastering-hash-tactics-for-thriving-gaming-vids/"><u>2024 Approved Mastering Hash Tactics for Thriving Gaming Vids</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-ranking-the-most-effortlessly-successful-youtube-content/"><u>2024 Approved Ranking the Most Effortlessly Successful YouTube Content</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-the-pathway-to-profitability-navigating-youtube-adsense/"><u>2024 Approved The Pathway to Profitability Navigating YouTube AdSense</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/critical-review-of-best-screen-capture-tools-in-linux/"><u>Critical Review of Best Screen Capture Tools in Linux</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-from-youtube-to-avi-perfect-conversion-tools-revealed/"><u>In 2024, From YouTube to AVI Perfect Conversion Tools Revealed</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-apple-iphone-15-pro-max-by-drfone-ios/"><u>In 2024, Top 11 Free Apps to Check IMEI on Apple iPhone 15 Pro Max</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-ispoofer-update-on-oneplus-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Will iSpoofer update On OnePlus 11 5G | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  From Device Capture to Viral Content  YouTube's Upload Guide\""
-date: 2024-12-02T16:39:46.652Z
-updated: 2024-12-07T16:21:33.473Z
+date: 2024-12-21T20:27:57.561Z
+updated: 2024-12-22T21:22:30.892Z
 tags:
   - ai video
   - ai youtube
@@ -59,10 +59,6 @@ On the **Details** window that appears, add **#Shorts** in the **Title** or **De
 
 ![Mark YouTube Shorts Video in title and description](https://images.wondershare.com/filmora/article-images/mark-shorts-videos-on-youtube-pc.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### Step 3: Publish the Short Video
 
 On the **Visibility** window, choose your preferred radio button from under the **Save or publish** section or select **Schedule** to set a different time when the short video should be published automatically. Finally, click **SAVE** to publish the clip as a short video on YouTube from your computer.
@@ -78,7 +74,7 @@ For Win 7 or later (64-bit)
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -87,7 +83,15 @@ For macOS 10.12 or later
 
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to Upload Short Video on YouTube Mobile App?
 
@@ -104,7 +108,7 @@ The process of **uploading YouTube Shorts** from the mobile app is fairly simple
 ![Select a Video to Upload as Shorts](https://images.wondershare.com/filmora/article-images/select-shorts-videos-to-upload-on-youtube.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 On your Android or iOS smartphone, launch the YouTube app, tap the **+** (**Create**) icon from the bottom, tap **Create a Short** from the **Create** box that pops up from the bottom, tap **Upload** from the bottom-right corner of the next screen, and select and upload a short, 60 seconds video recorded in portrait orientation from your device’s storage to the app.
@@ -120,7 +124,7 @@ On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the b
 Finally tap **UPLOAD** from the top-right corner to upload the short video on YouTube.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Method 2: Record a Short Video and Upload
@@ -132,10 +136,6 @@ Previously, I have introduced [how to record and upload YouTube Shorts videos](h
 Please note you will not see the **Create a Short** option if you are outsides of India.
 
 ![ Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 In the YouTube app, tap the **+** (**Add**) button and select **Create** **a Short**. Please note you will not see the **Create a Short** option if you are outsides of India.
 
@@ -162,7 +162,7 @@ Learning the process of **how to post short videos on YouTube** is fairly simple
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -186,21 +186,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/he-essentials-to-carve-out-your-creative-space-for-2024/"><u>[New] The Essentials to Carve Out Your Creative Space for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-boosting-engagement-and-followers-with-smart-tiktok-hash-usage/"><u>[Updated] 2024 Approved Boosting Engagement & Followers with Smart TikTok Hash Usage</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-finding-your-next-big-idea-in-iconography-at-these-6-places-for-2024/"><u>[Updated] Finding Your Next Big Idea in Iconography at These 6 Places for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-the-ultimate-guide-to-melodic-content-on-instagram/"><u>[Updated] In 2024, The Ultimate Guide to Melodic Content on Instagram</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-top-eight-video-recording-apps/"><u>[Updated] In 2024, Top Eight Video Recording Apps</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-speed-watchers-24-hrs-youtube-chart-leaders-for-2024/"><u>[Updated] Speed Watchers 24-Hrs YouTube Chart Leaders for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-zero-cost-techniques-for-video-and-text-combination-for-2024/"><u>[Updated] Zero-Cost Techniques for Video and Text Combination for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-the-in-depth-technique-for-formulating-youtube-playlists/"><u>2024 Approved The In-Depth Technique for Formulating YouTube Playlists</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/choosing-the-right-video-format-a-comprehensive-guide-on-mp4-vs-mkv/"><u>Choosing the Right Video Format: A Comprehensive Guide on MP4 vs MKV</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/comparing-top-tier-ais-why-you-might-prefer-gemini-to-chatgpt-plus/"><u>Comparing Top-Tier AIs: Why You Might Prefer Gemini to ChatGPT Plus</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ing-the-revised-youtube-earnings-criteria/"><u>Decoding the Revised YouTube Earnings Criteria</u></a></li>
-<li><a href="https://media-tips.techidaily.com/hassle-free-guide-producing-stunning-4k-content-with-your-4k-video-recorder/"><u>Hassle-Free Guide: Producing Stunning 4K Content with Your 4K Video Recorder</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-a-honor-magic5-ultimate-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Honor Magic5 Ultimate Phone That Is Locked | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-enhance-your-media-with-top-free-android-editing-tools/"><u>In 2024, Enhance Your Media with Top Free Android Editing Tools</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/play-store-stuck-on-downloading-of-oneplus-ace-2-pro-7-ways-to-resolve-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Stuck on Downloading Of OnePlus Ace 2 Pro? 7 Ways to Resolve | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/sidestep-mandatory-components-not-available-in-win10win11/"><u>Sidestep Mandatory Components Not Available in WIN10/WIN11</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-from-novice-to-notoriety-steps-for-a-youtube-channel-in-gaming/"><u>[New] In 2024, From Novice to Notoriety Steps for a YouTube Channel in Gaming</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-proven-strategies-for-creating-superb-igtv-videos-on-smartphonesdlsrs/"><u>[New] Proven Strategies for Creating Superb IGTV Videos on Smartphones/DLSRs</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/pgrade-your-content-reach-with-youtube-to-facebook-posting/"><u>[New] Upgrade Your Content Reach with YouTube-to-Facebook Posting</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-achieving-youtube-earnings-excellence-strategies-and-beyond-for-2024/"><u>[Updated] Achieving YouTube Earnings Excellence - Strategies and Beyond for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-broadcasting-strategies-for-vimeo-films/"><u>[Updated] Broadcasting Strategies for Vimeo Films</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-mastering-instagram-reels-adding-your-own-soundtrack/"><u>[Updated] In 2024, Mastering Instagram Reels Adding Your Own Soundtrack</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-steps-for-safe-and-cost-free-vlc-downloads-on-apple-machines/"><u>2024 Approved Steps for Safe and Cost-Free VLC Downloads on Apple Machines</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-transform-your-ride-with-these-top-10-macwindows-srt-boosters/"><u>2024 Approved Transform Your Ride with These Top 10 Mac/Windows SRT Boosters</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/a-comprehensive-guide-to-vpn-tunnels-and-their-various-encryption-techniques/"><u>A Comprehensive Guide to VPN Tunnels and Their Various Encryption Techniques</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/essential-guide-everything-about-samsungs-smart-tv-applications/"><u>Essential Guide: Everything About Samsung's Smart TV Applications</u></a></li>
+<li><a href="https://article-posts.techidaily.com/how-to-design-an-eye-catching-logo-for-podcasts-for-2024/"><u>How to Design an Eye-Catching Logo for Podcasts for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-accelerating-artistic-outputs-fast-tracked-google-collage-creation/"><u>In 2024, Accelerating Artistic Outputs Fast-Tracked Google Collage Creation</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-top-ten-video-cards-selection-guide-for-youtube-aficionados/"><u>In 2024, Top-Ten Video Cards Selection Guide for YouTube Aficionados</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/athway-to-perfect-audio-placement-on-youtube/"><u>The Pathway to Perfect Audio Placement on YouTube</u></a></li>
 </ul></div>
 

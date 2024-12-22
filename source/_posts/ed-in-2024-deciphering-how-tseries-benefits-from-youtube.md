@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Deciphering How TSeries Benefits From YouTube"
-date: 2024-11-30T17:07:10.525Z
-updated: 2024-12-07T18:45:19.132Z
+date: 2024-12-20T22:36:36.835Z
+updated: 2024-12-22T19:19:40.394Z
 tags:
   - ai video
   - ai youtube
@@ -31,10 +31,6 @@ So, if you have the same question, then, you’ve come to the right page to find
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: Information Box on T Series
 
 Before we reveal all you need to know about T-Series YouTube income, here is an overview of Who T-Series is.
@@ -55,10 +51,6 @@ Before we reveal all you need to know about T-Series YouTube income, here is an 
 | **Awards and Recognition**    | Creator Awards                                                                            |
 
 Now you have an overview of what T-Series YouTube channel income is, read on to discover more
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: T-Series YouTube Earning and Stats
 
@@ -103,6 +95,10 @@ With over 225 million subscribers and still counting, T-Series YouTube channel i
 
 Having a huge YouTube subscriber base is one thing, but being able to deliver quality video content that anyone would love to watch is different. T-Series has been consistent in delivering quality videos, that immediately he uploads a new video on YouTube, he starts getting massive views instantly. Many folks are always eager to see his next upload on YouTube. This has been the same thing for T-Series over the past years, and it has helped him gained more and more popularity.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Bonus Tip: How to be a YouTuber and Make Videos like t series
 
 To be a YouTube-like T-Series you don't only need to put in the hard work in what you do, you also need to be smart and stay consistent. Plus, you must acquire advanced video editing software that will help you create videos that will make you stand out in the industry. One such video editing software is Wondershare’s Filmora video editor.
@@ -129,10 +125,6 @@ Step2 Navigate to the top of the screen and select Effects. Choose AI Portrait f
 
 ![select ai portrait filmora](https://images.wondershare.com/filmora/article-images/2022/11/what-is-t-series-income-on-youtube-5.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 You can also change the AI Portrait effect settings. To do that, double-click on the effect from the timeline to prompt a pop-up window. Apply the AI Portrait effect from there.
 
 ![adjust ai portrait effect filmora](https://images.wondershare.com/filmora/article-images/2022/11/what-is-t-series-income-on-youtube-6.jpg)
@@ -144,6 +136,10 @@ Step3 You can add royalty-free music to your YouTube video by clicking Audio fro
 To adjust your audio settings, double-click the audio clip from the timeline and use the relevant button to balance audio fade-in and fade-out, volume, pitch, etc.
 
 ![double-click the audio clip](https://images.wondershare.com/filmora/article-images/2022/11/what-is-t-series-income-on-youtube-8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step4 Another crucial thing you need to do is to add Subscribe watermark. To do this, click the >> icon next to Export from the top of the screen and select Element.
 
@@ -159,17 +155,9 @@ Step6 After you’re done with the editing, click the Export button from the top
 
 ![preview edited video filmora](https://images.wondershare.com/filmora/article-images/2022/11/what-is-t-series-income-on-youtube-11.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Spet 7:** A pop-up window will appear on your PC screen. Select where you want to save the edited video file from the Folder Path section. Then, enter the file name in Lable. Click Export to finish.
 
 ![export edited videos filmora](https://images.wondershare.com/filmora/article-images/2022/11/what-is-t-series-income-on-youtube-12.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -200,10 +188,6 @@ Before we reveal all you need to know about T-Series YouTube income, here is an 
 
 Now you have an overview of what T-Series YouTube channel income is, read on to discover more
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: T-Series YouTube Earning and Stats
 
 T-Series main source of revenue is the views and adverts, and as of when this article was written, research shows that T-Series attracts more than 2.15 billion views per month. Since a YouTube channel could earn an average of $3 to $5 per one thousand views, it can be estimated that T-Series earn a monthly income of up to $8.6 Million per month, and could make up to over 128 Million per year. Do you still want to find out more? Check out the table on T-Series stats;
@@ -221,15 +205,15 @@ T-Series is very popular on all social media platforms, including Facebook, Twit
 
 ![t-series youtube channel 1](https://images.wondershare.com/filmora/article-images/2022/11/what-is-t-series-income-on-youtube-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The good thing back then was that T-Series was the first of its kind, and the devotional music market was really big, especially amongst old folks. So, it was easy for T-Series music to reach the right audience within a short time, and it had its first breakthrough in the late 1980s.
 
 Fast forward to 2004, telecommunication companies were having complaints from mobile phone users who were not satisfied with their ringtones. So, T-Series became their plug and started 30-second of their music to them. Then, in 2009, when YouTube was launched in India, T-Series discovered lots of his music where being uploaded on YouTube illegally. This led to a ruling against YouTube, and in January 2011, T-Series published its first video on YouTube.
 
 Since 2011 till now, T-Series has experienced tremendous growth. T-Series has up to 29 different YouTube channels with total subscribers of 225million with over a billion views monthly, making them one of the top-leading YouTube channels globally. Right now,
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: Why Is T-Series Trending on YouTube?
 
@@ -240,7 +224,7 @@ Below are the three main things why T-Series is always trending on YouTube;
 ![t-series youtube channel 2](https://images.wondershare.com/filmora/article-images/2022/11/what-is-t-series-income-on-youtube-2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Huge YouTube Channel Monthly Visits
@@ -256,7 +240,7 @@ With over 225 million subscribers and still counting, T-Series YouTube channel i
 Having a huge YouTube subscriber base is one thing, but being able to deliver quality video content that anyone would love to watch is different. T-Series has been consistent in delivering quality videos, that immediately he uploads a new video on YouTube, he starts getting massive views instantly. Many folks are always eager to see his next upload on YouTube. This has been the same thing for T-Series over the past years, and it has helped him gained more and more popularity.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Bonus Tip: How to be a YouTuber and Make Videos like t series
@@ -286,7 +270,7 @@ Step2 Navigate to the top of the screen and select Effects. Choose AI Portrait f
 ![select ai portrait filmora](https://images.wondershare.com/filmora/article-images/2022/11/what-is-t-series-income-on-youtube-5.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You can also change the AI Portrait effect settings. To do that, double-click on the effect from the timeline to prompt a pop-up window. Apply the AI Portrait effect from there.
@@ -301,6 +285,10 @@ To adjust your audio settings, double-click the audio clip from the timeline and
 
 ![double-click the audio clip](https://images.wondershare.com/filmora/article-images/2022/11/what-is-t-series-income-on-youtube-8.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step4 Another crucial thing you need to do is to add Subscribe watermark. To do this, click the >> icon next to Export from the top of the screen and select Element.
 
 ![click element filmora](https://images.wondershare.com/filmora/article-images/2022/11/what-is-t-series-income-on-youtube-9.jpg)
@@ -309,15 +297,27 @@ Locate and click ‘Social Media Show Element 07’ Effects. Drag-n-drop the sel
 
 ![add subscribe watermark filmora](https://images.wondershare.com/filmora/article-images/2022/11/what-is-t-series-income-on-youtube-10.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step5 Change the position where the Subscribe watermark should appear in your video. Then, play the video to preview it.
 
 Step6 After you’re done with the editing, click the Export button from the top bar and choose Burn DVD from the drop-down list that shows up.
 
 ![preview edited video filmora](https://images.wondershare.com/filmora/article-images/2022/11/what-is-t-series-income-on-youtube-11.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Spet 7:** A pop-up window will appear on your PC screen. Select where you want to save the edited video file from the Folder Path section. Then, enter the file name in Lable. Click Export to finish.
 
 ![export edited videos filmora](https://images.wondershare.com/filmora/article-images/2022/11/what-is-t-series-income-on-youtube-12.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -348,21 +348,22 @@ That’s all on T-Series income on YouTube. T-Series did not just become success
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/lternative-cinema-highlights-audiences/"><u>[New] Alternative Cinema Highlights Audiences</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-essential-comprehensive-free-livestream-software-guide-for-all-systems-for-2024/"><u>[New] Essential Comprehensive Free Livestream Software Guide for All Systems for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-how-to-manipulate-your-instagram-storys-playback-velocity/"><u>[New] How to Manipulate Your Instagram Story's Playback Velocity</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-cutting-to-a-consensus-in-news-endings/"><u>[New] In 2024, Cutting to a Consensus in News Endings</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-sync-splice-and-spruce-pro-video-editing-in-one-tool/"><u>[Updated] 2024 Approved Sync, Splice & Spruce Pro Video Editing in One Tool</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-10-strategies-to-make-money-on-youtube-shorts-easily/"><u>[Updated] In 2024, 10 Strategies to Make Money on YouTube Shorts Easily</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-chilling-yet-heating-top-5-winter-scenes-for-vids/"><u>[Updated] In 2024, Chilling Yet Heating Top 5 Winter Scenes for Vids</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-exploring-2023s-standout-professional-360cameras/"><u>[Updated] In 2024, Exploring 2023'S Standout Professional 360°Cameras</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-premium-timepieces-for-your-dream-wedding-on-smartphones/"><u>[Updated] Premium Timepieces for Your Dream Wedding on Smartphones</u></a></li>
-<li><a href="https://iphone-location.techidaily.com/find-my-app-troubleshooting-no-location-found-vs-location-not-available-and-how-to-fix-them-on-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>Find My App Troubleshooting No Location Found vs. Location Not Available & How to Fix Them On Apple iPhone 8 | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fix-itel-a60-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>How to Fix Itel A60 Find My Friends No Location Found? | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-repair-iphone-12-mini-system-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair iPhone 12 mini System? | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-video-content-conundrum-youtubes-shorts-versus-tiktoks-the-decision/"><u>In 2024, Video Content Conundrum YouTubes Shorts Versus TikToks – The Decision</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/professional-video-editor-essentials-top-5-macos-sierra-software-for-2024/"><u>Professional Video Editor Essentials Top 5 macOS Sierra Software for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/restoring-ragnarok-overcoming-x-script-woes/"><u>Restoring Ragnarok: Overcoming X-Script Woes</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/king-views-with-optimal-thumbnail-design-for-2024/"><u>Unlocking Views with Optimal Thumbnail Design for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-action-camera-buying-for-the-absolute-novice-2023-guide-for-2024/"><u>[New] Action Camera Buying for the Absolute Novice - 2023 Guide for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-best-8-stream-modifiers-for-flawless-webcam-videos/"><u>[New] Best 8 Stream Modifiers for Flawless Webcam Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/irect-link-between-spotify-and-youtube-the-top-tools-for-music-sharing/"><u>[New] Direct Link Between Spotify and YouTube The Top Tools for Music Sharing</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-engage-viewers-with-an-effortless-youtube-animated-subscribe-button-using-filmora/"><u>[New] In 2024, Engage Viewers with an Effortless YouTube Animated Subscribe Button Using Filmora</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-8-tips-on-how-to-vlog-confidently-like-popular-youtubers/"><u>[Updated] 2024 Approved 8 Tips on How to Vlog Confidently Like Popular YouTubers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-cheap-microphones-for-youtubers-on-a-budget/"><u>[Updated] 2024 Approved Cheap Microphones for Youtubers on a Budget</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-video-quality-debate-the-pros-of-30-vs-60-fps/"><u>[Updated] 2024 Approved Video Quality Debate The Pros of 30 Vs. 60 Fps</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-boosting-your-video-income-on-youtube-essentials-for-2024/"><u>[Updated] Boosting Your Video Income on Youtube - Essentials for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-direct-youtube-tunes-to-mp3s-online-and-offline-options/"><u>[Updated] In 2024, Direct YouTube Tunes to MP3s Online & Offline Options</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-how-to-clear-youtube-watch-later-playlist/"><u>[Updated] In 2024, How to Clear YouTube Watch Later Playlist</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-online-overtures-10-influential-youtube-stars/"><u>[Updated] Online Overtures 10 Influential YouTube Stars</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-quick-paced-fortnite-visual-artistry-for-2024/"><u>[Updated] Quick-Paced Fortnite Visual Artistry for 2024</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/2024-update-printers-prints-every-page/"><u>2024 Update: Printers Prints Every Page</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/1719333011753-4-proven-strategies-for-enhancing-window-shot-taking-on-windows-os/"><u>4 Proven Strategies for Enhancing Window Shot Taking on Windows OS.</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-fix-locked-apple-id-from-apple-iphone-se-2022-by-drfone-ios/"><u>How to Fix Locked Apple ID from Apple iPhone SE (2022)</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/tream-showdown-fb-live-yt-live-and-twittv-for-2024/"><u>Livestream Showdown FB Live, YT Live, & TwitTV for 2024</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/xbox-360-festplatte-schritt-fur-schritt-leitfaden-zur-wiederherstellung-verlorener-daten/"><u>Xbox 360 Festplatte: Schritt-Für-Schritt Leitfaden Zur Wiederherstellung Verlorener Daten</u></a></li>
 </ul></div>
 

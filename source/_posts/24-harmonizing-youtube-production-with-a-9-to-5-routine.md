@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Harmonizing YouTube Production with a 9-to-5 Routine\""
-date: 2024-12-06T18:06:07.978Z
-updated: 2024-12-07T16:12:03.670Z
+date: 2024-12-20T19:45:01.697Z
+updated: 2024-12-22T21:31:02.189Z
 tags:
   - ai video
   - ai youtube
@@ -56,19 +56,23 @@ I know what you’re thinking - “What?! That’s insane.” The first piece of
 A notebook planner is essential for keeping my life organized and on track. When I first started my channel, I had a separate planner just for my YouTube videos – this didn’t work cause I never looked at it. It worked best when I kept track of my entire life, including YouTube, in one planner since I look at it every day. Then I could also see which days I wanted to post a video or see what topics worked best around specific holidays and such.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3. Check the weather forecast in advance
 
 When starting a YouTube channel, many YouTubers like myself don’t have the money to afford all the fancy lighting you see other creators using. [I use natural light](https://tools.techidaily.com/wondershare/filmora/download/), which means I have to make sure it’s going to be a sunny day or at least bright enough for my videos to be clear. I check the forecast for the week on Sunday evenings so I can plan out my best days to film, this keeps my video shooting schedule productive.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4. Create 3-5 videos in advance
 
 This week I am on PTO (paid time off) which has given me a lot more time to film videos I can post for next month. Life happens and it can set you back on filming. If you happen to get a major break in your workweek, use the opportunity to film a bunch of videos, edit them, and have them waiting in your pocket. I filmed three videos in one day – I planned and set-up the night before, which made filming much smoother. Trust me, this tip works wonders!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5. Be creative! Create audios (audio-only videos)
@@ -78,7 +82,7 @@ In the event that life gets too crazy, it’s perfectly fine to do just audio. M
 I hope these tips can help you on your journey with YouTube while still working a full-time job.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Make a YouTube Video with Wondershare Filmora
@@ -89,14 +93,10 @@ Just try it and create your own YouTube video!
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -120,20 +120,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/asing-into-your-youtube-watches-3-methods-50-chars/"><u>[New] Easing Into Your YouTube Watches 3 Methods (50 Chars)</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-hitting-the-high-scores-with-youtube-gaming-livestreams/"><u>[Updated] 2024 Approved Hitting the High Scores with YouTube Gaming Livestreams</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-quicksilver-chords-shorts-actor-melodies/"><u>[Updated] 2024 Approved Quicksilver Chords Shorts' Actor Melodies</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-flair-and-finesse-in-your-gaming-youtube-channel-for-2024/"><u>[Updated] Flair and Finesse in Your Gaming YouTube Channel for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-optimal-7-dslr-selections-for-in-depth-vlog-documentaries/"><u>[Updated] In 2024, Optimal 7 DSLR Selections For In-Depth Vlog Documentaries</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-premium-selection-top-5-budget-friendly-vecto-portals/"><u>2024 Approved Premium Selection – Top 5 Budget-Friendly Vecto Portals</u></a></li>
-<li><a href="https://win-able.techidaily.com/a-guide-to-resolving-lower-fps-in-farming-simulator-22-when-played-on-a-personal-computer/"><u>A Guide to Resolving Lower FPS in Farming Simulator 22 When Played on a Personal Computer</u></a></li>
-<li><a href="https://review-topics.techidaily.com/edit-and-send-fake-location-on-telegram-for-your-zte-axon-40-lite-in-3-ways-drfone-by-drfone-virtual-android/"><u>Edit and Send Fake Location on Telegram For your ZTE Axon 40 Lite in 3 Ways | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>How to Come up With the Best Pokemon Team On Apple iPhone 13 Pro Max? | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-samsung-galaxy-z-fold-5-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed Guide on Faking Your Location in Mozilla Firefox On Samsung Galaxy Z Fold 5 | Dr.fone</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-clash-of-legends-5-iconic-fist-fighters-in-virtual-world/"><u>In 2024, Clash of Legends 5 Iconic Fist-Fighters in Virtual World</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-frp-on-motorola-defy-2-by-drfone-android/"><u>In 2024, How to Bypass FRP on Motorola Defy 2?</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-mastering-thumbnail-extraction-from-youtube-on-multiple-platforms/"><u>In 2024, Mastering Thumbnail Extraction From Youtube on Multiple Platforms</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-premium-audio-modification-gadgets-for-youtube-go-getters/"><u>In 2024, Premium Audio Modification Gadgets for YouTube Go-Getters</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/new-edition-the-ultimate-guide-to-final-cut-pro-x-keyboard-shortcuts-40-must-knows/"><u>New Edition The Ultimate Guide to Final Cut Pro X Keyboard Shortcuts (40 Must-Knows)</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-how-to-integrate-youtube-playlists-into-your-site/"><u>[New] In 2024, How to Integrate YouTube Playlists Into Your Site</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-modifying-facial-gender-on-snapchatinstagramfacebook-photos/"><u>[New] In 2024, Modifying Facial Gender on Snapchat/Instagram/Facebook Photos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-youtube-mastery-tips-for-producing-cutting-edge-videos/"><u>[New] In 2024, YouTube Mastery Tips for Producing Cutting-Edge Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ncorporating-youtubes-creative-commons-in-video-making-for-2024/"><u>[New] Incorporating YouTube's Creative Commons in Video Making for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-break-free-from-linearity-mastering-jump-cut-transitions/"><u>[Updated] In 2024, Break Free From Linearity Mastering Jump Cut Transitions</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/1725288768642-winx-hd-video-converter-deluxe/"><u>高速ビデオ変換のコツ - WinX HD Video Converter Deluxe 使用法</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-7-phone-number-locators-to-track-oppo-a59-5g-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Phone Number Locators To Track Oppo A59 5G Location | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/top-12-free-online-photo-collage-makers-for-pc-movavis-ultimate-selection/"><u>Top 12 Free Online Photo Collage Makers for PC - Movavi's Ultimate Selection</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/unlock-hassle-free-music-experience-play-any-mpg-audio-on-android-using-our-superior-mpg-player-app/"><u>Unlock Hassle-Free Music Experience: Play Any MPG Audio on Android Using Our Superior MPG Player App</u></a></li>
+<li><a href="https://change-location.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-vivo-t2x-5g-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Vivo T2x 5G | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  How to Make YouTube Banners and Thumbnails\""
-date: 2024-08-28T17:11:13.801Z
-updated: 2024-08-29T17:11:13.801Z
+date: 2024-12-21T22:00:34.029Z
+updated: 2024-12-22T21:57:54.655Z
 tags:
   - ai video
   - ai youtube
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/bedf5c8b53d1004ac14c8188bc2b10e8fa9f12bca
  Mar 27, 2024• Proven solutions
 
 The art on your [YouTube channel](https://tools.techidaily.com/wondershare/filmora/download/) – banners, thumbnails, icons, and watermarks – will help to determine how viewers feel about your vlog. If your art does not look like it all goes together then people will get a sloppy, amateurish, impression of your channel. However, if your different pieces of channel art all seem to complement each other and match the tone and theme of your channel then it will help viewers to have a pleasant browsing experience. They will get the impression that you take your YouTube channel seriously and that they can trust you as a source of information, comedy, or general entertainment.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Make YouTube Banners and Thumbnails
 
@@ -65,13 +69,25 @@ There are sites online that will allow you to edit images and use them in templa
 
 ![banner n thumb Canva](https://images.wondershare.com/filmora/article-images/banner-n-thumb-Canva.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Canva** has templates you can use to create YouTube banners, as well as a variety of stock images you can use in combination with your own when creating channel art. It is free to edit images on Canva, but they do have some premium features which cost $1 each to access. This service has both a desktop version and an iPad app.
 
 ![banner n thumb PicMonkey](https://images.wondershare.com/filmora/article-images/banner-n-thumb-PicMonkey.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **PicMonkey** lets you import images from your computer or social media accounts, edit them, and use them in templates for YouTube banners or other kinds of social media graphics. PicMonkey is free to use, but you can only access their more advanced editing tools if you buy a paid subscription. Monthly subscriptions are $4.99 per month, and yearly subscriptions are $2.75 per month.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -79,14 +95,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -95,8 +108,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-what-makes-youtube-and-dailymention-stand-out/"><u>[New] In 2024, What Makes YouTube and DailyMention Stand Out?</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-whats-youtube-creative-commons-and-how-to-use-it-to-make-video/"><u>[Updated] 2024 Approved What's YouTube Creative Commons and How to Use It to Make Video</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-jumpstart-your-video-projects-access-free-stunning-banner-templates/"><u>[Updated] Jumpstart Your Video Projects Access Free, Stunning Banner Templates</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-leading-resource-hubs-for-youtube-intro-files/"><u>[Updated] Leading Resource Hubs for YouTube Intro Files</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-unlock-the-power-of-persuasion-perfecting-your-shorts-visual-hook-for-2024/"><u>[Updated] Unlock the Power of Persuasion Perfecting Your Shorts' Visual Hook for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-swift-techniques-mastering-effective-double-exposure/"><u>2024 Approved Swift Techniques Mastering Effective Double Exposure</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/effective-ways-to-troubleshoot-and-resolve-steams-disc-writing-issues/"><u>Effective Ways to Troubleshoot and Resolve Steam's Disc Writing Issues</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-change-xiaomi-redmi-note-13-pro-5g-lock-screen-clock-in-seconds-by-drfone-android/"><u>How To Change Xiaomi Redmi Note 13 Pro 5G Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://win-forum.techidaily.com/how-to-force-uninstall-a-program-that-wont-uninstall/"><u>How to Force Uninstall a Program that Won’t Uninstall</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-efficiently-change-your-facebook-videos-into-mp3-songs/"><u>In 2024, Efficiently Change Your Facebook Videos Into MP3 Songs</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-streamlining-content-delivery-the-definitive-youtube-video-upload-guide/"><u>In 2024, Streamlining Content Delivery The Definitive YouTube Video Upload Guide</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-waht-is-ai-pixel-art-generator/"><u>New Waht Is AI Pixel Art Generator?</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/revolutionary-ios-gaming-apples-best-vr-apps/"><u>Revolutionary iOS Gaming Apple's Best VR Apps</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/tensile-strength-measures-how-much-pulling-force-a-material-can-withstand-before-failing/"><u>Tensile Strength Measures How Much Pulling Force a Material Can Withstand Before Failing.</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/upgrade-to-latest-dell-g3-graphics-card-drivers-for-optimal-gaming-results/"><u>Upgrade to Latest Dell G3 Graphics Card Drivers for Optimal Gaming Results</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

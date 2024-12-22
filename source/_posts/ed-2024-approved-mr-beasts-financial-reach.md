@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Mr. Beast's Financial Reach\""
-date: 2024-12-08T18:55:09.268Z
-updated: 2024-12-13T18:24:17.518Z
+date: 2024-12-19T17:03:48.678Z
+updated: 2024-12-22T16:34:02.443Z
 tags:
   - ai video
   - ai youtube
@@ -51,19 +51,11 @@ Here’s a quick biography of Mr. Beast.
 
 After getting an overview of who he is, the following article will reveal what makes Jimmy so famous on YouTube and how much money Mr. Beast makes from YouTube.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: Mr. Beast YouTube Income
 
 Mr. Beast is the second most known YouTuber in the world, in terms of the number of subscribers. He has established himself as a successful YouTube at such a young age by earning around $30 million yearly, which makes his bank accounts boil.
 
 ![mrbeast youtube channel](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-2.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Mr. Beast’s YouTube income is around $3 Million per month, which mostly goes back into making the videos. Most of his income is generated through ads, sponsored posts, and brand deals.
 
@@ -81,10 +73,6 @@ As you know, YouTube operates on a cbasis. This means per 1000 views, you can ex
 ![mr beast wealth growth over the years](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-3.jpg)
 
 The data represents Mr. Beast’s YouTube earning of last 6 years. His earnings were substantially low since the start of his YouTube career in early 2017 when he posted his first video of [counting 100,000](https://www.youtube.com/watch?v=xWcldHxHFpo). However, it began to increase with time.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: Why is Mr. Beast Trending on YouTube?
 
@@ -172,11 +160,19 @@ This software gives easy access to videos necessary for the edit and helps you m
 
 ![import files](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step2 Insert the video in timelines
 
 To insert a video in the timeline section, drag and drop the files from the media library that will serve as the background video in the first track, then drag and drop another video that you want to add on top of the background video in the second track.
 
 ![insert the video in timelines](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-6.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##### Step3 Alter Speed and Duration Settings
 
@@ -192,6 +188,10 @@ You can also access the editing interface to adjust the position of the video on
 
 ![adjust the position](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-8.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step5 Advance editing
 
 Some advanced editing can also be done to make the video more impressive. Double-click the video to open the editing panel. You can carry out multiple tasks like
@@ -200,21 +200,17 @@ Some advanced editing can also be done to make the video more impressive. Double
 
 ![applying motion effects](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-9.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 2\. Adjust the tone of video
 
 ![adjusting the tone](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-10.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 3\. Change the colors of video
 
 ![adjust the colors of video](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-11.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 4\. Play with the audio.
 
@@ -252,10 +248,6 @@ Find multiple elements from the Element section beside the effects and transitio
 
 ![filmora elements](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-16.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Transition:**
 
 Transition smoothens the video, especially when various clips are combined. Use transitions from the Filmora Transition section and set the stage for the next scene, convey the mood and smoothen your YouTube video.
@@ -269,6 +261,10 @@ The presence of this library reduces the labor of finding images on the internet
 The video is saved by simply clicking ‘ Export.’ You can always share the video online or offline, either publish directly on social media or save it on your computer for later upload.
 
 ![export video](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-18.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The quality content that you obtain from Filmora can now be used to inspire millions of viewers out there. You are just an upload away!
 
@@ -285,6 +281,10 @@ No doubt, Mr. Beast has become a leading artist on this platform and made a trem
 Part 1: Who is Mr. Beast?
 
 ![mr beast](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Jimmy Donaldson, famously known as Mr. Beast, is a sensational young talent who got renowned due to his YouTube channel. His content comprises mainly Gameplay Videos, Worst intros, and much more. He’s also appreciated for his philanthropy and his deep love for charity.
 
@@ -304,10 +304,6 @@ Here’s a quick biography of Mr. Beast.
 
 After getting an overview of who he is, the following article will reveal what makes Jimmy so famous on YouTube and how much money Mr. Beast makes from YouTube.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: Mr. Beast YouTube Income
 
 Mr. Beast is the second most known YouTuber in the world, in terms of the number of subscribers. He has established himself as a successful YouTube at such a young age by earning around $30 million yearly, which makes his bank accounts boil.
@@ -417,6 +413,10 @@ This software gives easy access to videos necessary for the edit and helps you m
 
 ![import files](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step2 Insert the video in timelines
 
 To insert a video in the timeline section, drag and drop the files from the media library that will serve as the background video in the first track, then drag and drop another video that you want to add on top of the background video in the second track.
@@ -424,7 +424,7 @@ To insert a video in the timeline section, drag and drop the files from the medi
 ![insert the video in timelines](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-6.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ##### Step3 Alter Speed and Duration Settings
@@ -434,10 +434,6 @@ You may alter the duration of the video using the Speed and Duration Settings.
 Similarly, if you want to add more than one video together, you can carry out the same process on multiple tracks to share the same frame.
 
 ![speed and duration settings](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-7.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ##### Step4 Adjust the size and positioning of the video
 
@@ -464,6 +460,10 @@ Some advanced editing can also be done to make the video more impressive. Double
 4\. Play with the audio.
 
 ![play with the audio](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-12.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Filmora also has the feature of applying masks to the video; these come in different shapes and positions and can be adjusted accordingly.
 
@@ -511,11 +511,11 @@ The video is saved by simply clicking ‘ Export.’ You can always share the vi
 
 ![export video](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-18.jpg)
 
-The quality content that you obtain from Filmora can now be used to inspire millions of viewers out there. You are just an upload away!
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+The quality content that you obtain from Filmora can now be used to inspire millions of viewers out there. You are just an upload away!
 
 ## Final Words
 
@@ -548,24 +548,21 @@ No doubt, Mr. Beast has become a leading artist on this platform and made a trem
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-how-to-produce-high-impact-low-cost-youtube-ads/"><u>[New] In 2024, How to Produce High-Impact, Low-Cost YouTube Ads?</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-unveil-the-potential-of-zoom-filters-for-excellence/"><u>[New] In 2024, Unveil the Potential of Zoom Filters for Excellence</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/outube-tv-explained-essential-knowledge-for-all-viewers/"><u>[New] YouTube TV Explained Essential Knowledge for All Viewers</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-perfecting-audio-quality-for-your-youtube-channel/"><u>[Updated] 2024 Approved Perfecting Audio Quality for Your YouTube Channel</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-perfect-pixels-in-a-minute-quick-fixes-with-studio-editor/"><u>[Updated] Perfect Pixels in a Minute Quick Fixes with Studio Editor</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-pro-video-gear-the-ultimate-stabilizers-selection-for-2024/"><u>[Updated] Pro Video Gear – The Ultimate Stabilizers Selection for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/p-dive-into-youtube-view-counts-and-more/"><u>A Deep Dive Into YouTube View Counts and More</u></a></li>
-<li><a href="https://win-dash.techidaily.com/1722970799232-amd-ryzen-5-2500u-boost-your-system-with-latest-drivers-today/"><u>AMD Ryzen 5 2500U - Boost Your System with Latest Drivers Today!</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/detecting-if-someones-using-an-airtag-on-you-expert-guide/"><u>Detecting If Someone's Using an AirTag on You | Expert Guide</u></a></li>
-<li><a href="https://win-blog.techidaily.com/1723012150791-download-and-dive-into-the-post-apocalyptic-world-days-gone-arrives-on-pc/"><u>Download and Dive Into the Post-Apocalyptic World: 'Days Gone' Arrives on PC!</u></a></li>
-<li><a href="https://driver-download.techidaily.com/download-the-latest-dell-networking-drivers-compatible-with-windows-7/"><u>Download the Latest Dell Networking Drivers Compatible with Windows 7</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/t-tactics-optimizing-freefire-video-content-for-2024/"><u>Expert Tactics Optimizing FreeFire Video Content for 2024</u></a></li>
-<li><a href="https://review-topics.techidaily.com/get-your-high-end-machine-with-less-clutter-maingears-innovative-zero-series-starts-at-a-competitive-price-of-1399/"><u>Get Your High-End Machine with Less Clutter: Maingear's Innovative Zero Series Starts at a Competitive Price of $1,399</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-seamlessly-transfer-spotify-songs-to-youtube-with-these-tools/"><u>In 2024, Seamlessly Transfer Spotify Songs to YouTube with These Tools</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/mastering-airborne-photography-an-in-depth-review-of-the-dji-mavic-3/"><u>Mastering Airborne Photography: An In-Depth Review of the DJI Mavic 3</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ring-tagging-elevate-your-youtube-content/"><u>Mastering Tagging Elevate Your YouTube Content</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/tweet-visionary-free-transformation-of-youtube-vids-into-tweenish-graphics/"><u>Tweet Visionary Free Transformation of YouTube Vids Into Tweenish Graphics</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/sh-the-power-of-your-youtube-channel-with-expert-editing-techniques-for-2024/"><u>Unleash the Power of Your YouTube Channel with Expert Editing Techniques for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/unveiling-quantum-hdr-essentials/"><u>Unveiling Quantum HDR Essentials</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-a-step-by-step-framework-for-engaging-fb-giving-campaigns-for-2024/"><u>[New] A Step-by-Step Framework for Engaging FB Giving Campaigns for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ye-on-the-screen-youtube-journey-comparison-from-creator-to-competitor-for-2024/"><u>[New] Eye on the Screen YouTube Journey Comparison From Creator to Competitor for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-interpreting-user-inactivity-could-it-be-a-blocked-status/"><u>[New] Interpreting User Inactivity Could It Be a Blocked Status?</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-enhancing-viewership-maintaining-youtubes-creative-commons-for-2024/"><u>[Updated] Enhancing Viewership Maintaining YouTube's Creative Commons for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-expertly-lit-the-17-must-haves-for-youtubers/"><u>[Updated] Expertly Lit The 17 Must-Haves for Youtubers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-harnessing-the-power-of-youtubes-seo-keywords/"><u>[Updated] In 2024, Harnessing the Power of YouTube's SEO Keywords</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-mastering-the-art-of-youtube-intros-tips-and-tricks/"><u>[Updated] In 2024, Mastering the Art of YouTube Intros (Tips & Tricks)</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-sourav-joshis-roadmap-to-financial-freedom-via-youtube/"><u>[Updated] In 2024, Sourav Joshi's Roadmap to Financial Freedom via YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-premier-gamers-streaming-software-for-2024/"><u>[Updated] Premier Gamers' Streaming Software for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-prioritize-privacy-in-conversations-the-best-10-free-secure-mobile-calling-apps-for-iosandroid-for-2024/"><u>[Updated] Prioritize Privacy in Conversations – The Best 10 Free, Secure Mobile Calling Apps for iOS/Android for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-top-video-editors-for-youtube-on-the-houseno-cost-included/"><u>2024 Approved Top Video Editors for YouTube on the House—No Cost Included</u></a></li>
+<li><a href="https://discover-docs.techidaily.com/does-a-defective-processor-risk-harm-to-your-pcs-inner-workings-as-explored-by-yl-tech-solutions/"><u>Does a Defective Processor Risk Harm to Your PC's Inner Workings, as Explored by YL Tech Solutions</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-can-i-unlock-my-apple-iphone-11-pro-max-after-forgetting-my-pin-code-drfone-by-drfone-ios/"><u>In 2024, How Can I Unlock My Apple iPhone 11 Pro Max After Forgetting my PIN Code? | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-key-youtube-policies-every-channel-owner-must-understand/"><u>In 2024, Key YouTube Policies Every Channel Owner Must Understand</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-videos-from-vivo-y78t-by-fonelab-android-recover-video/"><u>The way to get back lost videos from Vivo Y78t</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/top-9-risks-why-relying-on-ai-for-mental-health-support-can-be-hazardous/"><u>Top 9 Risks: Why Relying on AI for Mental Health Support Can Be Hazardous</u></a></li>
 </ul></div>
 

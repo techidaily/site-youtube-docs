@@ -1,7 +1,7 @@
 ---
 title: "[New] Launching a Channel? Here’s What You Need"
-date: 2024-12-08T16:45:40.423Z
-updated: 2024-12-13T18:17:22.672Z
+date: 2024-12-21T17:05:00.373Z
+updated: 2024-12-22T20:44:58.444Z
 tags:
   - ai video
   - ai youtube
@@ -43,6 +43,10 @@ The smartest way to get started is to go through a list of **necessary equipment
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## YouTube Cameras
 
 **The short version:** Use whatever you already have, even if it's your phone or webcam. It's nice to have sharp, fine-tuned, 4K footage, but viewers will forgive lower visual quality if your content is good.
@@ -56,7 +60,7 @@ On one end of the spectrum, you have basic smartphone cameras and web cameras, w
 If you already have a DSLR camera then it’s a good idea to familiarize yourself with it. You have far more freedom to adjust the settings and achieve a professional look for your videos with a DSLR, but that does mean it’ll take some time to become an expert at using it. Ultra-high resolution is not required for YouTube, but it certainly won’t hurt to have additional sharpness and more detail in the scene. If you’re shopping for a DSLR, look for one with a flip screen that allows you to quickly check what your viewers see.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## YouTube Microphone and Audio
@@ -68,6 +72,10 @@ If you already have a DSLR camera then it’s a good idea to familiarize yoursel
 Again, most YouTube video makers have a limited budget at their disposal, so professional microphones are mostly off the table. However, investing in a directional microphone (‘shotgun mic’) that can pick up your voice clearly and without background noise is certainly a smart move. Such microphones can be pointed towards you while you speak, and since most YouTubers sit still while doing their shows there won’t be too much need for in-session adjustments.
 
 If you’re not ready to invest in a shotgun mic, you can also find very inexpensive (often under $20) LAV mics. These small microphones can be pinned to your shirt, which allows them to record very clear dialogue because they’re so close to your mouth.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Lights for YouTube
 
@@ -81,10 +89,6 @@ If you have the budget available to get some lighting equipment, you can find so
 
 Another useful piece of lighting equipment to have is a reflector. A reflector is usually a piece of white, silver, or gold fabric stretched over a frame. You can use it to bounce light from one light source back towards yourself (this is a great way to fill shadows cast by your main light). Reflectors tend to be inexpensive, but you can also use white cardboard or tinfoil in place of purchasing a reflector.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Tripods and Camera Stands
 
 **The short version:** You need something to hold your camera. If you mostly film in your own home that can be a desk or a stack of books, but if you make a lot of videos while you're on the go you probably need a tripod or gimbal. Heavier cameras need heavier tripods.
@@ -95,16 +99,12 @@ When you are choosing a tripod, pay attention to how much it weighs. If the came
 
 Even if you are using a phone or a webcam to record YouTube videos, you should consider mounting the device on a stable stand. It is possible to find mini tripods ideal for smartphones for as little as $10\. These tripods are small enough to carry in your pocket, so you will be prepared to start making a video no matter where your adventures take you. If you are using a web camera, you should attach it to the stand so that it won’t move accidentally after you touch the surface it is placed on.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Smartphone Camera Gear
 
 ![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **The short version:** There's a lot of gear out there designed with smartphone photos and videos in mind, including clip-on lenses, tripod mounts, phone-mounted LED lights, and inexpensive microphones that plug into the audio jack.
@@ -116,7 +116,7 @@ On the flip side, smartphone cameras typically perform poorly in low light. It i
 Another common downside of smartphone cameras is that most of them use digital zoom, which is vastly inferior to optical zoom. If you intend to shoot anything that’s further away than a few feet, you need a clip-on lens that goes on top of the built-in camera. This inexpensive device will give you a lot of freedom to work in space, and allow you to make spectacular shots even without high-end YouTube equipment.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Equipment with Easy-to-Use Video Editor
@@ -146,22 +146,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-best-practices-for-efficient-slide-capture/"><u>[New] 2024 Approved Best Practices for Efficient Slide Capture</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-complete-breakdown-hero4-black-usage/"><u>[New] Complete Breakdown Hero4 Black Usage</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/fface-thin-borders-for-a-seamless-youtube-experience/"><u>[New] Efface Thin Borders for a Seamless YouTube Experience</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-explore-best-slo-mo-camera-apps-on-iosandroid-platforms/"><u>[New] Explore Best Slo-Mo Camera Apps on iOS/Android Platforms</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/avigate-your-path-to-prominence-a-precise-guide-to-youtubes-featured-listings-for-2024/"><u>[New] Navigate Your Path to Prominence A Precise Guide to Youtube's Featured Listings for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-understanding-vimeos-unique-value-over-youtube/"><u>[Updated] 2024 Approved Understanding Vimeo's Unique Value over YouTube</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-boosting-your-browser-lightning-speed-profile-hunts/"><u>[Updated] Boosting Your Browser Lightning Speed Profile Hunts</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-how-to-make-money-on-youtube-shorts-effective-practical-ways/"><u>[Updated] In 2024, How to Make Money on YouTube Shorts? [Effective Practical Ways]</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-mastering-youtube-autoplay-on-mobile-devices-for-2024/"><u>[Updated] Mastering YouTube Autoplay on Mobile Devices for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-seeking-consistent-income-through-youtube-for-2024/"><u>[Updated] Seeking Consistent Income Through YouTube for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/discovering-the-futures-ai-at-taipei-expo/"><u>Discovering the Future's AI at Taipei Expo</u></a></li>
-<li><a href="https://extra-information.techidaily.com/from-novice-to-pro-steps-in-online-streaming/"><u>From Novice to Pro Steps in Online Streaming</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/from-twitter-to-facebook-sending-your-tweets/"><u>From Twitter to Facebook Sending Your Tweets</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-your-path-to-youtube-earnings-setting-up-and-selling-content/"><u>In 2024, Your Path to YouTube Earnings Setting Up and Selling Content</u></a></li>
-<li><a href="https://win-web.techidaily.com/1728470826044-page-unavailable-access-denied-error-404/"><u>Page Unavailable: Access Denied Error 404</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/er-tech-to-record-your-on-air-video-on-youtube/"><u>Premier Tech to Record Your On-Air Video on YouTube</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-infinix-hot-40i-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Infinix Hot 40i | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/rafting-a-signature-look-starting-with-self-reflection-for-2024/"><u>[New] Crafting a Signature Look Starting with Self-Reflection for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/rafting-a-stellar-visual-identity-the-ultimate-guide-to-yt-design/"><u>[New] Crafting a Stellar Visual Identity The Ultimate Guide to YT Design</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ow-to-edit-youtube-videos-in-adobe-premiere/"><u>[New] How to Edit YouTube Videos in Adobe Premiere</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/osandroid-comparison-youtube-app-explored/"><u>[New] IOS/Android Comparison YouTube App Explored</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/mart-shoppers-guide-to-inexpensive-recording-gear/"><u>[New] Smart Shopper's Guide to Inexpensive Recording Gear</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-art-of-capturing-human-gestures-an-in-depth-guide/"><u>[New] The Art of Capturing Human Gestures An In-Depth Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/op-pick-of-vocal-transformation-apps-for-youtubers/"><u>[New] Top Pick of Vocal Transformation Apps for YouTubers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-the-unseen-factors-in-determining-a-videos-view-count-on-youtube/"><u>[Updated] 2024 Approved The Unseen Factors in Determining a Video’s View Count on YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-update-complete-shorts-visibility-restored-for-2024/"><u>[Updated] Update Complete Shorts Visibility Restored for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-navigating-youtube-shorts-thumbnail-losses/"><u>2024 Approved Navigating YouTube Shorts Thumbnail Losses</u></a></li>
+<li><a href="https://win-community.techidaily.com/1728466524013-aomei-backupper/"><u>AOMEI Backupper的網頁指南：如何高效地為影片文件添加水印</u></a></li>
+<li><a href="https://common-error.techidaily.com/fixing-incompatibility-resolving-your-devices-driver-issue-with-windows-update/"><u>Fixing Incompatibility: Resolving Your Device's Driver Issue with Windows Update</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-logic-pro-guide-gradually-lowering-audio-levels/"><u>In 2024, Logic Pro Guide Gradually Lowering Audio Levels</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/in-2024-vllo-for-mac-download-now-and-explore-alternatives/"><u>In 2024, VLLO for Mac Download Now and Explore Alternatives</u></a></li>
+<li><a href="https://driver-download.techidaily.com/most-recent-hp-all-in-one-deskjet-3755-printer-driver-installation-for-windows-operating-systems-including-windows-10-8-and-7/"><u>Most Recent HP All-in-One DeskJet ^3755 Printer Driver Installation for Windows Operating Systems, Including Windows 10, 8 & 7</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/transform-your-verse-ideas-using-chatgpt/"><u>Transform Your Verse Ideas Using ChatGPT</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-realme-c55-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Realme C55? | Dr.fone</u></a></li>
 </ul></div>
 

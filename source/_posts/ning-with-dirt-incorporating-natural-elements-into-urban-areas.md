@@ -1,7 +1,7 @@
 ---
 title: "\"Designing with Dirt  Incorporating Natural Elements Into Urban Areas\""
-date: 2024-08-23T10:02:02.721Z
-updated: 2024-08-24T10:02:02.721Z
+date: 2024-12-20T19:40:24.214Z
+updated: 2024-12-22T19:02:56.400Z
 tags:
   - ai video
   - ai youtube
@@ -37,6 +37,10 @@ thumbnail: https://thmb.techidaily.com/8ad1313081653043389b0ec9ab2777fbe6983525a
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Why YouTube channel description is important
 
  If you have a YouTube channel and if you are not getting the number of views that you wish to have, there are possibly several problems. Maybe, your content is not enticing enough. Or maybe, it is because you do not have the right YouTube channel description. Generally speaking, the description of your channel will provide visitors of a snapshot of what the channel is all about. It appears in the about tab of your page. This is an elevator pitch, which will be an opportunity for you to show other people why they should watch your videos.
@@ -59,6 +63,10 @@ thumbnail: https://thmb.techidaily.com/8ad1313081653043389b0ec9ab2777fbe6983525a
 
  If you YouTube channel description are boring, chances are, visitors will no longer bother to view the contents. Create a powerful and enticing description that will trigger viewers to make a favorable action.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to edit your YouTube Channel Description \[Step by Step Tutorial\]
 
  This is actually a process that is pretty much straightforward, provided that you know how it can be done. Here are the simple steps that you should follow:
@@ -67,6 +75,10 @@ thumbnail: https://thmb.techidaily.com/8ad1313081653043389b0ec9ab2777fbe6983525a
 * Click on My Channel
 
 ![Find My Channel ](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Activate the "Customize the layout of your channel" option by entering the Setting button on the right corner of your Subscribe icon.
 
@@ -80,12 +92,20 @@ thumbnail: https://thmb.techidaily.com/8ad1313081653043389b0ec9ab2777fbe6983525a
 
 ![Edit YouTube Channel Description ](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Note:** In the newer YouTube version, click the option "CUSTOMIZE CHANNEL" and then you can change your channel description by clicking the About Tab.
 
 * Write the description that you want to show up when people visit your YouTube channel. It is not enough that you write just any sentence. Make sure that it is sweet and simple. Be as concise and informative as possible. Use simple words, yet make sure that they are powerful and can stir the visitor to make a favorable action. Also, see to it that it makes use of the right keywords that are related to your channel.
 * Click on "View as" which will allow the YouTube channel description to show up for New visitor or returning subscriber.
 
 ![Edit YouTube Channel Description - Preview](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  In sum, adding a YouTube channel description does not need to be a complicated process. Just follow the tips mentioned above and make sure to pay attention to crafting the right message. It must be keyword-optimized and must captivate attention of your visitors.
 
@@ -117,14 +137,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -133,8 +150,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-opening-doors-to-collective-listening-on-youtube/"><u>[New] In 2024, Opening Doors to Collective Listening on YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-step-by-step-process-to-embrace-cc-copyrights/"><u>[New] In 2024, Step-by-Step Process to Embrace CC Copyrights</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-screen-selection-simplified-ultrawide-versus-uhd-4k-demystified/"><u>[New] Screen Selection Simplified UltraWide Versus UHD 4K Demystified</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-unraveling-vr-a-clear-explanation-of-its-function/"><u>[New] Unraveling VR A Clear Explanation of Its Function</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-transform-videos-into-attractors-try-these-7-thumbnail-makers/"><u>[Updated] 2024 Approved Transform Videos Into Attractors - Try These 7 Thumbnail Makers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-decoding-youtubes-operations-following-uploads/"><u>[Updated] In 2024, Decoding YouTube’s Operations Following Uploads</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-essential-guide-to-the-top-5-apple-compatible-podcast-tools/"><u>[Updated] In 2024, Essential Guide to The Top 5 Apple-Compatible Podcast Tools</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-gauging-storage-capacity-for-full-length-films/"><u>[Updated] In 2024, Gauging Storage Capacity for Full-Length Films</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-maximizing-impact-reddit-post-best-practices-unveiled-for-2024/"><u>[Updated] Maximizing Impact Reddit Post Best Practices Unveiled for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-how-to-safeguard-your-videos-in-the-age-of-youtube/"><u>2024 Approved How to Safeguard Your Videos in the Age of YouTube</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-rev-up-your-mobile-vids-with-top-speed-apps/"><u>2024 Approved Rev Up Your Mobile Vids with Top Speed Apps</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-hidefake-snapchat-location-on-your-vivo-y100i-power-5g-drfone-by-drfone-virtual-android/"><u>How to Hide/Fake Snapchat Location on Your Vivo Y100i Power 5G | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/the-seamless-guide-to-saving-gifs-on-iphonesandroids-for-2024/"><u>The Seamless Guide to Saving GIFs on iPhones/Androids for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
-<!-- affiliate ads end -->
