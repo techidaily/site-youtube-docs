@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Mastering Video Success  A List of 20 Pro Shortcuts\""
-date: 2024-12-17T18:07:57.674Z
-updated: 2024-12-22T17:38:27.942Z
+date: 2024-12-20T17:58:12.078Z
+updated: 2024-12-27T21:43:05.332Z
 tags:
   - ai video
   - ai youtube
@@ -47,7 +47,7 @@ While watching a YouTube video, there might be instances when you want to pause 
 | 'Spacebar'        | Play and Pause (Works as a toggle key) |
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Category 2: Scrolling YouTube Videos Back and Forth
@@ -78,6 +78,10 @@ This category contains information on increasing or decreasing the playback spee
 | 'SHIFT' + '.' (Period) | Increase playback speed |
 | 'SHIFT' + ',' (Comma)  | Decrease playback speed |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Category 4: Managing the Captions
 
 This category talks about managing the video captions using the shortcut keys:
@@ -91,7 +95,7 @@ This category talks about managing the video captions using the shortcut keys:
 | '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Category 5: Managing the Audio Video
@@ -103,10 +107,6 @@ This category shows the shortcut keys to manage audio for a YouTube video:
 | 'M'               | Mute YouTube video    |
 | '↑'               | Increase volume by 5% |
 | '↓'               | Decrease volume by 5% |
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Category 6: Switching Between Screen Modes
 
@@ -135,7 +135,7 @@ In this category, the navigation and management of shortcut keys for 360o and Vi
 | '+' (Plus Key on Keyboard)  | Increase font size                                    |
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Bonus: How to Get the YouTube Shortcut List with One-Click
@@ -161,7 +161,7 @@ As one of the most popular video editing software among YouTubers, Filmora provi
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -185,19 +185,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-big-file-baskets-in-the-cloud-cost-effective-saver/"><u>[New] 2024 Approved Big File Baskets in the Cloud - Cost-Effective Saver</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-broadcast-your-curated-playlist-with-ease/"><u>[New] In 2024, Broadcast Your Curated Playlist with Ease</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-mechanized-sky-dwellers-classes/"><u>[New] Mechanized Sky-Dwellers' Classes</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-streamline-your-slide-share-experience-with-webcam-for-2024/"><u>[New] Streamline Your Slide Share Experience with Webcam for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-9-best-gif-recorders-for-for-capturing-animated-gifs-on-windows/"><u>[Updated] 2024 Approved 9 Best GIF Recorders for for Capturing Animated GIFs on Windows</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-the-2-step-plan-to-a-viral-youtube-video/"><u>[Updated] 2024 Approved The 2-Step Plan to a Viral YouTube Video</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-the-ultimate-guide-to-free-multimedia-content-creation/"><u>[Updated] 2024 Approved The Ultimate Guide to Free Multimedia Content Creation</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-unlock-audience-favorites-3-powerful-tales/"><u>[Updated] 2024 Approved Unlock Audience Favorites 3 Powerful Tales</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-prestige-choices-top-rated-sites-for-securing-snapalert-music-for-2024/"><u>[Updated] Prestige Choices Top-Rated Sites for Securing SnapAlert Music for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-prolonging-snapstreak-excellence-top-10-advice-for-2024/"><u>[Updated] Prolonging Snapstreak Excellence Top 10 Advice for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/pular-youtube-intro-video-templates/"><u>15 Popular YouTube Intro Video Templates</u></a></li>
-<li><a href="https://discover-able.techidaily.com/10ai2024/"><u>最新ベスト10の無料AIイメージ生成サイト・アワードリスト2024【プロがおすすめ！】</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/aging-imovies-power-for-youtube-presence-and-growth/"><u>Leveraging IMovie's Power for YouTube Presence and Growth</u></a></li>
-<li><a href="https://extra-support.techidaily.com/memes-that-spark-global-conversation-for-2024/"><u>Memes that Spark Global Conversation for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ominating-the-index-youtube-seo-tools-that-work-for-2024/"><u>[New] Dominating the Index YouTube SEO Tools That Work for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-funimate-android-adventure-the-apk-breakdown/"><u>[New] Funimate Android Adventure The APK Breakdown</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-the-art-of-keeping-your-audience-attentive-and-committed-top-6-methods-revealed/"><u>[New] In 2024, The Art of Keeping Your Audience Attentive & Committed Top 6 Methods Revealed</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-android-tips-flipping-video-images-for-2024/"><u>[Updated] Android Tips Flipping Video Images for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-enlightenment-streams-foremost-ed-resources-online/"><u>[Updated] Enlightenment Streams Foremost Ed Resources Online</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-skype-capture-methods-seamless-transition-between-oses/"><u>[Updated] In 2024, Skype Capture Methods Seamless Transition Between OSes</u></a></li>
+<li><a href="https://techidaily.com/best-fixes-for-lava-blaze-2-pro-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Best Fixes For Lava Blaze 2 Pro Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-simplify-your-edits-mastering-the-art-of-vimeo-video-snipping-in-5-ways/"><u>In 2024, Simplify Your Edits Mastering the Art of Vimeo Video Snipping in 5 Ways</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/outube-yield-comparing-channels-for-peak-performance/"><u>The YouTube Yield Comparing Channels for Peak Performance</u></a></li>
 </ul></div>
 

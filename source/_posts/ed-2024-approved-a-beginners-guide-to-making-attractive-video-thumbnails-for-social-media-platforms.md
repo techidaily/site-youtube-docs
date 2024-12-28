@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  A Beginner's Guide to Making Attractive Video Thumbnails for Social Media Platforms\""
-date: 2024-12-21T17:40:45.096Z
-updated: 2024-12-22T17:36:45.840Z
+date: 2024-12-26T09:55:02.316Z
+updated: 2024-12-28T04:44:29.929Z
 tags:
   - ai video
   - ai youtube
@@ -44,7 +44,7 @@ Here are 5 easy tips for creating thumbnails that get views.
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Edit Your Videos Before Creating Video Thumbnails
@@ -52,11 +52,7 @@ Here are 5 easy tips for creating thumbnails that get views.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. Have a Consistent Layout
@@ -68,7 +64,11 @@ An example of a standard layout could be you in the middle of the screen wearing
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **2\. Use Your Face**
@@ -76,10 +76,6 @@ An example of a standard layout could be you in the middle of the screen wearing
 People feel automatically connected and drawn into images that make eye contact. This makes thumbnails which feature faces more click-able than thumbnails which don’t, in most genres (i.e. if you make food videos then this may not apply – featuring the food might be more important than featuring your face). [Check out more tips like this here](https://tools.techidaily.com/wondershare/filmora/download/).
 
 Also, if somebody recognizes you in your thumbnail from a previous video of yours, that will go a long way towards making them click.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 3\. Use Graphics/Emojis that are On Topic
 
@@ -92,6 +88,10 @@ Make sure the images you choose are relevant to the topic of your video.
 If you use text in your thumbnail (you don’t have to) then it should be to add context. For example, if the main image is just you smiling then you might need some text to let viewers know the video is a makeup tutorial.
 
 Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5\. Keep it Clutter-Free
 
@@ -126,24 +126,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-expanding-your-audience-on-youtube-step-by-step/"><u>[New] 2024 Approved Expanding Your Audience on Youtube Step by Step</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-conquering-the-labyrinth-of-lesser-known-youtube-content-for-2024/"><u>[New] Conquering the Labyrinth of Lesser-Known YouTube Content for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-how-to-watch-twitter-videos-in-full-hd-for-2024/"><u>[New] How To Watch Twitter Videos in Full HD for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-instagrams-best-captured-moments-made-available-to-iphone/"><u>[New] In 2024, Instagram's Best Captured Moments Made Available to iPhone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-professional-insights-expert-level-youtube-video-tweaks/"><u>[New] In 2024, Professional Insights Expert-Level Youtube Video Tweaks</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/uick-fortnite-tile-sketch-a-30-second-guide/"><u>[New] Quick Fortnite Tile Sketch A 30-Second Guide</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-skybound-creativity-essential-editing-skills-for-drone-films/"><u>[New] Skybound Creativity Essential Editing Skills for Drone Films</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/kyrocket-your-channel-to-over-a-million-subscribers/"><u>[New] Skyrocket Your Channel to Over a Million Subscribers</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/id-wizards-guide-to-glitter-and-glamour-creating-your-chanel-for-2024/"><u>[New] Vid-Wizards Guide to Glitter and Glamour Creating Your Chanel for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-cutting-edge-tech-meets-creativity-top-12-camera-picks-for-vloggers/"><u>[Updated] 2024 Approved Cutting-Edge Tech Meets Creativity Top 12 Camera Picks for Vloggers</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-pioneering-visual-stunts-from-the-ground-up/"><u>[Updated] In 2024, Pioneering Visual Stunts From the Ground Up</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-streamline-your-soundtrack-selection-for-youtube/"><u>[Updated] In 2024, Streamline Your Soundtrack Selection for YouTube</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/audience-attracting-innovations-in-fb-video-ad-design/"><u>Audience-Attracting Innovations in FB Video Ad Design</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/greatest-copyright-free-pubg-image-anthology/"><u>Greatest Copyright-Free PUBG Image Anthology</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-how-to-make-a-cooking-video-in-steps-an-ultimate-guide/"><u>In 2024, How to Make a Cooking Video in Steps - an Ultimate Guide</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-xiaomi-redmi-note-12-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Watch Hulu Outside US On Xiaomi Redmi Note 12 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-pioneers-in-the-realm-of-multimedia-synergy/"><u>In 2024, Pioneers in the Realm of Multimedia Synergy</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/the-future-of-gaming-at-your-fingertips-top-10-vr-headsets-for-pc/"><u>The Future of Gaming at Your Fingertips Top 10 VR Headsets for PC</u></a></li>
-<li><a href="https://fake-location.techidaily.com/thinking-about-changing-your-netflix-region-without-a-vpn-on-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>Thinking About Changing Your Netflix Region Without a VPN On Apple iPhone 15? | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-the-most-compelling-list-of-free-youtube-platforms-for-comic-book-illustrators/"><u>[New] 2024 Approved The Most Compelling List of Free YouTube Platforms for Comic Book Illustrators</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-youtubes-rapid-rise-top-10-in-a-flash/"><u>[New] 2024 Approved Youtube's Rapid Rise Top 10 in a Flash</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-enhancing-mac-use-top-5-recommended-sniping-apps-for-2024/"><u>[New] Enhancing Mac Use Top 5 Recommended Sniping Apps for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-ultimate-list-best-ios-friendly-free-video-editors/"><u>[Updated] 2024 Approved Ultimate List Best iOS-Friendly, Free Video Editors</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-viral-journey-top-tags-to-accelerate-views-in-short-form-videos/"><u>[Updated] 2024 Approved Viral Journey Top Tags to Accelerate Views in Short Form Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-dive-into-old-content-youtube-video-recovery-guide/"><u>[Updated] In 2024, Dive Into Old Content YouTube Video Recovery Guide</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-influencing-instagram-step-by-step-tutorial-for-2024/"><u>[Updated] Influencing Instagram Step-by-Step Tutorial for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-sitcom-spotlight-15-hilarious-channels-for-relaxation/"><u>2024 Approved Sitcom Spotlight 15 Hilarious Channels for Relaxation</u></a></li>
+<li><a href="https://howto.techidaily.com/fixing-persistent-pandora-crashes-on-oppo-find-x6-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixing Persistent Pandora Crashes on Oppo Find X6 | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-vivo-v27-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>In 2024, How to Cast Vivo V27 to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-the-ultimate-guide-unveiling-the-top-8-youtube-boosters/"><u>In 2024, The Ultimate Guide Unveiling the Top 8 Youtube Boosters</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/protect-yourself-from-these-5-insidious-chatgpt-tricks/"><u>Protect Yourself From These 5 Insidious ChatGPT Tricks</u></a></li>
+<li><a href="https://discover-community.techidaily.com/qualitatsbewahrend-drehen-von-mp4-filmen-um-90-180-oder-270-grad-eine-schritt-fur-schritt-anleitung/"><u>Qualitätsbewahrend Drehen Von MP4-Filmen Um 90, 180 Oder 270 Grad: Eine Schritt-Für-Schritt-Anleitung</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/the-definitive-solution-to-shell32dll-errors-not-found-on-your-pc/"><u>The Definitive Solution to 'Shell32.dll' Errors Not Found on Your PC</u></a></li>
 </ul></div>
 

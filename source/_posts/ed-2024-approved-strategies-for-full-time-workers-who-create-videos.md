@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Strategies for Full-Time Workers Who Create Videos\""
-date: 2024-12-19T21:04:19.816Z
-updated: 2024-12-22T16:53:47.669Z
+date: 2024-12-25T16:46:26.963Z
+updated: 2024-12-28T09:25:34.301Z
 tags:
   - ai video
   - ai youtube
@@ -48,7 +48,7 @@ So, to save you and your viewers some of the same struggles, here are 5 tips I r
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1. Don’t force yourself to post on specific days
@@ -59,17 +59,21 @@ I know what you’re thinking - “What?! That’s insane.” The first piece of
 
 A notebook planner is essential for keeping my life organized and on track. When I first started my channel, I had a separate planner just for my YouTube videos – this didn’t work cause I never looked at it. It worked best when I kept track of my entire life, including YouTube, in one planner since I look at it every day. Then I could also see which days I wanted to post a video or see what topics worked best around specific holidays and such.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 3. Check the weather forecast in advance
 
 When starting a YouTube channel, many YouTubers like myself don’t have the money to afford all the fancy lighting you see other creators using. [I use natural light](https://tools.techidaily.com/wondershare/filmora/download/), which means I have to make sure it’s going to be a sunny day or at least bright enough for my videos to be clear. I check the forecast for the week on Sunday evenings so I can plan out my best days to film, this keeps my video shooting schedule productive.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4. Create 3-5 videos in advance
 
 This week I am on PTO (paid time off) which has given me a lot more time to film videos I can post for next month. Life happens and it can set you back on filming. If you happen to get a major break in your workweek, use the opportunity to film a bunch of videos, edit them, and have them waiting in your pocket. I filmed three videos in one day – I planned and set-up the night before, which made filming much smoother. Trust me, this tip works wonders!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5. Be creative! Create audios (audio-only videos)
 
@@ -78,7 +82,7 @@ In the event that life gets too crazy, it’s perfectly fine to do just audio. M
 I hope these tips can help you on your journey with YouTube while still working a full-time job.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Make a YouTube Video with Wondershare Filmora
@@ -89,14 +93,10 @@ Just try it and create your own YouTube video!
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -120,19 +120,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://media-tips.techidaily.com/1723620226617-yeh-jawaani-hai-deewani-watch-with-top-rated-english-subtitles-online-now/"><u>'Yeh Jawaani Hai Deewani': Watch With Top-Rated English Subtitles Online Now</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/arn-through-engagement-securing-youtube-partnership-membership-for-2024/"><u>[New] Earn Through Engagement Securing YouTube Partnership Membership for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-skyrocket-views-with-smartly-chosen-video-release-times/"><u>[New] In 2024, Skyrocket Views with Smartly Chosen Video Release Times</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-the-strategic-use-of-instagram-story-sections-for-brands/"><u>[New] The Strategic Use of Instagram Story Sections for Brands</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-penning-parting-prose-for-press/"><u>[Updated] 2024 Approved Penning Parting Prose for Press</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/updated-6-empowering-metaverse-instances-explained/"><u>[Updated] 6 Empowering Metaverse Instances Explained</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-in-2024-quantum-leap-the-most-astonishing-sci-fi-films-of-metaverses/"><u>[Updated] In 2024, Quantum Leap The Most Astonishing Sci-Fi Films of Metaverses</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-unleashing-auditory-brilliance-without-a-mic-in-sight/"><u>[Updated] In 2024, Unleashing Auditory Brilliance without a Mic in Sight</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-the-evolution-of-editing-software-reviewed-magix-vpx/"><u>[Updated] The Evolution of Editing Software Reviewed Magix VPX</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-top-11-youtube-video-rippers-to-download-youtube-videos/"><u>2024 Approved Top 11 YouTube Video Rippers to Download YouTube Videos</u></a></li>
-<li><a href="https://app-tips.techidaily.com/busting-top-5-fallacies-surrounding-the-profitability-of-data-sharing-techwise-insights/"><u>Busting Top 5 Fallacies Surrounding the Profitability of Data Sharing | TechWise Insights</u></a></li>
-<li><a href="https://howto.techidaily.com/cellular-network-not-available-for-voice-calls-on-realme-c67-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Cellular Network Not Available for Voice Calls On Realme C67 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/izing-content-understanding-youtubes-cpm-for-2024/"><u>Monetizing Content Understanding YouTube's CPM for 2024</u></a></li>
-<li><a href="https://driver-install.techidaily.com/reliable-logitech-webcam-firmware/"><u>Reliable Logitech Webcam Firmware</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-5-simple-yet-powerful-strategies-to-skyrocket-your-youtube-views/"><u>[New] 2024 Approved 5 Simple Yet Powerful Strategies to Skyrocket Your YouTube Views</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-elevating-video-marketing-with-youtube-thumbnails/"><u>[New] 2024 Approved Elevating Video Marketing with YouTube Thumbnails</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-visual-journey-to-crafting-a-user-friendly-subscribe-link/"><u>[New] A Visual Journey to Crafting a User-Friendly Subscribe Link</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/eyond-vidcon-top-50-youtube-celebrations-for-2024/"><u>[New] Beyond VidCon Top 50 YouTube Celebrations for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-capture-games-effortlessly-with-nvidia-for-2024/"><u>[New] Capture Games Effortlessly with NVIDIA for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-digital-arcade-over-a-hundred-game-channels/"><u>[Updated] 2024 Approved Digital Arcade Over a Hundred Game Channels</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-how-to-compose-captivating-youtube-intros-for-free/"><u>[Updated] 2024 Approved How To Compose Captivating YouTube Intros for FREE</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-how-to-make-your-youtube-animated-subscribe-button-easily-with-filmora/"><u>[Updated] How to Make Your YouTube Animated Subscribe Button Easily With Filmora</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-snapchats-visual-language-mastering-the-art-of-gifting-with-gifs-for-2024/"><u>[Updated] Snapchat's Visual Language Mastering the Art of Gifting with Gifs for 2024</u></a></li>
+<li><a href="https://win-docs.techidaily.com/depannage-complet-pour-lappareil-de-stockage-wd-my-book-non-affiche-dans-windows-10/"><u>Dépannage Complet Pour L'Appareil De Stockage WD My Book Non Affiché Dans Windows 10</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/exclusive-music-tools-for-pcs-for-2024/"><u>Exclusive Music Tools for PCs for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-reset-itunes-backup-password-of-apple-iphone-se-2022-prevention-and-solution-drfone-by-drfone-ios/"><u>In 2024, Reset iTunes Backup Password Of Apple iPhone SE (2022) Prevention & Solution | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ng-into-prominent-user-speeches/"><u>Probing Into Prominent User Speeches</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/shed-light-on-dark-iphone-movie-capture-for-2024/"><u>Shed Light on Dark iPhone Movie Capture for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/cket-your-channel-growth-with-these-top-5-video-marketing-methods/"><u>Skyrocket Your Channel Growth with These Top 5 Video Marketing Methods</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/the-great-debate-unveiling-differences-between-ipad-pro-and-macbook-pro-models/"><u>The Great Debate: Unveiling Differences Between IPad Pro & MacBook Pro Models</u></a></li>
 </ul></div>
 

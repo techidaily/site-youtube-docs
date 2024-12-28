@@ -1,7 +1,7 @@
 ---
 title: "\"Perfectly Positioned Cards  YouTube Embedding Techniques for 2024\""
-date: 2024-08-23T09:54:59.702Z
-updated: 2024-08-24T09:54:59.702Z
+date: 2024-12-22T02:44:43.912Z
+updated: 2024-12-27T16:41:22.146Z
 tags:
   - ai video
   - ai youtube
@@ -53,10 +53,18 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Click "Edit" tab under the video screen shot you want to add the card on
 * Click on the "Cards" tab
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
 * Click on the create button which will open the corresponding video
@@ -66,6 +74,10 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
 * Apply changes and exit
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to add YouTube annotations
 
@@ -81,6 +93,10 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -120,20 +136,21 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -142,8 +159,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/new-best-of-the-best-15-4k-video-capture-units/"><u>[New] Best of the Best #15 4K Video Capture Units</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-unlock-the-potential-of-photography-with-adobe-motion-blur/"><u>[Updated] 2024 Approved Unlock the Potential of Photography with Adobe Motion Blur</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-charting-the-course-to-youtube-fame-strategic-video-release-frequency/"><u>[Updated] In 2024, Charting the Course to YouTube Fame Strategic Video Release Frequency</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-top-10-youtube-to-webm-converter-apps-reviewed-and-ranked/"><u>2024 Approved Top 10 YouTube to WebM Converter Apps Reviewed & Ranked</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-your-online-presence-by-mastering-video-editing-in-sony-vegas-for-2024/"><u>Boost Your Online Presence by Mastering Video Editing in Sony Vegas for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/cing-user-experience-a-quick-how-to-for-youtube-cc-and-subtitles-for-2024/"><u>Enhancing User Experience A Quick How-To for YouTube CC & Subtitles for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-enhancing-viewer-interest-with-accurate-time-stamping/"><u>In 2024, Enhancing Viewer Interest with Accurate Time Stamping</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-masterful-visuals-in-motion-an-insiders-guide-to-creating-impressive-thumbnails/"><u>In 2024, Masterful Visuals in Motion An Insider's Guide to Creating Impressive Thumbnails</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-optimize-sound-speed-with-these-essential-apps/"><u>In 2024, Optimize Sound Speed with These Essential Apps</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/king-youtubes-encrypted-video-secrets/"><u>Unlocking YouTube's Encrypted Video Secrets</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/youtube-101-tips-for-a-distraction-free-video-backdrop/"><u>YouTube 101 Tips for a Distraction-Free Video Backdrop</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
-<!-- affiliate ads end -->

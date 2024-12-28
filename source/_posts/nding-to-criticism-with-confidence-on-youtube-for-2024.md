@@ -1,7 +1,7 @@
 ---
 title: "Responding to Criticism with Confidence on YouTube for 2024"
-date: 2024-08-23T09:55:43.140Z
-updated: 2024-08-24T09:55:43.140Z
+date: 2024-12-24T19:09:00.308Z
+updated: 2024-12-27T20:18:00.110Z
 tags:
   - ai video
   - ai youtube
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/8e945962e22da7cc13548b0273df3ba622849bedc
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -54,20 +58,21 @@ thumbnail: https://thmb.techidaily.com/8e945962e22da7cc13548b0273df3ba622849bedc
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -76,8 +81,16 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-filming-availability-pledge-downloading-rights/"><u>[New] 2024 Approved Filming Availability Pledge Downloading Rights</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ind-8-digital-hubs-offering-free-green-screen-elements-and-scenes-for-2024/"><u>[New] Find 8 Digital Hubs Offering Free Green-Screen Elements & Scenes for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/outubes-opposite-order-rearranging-videos-in-reverse-flow/"><u>[New] Youtube's Opposite Order Rearranging Videos in Reverse Flow</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-unlocking-clear-communication-zooms-best-transcription-services/"><u>[Updated] 2024 Approved Unlocking Clear Communication Zoom's Best Transcription Services</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-stepwise-guide-for-broadcasting-google-meet-on-youtube/"><u>[Updated] In 2024, Stepwise Guide for Broadcasting Google Meet on YouTube</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-unlock-nokia-c12-plus-without-password-by-drfone-android-unlock-android-unlock/"><u>How to Unlock Nokia C12 Plus Without Password?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-inspiring-leadership-the-top-35-recruiter-talks/"><u>In 2024, Inspiring Leadership The Top 35 Recruiter Talks</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nt-youtube-playlists-shared-tutorial/"><u>Instant YouTube Playlists Shared Tutorial</u></a></li>
+<li><a href="https://driver-install.techidaily.com/simple-steps-installing-updated-nvidia-drivers-in-windows-11/"><u>Simple Steps: Installing Updated NVIDIA Drivers in Windows 11</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
-<!-- affiliate ads end -->

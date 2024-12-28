@@ -1,7 +1,7 @@
 ---
 title: "Masterclass for Viral Talent for 2024"
-date: 2024-12-19T18:05:00.543Z
-updated: 2024-12-22T20:41:57.191Z
+date: 2024-12-25T11:11:33.135Z
+updated: 2024-12-27T17:59:00.502Z
 tags:
   - ai video
   - ai youtube
@@ -64,21 +64,17 @@ _Tess takes you to some of her favorite places in Dumbo._
 
 Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2\. Post Cards
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 3\. S’well bottle
 
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. Branded slippers
 
@@ -86,19 +82,19 @@ To help them relax after long days at the summit, YouTube provided creators with
 
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 _thinknoodles wearing his YouTube slippers._
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. Pins, pins, pins
 
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 6\. Denim jacket
 
@@ -114,10 +110,14 @@ Want to join the YouTube Creator Summit in the future? We all know that there is
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -141,20 +141,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-lessons.techidaily.com/new-bio-engineered-healing-spaces-via-arvr/"><u>[New] Bio-Engineered Healing Spaces via AR/VR</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/reating-hilarious-reactions-mastering-youtube-tricks-3-methods/"><u>[New] Creating Hilarious Reactions Mastering YouTube Tricks (3 Methods)</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-elevate-your-creativity-6-aplus-apps-for-instagram-reels/"><u>[New] Elevate Your Creativity 6 A+ Apps for Instagram Reels</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-unveiling-the-secrets-to-successful-social-media-film-making/"><u>[New] In 2024, Unveiling the Secrets to Successful Social Media Film Making</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/urn-viewers-into-cashflow-your-online-income-plan/"><u>[New] Turn Viewers Into Cashflow Your Online Income Plan</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-innovative-editing-strategies-to-transform-your-youtube-channel/"><u>[Updated] 2024 Approved Innovative Editing Strategies to Transform Your YouTube Channel</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-mastering-filmmaker-mode-crafting-viral-tiktok-reactions-with-filmora/"><u>[Updated] 2024 Approved Mastering Filmmaker Mode Crafting Viral TikTok Reactions with Filmora</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-fast-fixes-for-chaotic-youtube-list-ordering/"><u>[Updated] In 2024, Fast Fixes for Chaotic YouTube List Ordering</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-taking-your-tweets-public-on-facebook-for-2024/"><u>[Updated] Taking Your Tweets Public on Facebook for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-per-view-payment-potential-for-online-content-creators/"><u>2024 Approved Per-View Payment Potential for Online Content Creators</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-the-ultimate-list-of-8-youtube-mistakes-to-evade/"><u>2024 Approved The Ultimate List of 8 Youtube Mistakes to Evade</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-turning-youtube-shorts-into-a-money-machine-essentials-and-earnings-prospects/"><u>2024 Approved Turning YouTube Shorts Into a Money Machine Essentials and Earnings Prospects</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/powerdirector-color-grading-unifying-your-video-clips-look/"><u>PowerDirector Color Grading Unifying Your Video Clips Look</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/outube-studio-essential-checklist-for-video-mastery-for-2024/"><u>The YouTube Studio Essential Checklist for Video Mastery for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/which-is-the-best-fake-gps-joystick-app-on-tecno-spark-10-4g-drfone-by-drfone-virtual-android/"><u>Which is the Best Fake GPS Joystick App On Tecno Spark 10 4G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-transforming-raw-footage-into-polished-youtube-videos-with-finalcut/"><u>[New] In 2024, Transforming Raw Footage Into Polished YouTube Videos with FinalCut</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-powerdirector-command-center-a-complete-2024-examination/"><u>[New] PowerDirector Command Center A Complete 2024 Examination</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/wiftness-at-a-click-managing-youtubes-video-speed-settings-for-2024/"><u>[New] Swiftness at a Click Managing YouTube's Video Speed Settings for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-revolutionize-online-sessions-with-essential-zoom-transformations/"><u>[Updated] 2024 Approved Revolutionize Online Sessions with Essential Zoom Transformations</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-blocking-unwanted-youtube-channels-pc-and-mobile-edition/"><u>[Updated] In 2024, Blocking Unwanted Youtube Channels PC & Mobile Edition</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-aim-for-affluence-enroll-now-in-youtubes-partner-programme/"><u>2024 Approved Aim for Affluence Enroll Now in YouTube's Partner Programme</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/commanding-temperature-settings-on-pc-via-bios/"><u>Commanding Temperature Settings on PC via BIOS</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/full-guide-to-unlock-your-xiaomi-13t-pro-by-drfone-android/"><u>Full Guide to Unlock Your Xiaomi 13T Pro</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/google-bard-warning-steer-clear-to-prevent-cybersecurity-infections/"><u>Google Bard Warning: Steer Clear to Prevent Cybersecurity Infections</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-samsung-galaxy-a14-5g-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Samsung Galaxy A14 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-brief-basslines-and-rhythms-video-soundscapes/"><u>In 2024, Brief Basslines & Rhythms Video Soundscapes</u></a></li>
+<li><a href="https://fox-ssl.techidaily.com/prevent-unwanted-application-auto-installation-on-windows-11-systems/"><u>Prevent Unwanted Application Auto-Installation on Windows 11 Systems</u></a></li>
+<li><a href="https://win-marvelous.techidaily.com/solving-scanning-issues-making-your-printers-display-visible-again-expert-tips-from-yl-computing/"><u>Solving Scanning Issues: Making Your Printer's Display Visible Again - Expert Tips From YL Computing</u></a></li>
+<li><a href="https://win-dash.techidaily.com/step-by-step-guide-updating-your-samsung-smartphones-usb-drivers/"><u>Step-by-Step Guide: Updating Your Samsung Smartphone's USB Drivers</u></a></li>
 </ul></div>
 

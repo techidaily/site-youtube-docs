@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Expert Advice on Selecting The Best Lenses For Filmmaking\""
-date: 2024-08-23T09:56:52.258Z
-updated: 2024-08-24T09:56:52.258Z
+date: 2024-12-27T03:50:18.992Z
+updated: 2024-12-28T01:45:08.545Z
 tags:
   - ai video
   - ai youtube
@@ -79,8 +79,9 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Crop Factor
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
@@ -89,9 +90,6 @@ Focal lengths in camera lenses are measured in millimeters. You can vlog yoursel
 
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
-<!-- affiliate ads end -->
 ### Focal Length Equivalency Table
 
 This table shows you the focal lengths needed to achieve the same shot between cameras with different sensor sizes. In order to take a shot as wide as the shot I took of myself with the 24mm lens on my full-frame camera, I would need a 15mm lens on an APS-C sensor camera or a 12mm lens on a micro 4/3 camera.
@@ -108,18 +106,20 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Aperture
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
 
@@ -127,9 +127,6 @@ Fast lenses are more expensive because they cost more to produce. There’s a lo
 
 But do you even need a fast lens?
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Vlogging With a Fast Lens
 
 #### Pros of Vlogging With a Fast Lens
@@ -143,6 +140,10 @@ But do you even need a fast lens?
 * More expensive
 * Moving subjects more likely to get out of focus when shooting with a large aperture
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Optical Image Stabilization
 
@@ -159,22 +160,20 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -183,4 +182,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-achieve-flawless-live-videos-with-strategic-obs-utilization/"><u>[New] Achieve Flawless Live Videos with Strategic OBS Utilization</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-easy-effective-edits-that-make-a-mark-on-tiktok-for-2024/"><u>[New] Easy, Effective Edits that Make a Mark on TikTok for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-unlocking-high-profile-discussions/"><u>[New] In 2024, Unlocking High-Profile Discussions</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nstantly-create-a-custom-youtube-feed-via-your-smartphone/"><u>[New] Instantly Create a Custom YouTube Feed via Your Smartphone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-guide-to-producing-impactful-lifestyle-motivational-content/"><u>[Updated] 2024 Approved Guide to Producing Impactful Lifestyle Motivational Content</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-reverse-video-magic-online-step-by-step-guides/"><u>[Updated] 2024 Approved Reverse Video Magic Online Step-by-Step Guides</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-superior-lineup-elite-webcam-holders/"><u>[Updated] 2024 Approved Superior Lineup Elite Webcam Holders</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-essential-guidelines-to-create-impactful-youtube-banners/"><u>[Updated] Essential Guidelines to Create Impactful YouTube Banners</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-streamlined-method-keeping-and-capturing-twitters-videomedia/"><u>[Updated] In 2024, Streamlined Method Keeping and Capturing Twitters Video/Media</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-mastery-over-moments-jake-pauls-youtube-saga/"><u>[Updated] Mastery Over Moments Jake Paul's YouTube Saga</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-secure-your-free-green-screen-assets-with-these-top-8-sites/"><u>[Updated] Secure Your FREE Green Screen Assets with These Top 8 Sites</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-your-first-youtubian-venture-building-a-brand-bringing-in-bucks/"><u>[Updated] Your First Youtubian Venture Building a Brand, Bringing in Bucks</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-groundbreaking-8-android-video-call-services-more-than-four/"><u>2024 Approved Groundbreaking 8 Android Video Call Services, More Than Four</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-tackling-blurred-images-in-online-meetings-with-zoom-techniques/"><u>2024 Approved Tackling Blurred Images in Online Meetings with Zoom Techniques</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-top-narrative-strategies-top-channels-dual-success-formula/"><u>2024 Approved Top Narrative Strategies, Top Channels Dual Success Formula</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-how-to-farewell-your-instagram-presence-permanently/"><u>In 2024, How to Farewell Your Instagram Presence Permanently</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-optimizing-viewing-habits-the-ultimate-guide-to-youtube-save-and-playlists/"><u>In 2024, Optimizing Viewing Habits The Ultimate Guide to YouTube Save and Playlists</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/top-rated-iphone-charger-options-a-comprehensive-guide/"><u>Top-Rated iPhone Charger Options : A Comprehensive Guide</u></a></li>
+<li><a href="https://win-trending.techidaily.com/wi-fi-printing-woes-decoded-uncover-the-reasons-for-connection-failures-with-yl-computing-insights/"><u>Wi-Fi Printing Woes Decoded: Uncover the Reasons for Connection Failures with YL Computing Insights</u></a></li>
+</ul></div>
 

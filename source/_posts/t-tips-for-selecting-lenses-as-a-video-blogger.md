@@ -1,7 +1,7 @@
 ---
 title: "Expert Tips for Selecting Lenses as a Video Blogger"
-date: 2024-08-23T09:58:54.440Z
-updated: 2024-08-24T09:58:54.440Z
+date: 2024-12-23T23:25:12.230Z
+updated: 2024-12-27T19:26:42.372Z
 tags:
   - ai video
   - ai youtube
@@ -39,6 +39,10 @@ In this article, I’m going to help you figure that out.
 * [Part 5: Aperture](#aperture)
 * [Part 6: Vlogging With a Fast Lens](#VloggingWithAFastLens)
 * [Part 7: Optical Image Stabilization](#OpticalImageStabilization)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Three Focal Length Groups: Wide, Standard, Telephoto
 
@@ -78,15 +82,16 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
 
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Crop Factor
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
 
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
-<!-- affiliate ads end -->
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
 
 ### Focal Length Equivalency Table
@@ -105,32 +110,27 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
 <!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Aperture
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
  Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
 
 Fast lenses are more expensive because they cost more to produce. There’s a lot more that goes into them, including larger and higher quality glass elements.
 
 But do you even need a fast lens?
 
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Vlogging With a Fast Lens
 
 #### Pros of Vlogging With a Fast Lens
@@ -146,8 +146,9 @@ But do you even need a fast lens?
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Optical Image Stabilization
 
 Finally, you’ll have to decide whether or not you want your lens to have built-in optical image stabilization (OIS).
@@ -168,14 +169,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -184,4 +182,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-flavorful-frames-stepwise-food-film-making/"><u>[New] 2024 Approved Flavorful Frames Stepwise Food Film-Making</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-deciphering-past-visual-content-inverse-queries-and-fb-techniques/"><u>[New] In 2024, Deciphering Past Visual Content Inverse Queries and FB Techniques</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-pro-video-enhancements-grasping-green-screen-artistry-through-4-youtube-demos/"><u>[New] Pro Video Enhancements Grasping Green Screen Artistry Through 4 YouTube Demos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-mastering-the-art-of-youtube-thumbnail-adjustment/"><u>[Updated] 2024 Approved Mastering the Art of YouTube Thumbnail Adjustment</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-social-media-sovereigns-ranked-by-youtube-subscribers/"><u>[Updated] 2024 Approved Social Media Sovereigns Ranked by YouTube Subscribers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-creating-a-memorable-and-unique-moniker-for-your-filmora-content-for-2024/"><u>[Updated] Creating a Memorable and Unique Moniker for Your Filmora Content for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-expert-tips-on-softening-volume-in-logic-pro-mixes/"><u>[Updated] Expert Tips on Softening Volume in Logic Pro Mixes</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-the-essential-guide-to-twitters-video-converters/"><u>[Updated] In 2024, The Essential Guide to Twitters Video Converters</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-revolutionize-video-closings-exclusive-end-screen-templates-for-2024/"><u>[Updated] Revolutionize Video Closings - Exclusive End Screen Templates for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/xmas182418/"><u>【限定キャンペーン】クリスマス企画! X'mas特典で、毎日変わる18社から24本のソフトを総額18万円以上無料でプレゼント！</u></a></li>
+<li><a href="https://fox-pages.techidaily.com/due-modi-facili-per-creare-una-partizione-di-ripristino-su-windows-11-guida-completa/"><u>Due Modi Facili per Creare Una Partizione Di Ripristino Su Windows 11: Guida Completa</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/dynamic-dyes-mastery-in-color-manipulation/"><u>Dynamic Dyes Mastery in Color Manipulation</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/o-extract-youtube-content-easily/"><u>How to Extract YouTube Content Easily</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-effortless-and-effective-embedding-youtube-in-gslides/"><u>In 2024, Effortless and Effective - Embedding YouTube in GSlides</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/joyjingles-where-to-find-hilarious-ringtone-links-for-2024/"><u>JoyJingles Where to Find Hilarious Ringtone Links for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ating-the-world-of-social-media-with-a-focused-brand-for-2024/"><u>Navigating the World of Social Media with a Focused Brand for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/er-composer-of-media-experience/"><u>Premier Composer of Media Experience</u></a></li>
+</ul></div>
 

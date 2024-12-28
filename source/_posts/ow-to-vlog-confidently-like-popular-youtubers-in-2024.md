@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Vlog Confidently Like Popular YouTubers, In 2024"
-date: 2024-12-18T18:52:04.340Z
-updated: 2024-12-22T22:06:55.486Z
+date: 2024-12-20T17:22:29.895Z
+updated: 2024-12-28T03:11:59.451Z
 tags:
   - ai video
   - ai youtube
@@ -36,7 +36,7 @@ When we watch the most popular YouTubers, the traits that make them successful a
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **1\. Be Authentic**
@@ -50,7 +50,7 @@ There will be an urge for you to mimic other vloggers, talking and acting the wa
 Don’t focus on your image, but instead focus on your voice. What makes you different? That is how you will build a proper reputation.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **2\. Tell A Story**
@@ -63,10 +63,6 @@ Once all the pieces of the story are captured — including your storytelling, b
 
 Take a look at this example from [Tiffany Alvord](https://www.youtube.com/user/TiffanyAlvord) and notice how there are jump cuts both to skip information that can be assumed by the audience and add the tension to the story she’s telling.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **3\. Surprise and Delight Your Audience**
 
 There is a saying that a great ending to a story is that it is [surprising, yet inevitable](https://www.huffingtonpost.com/david-kudler/writing-the-inevitable-bu%5Fb%5F1630419.html).
@@ -75,6 +71,10 @@ The ending needs to be justified even if there is a twist. Everything before tha
 
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **4\. Be Inviting**
 
 A common trait of successful vloggers is that they are welcoming. They share their passion and encourage others to join in. Vlogging is about being a guide. It doesn’t matter if you are leading a tour of your home or showing your viewer an interesting new skill, it is important for you to approach the whole process with open arms.
@@ -82,10 +82,6 @@ A common trait of successful vloggers is that they are welcoming. They share the
 Unlike being invited to a party, there is no obligation when it comes to YouTube. Your viewers can continue to live vicariously through you or they may be inspired by your experience and dare to try it themselves.
 
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **5\. Compose the Shot**
 
@@ -98,10 +94,6 @@ The great thing about vlogging is that you will get a lot of practice framing sh
 Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UCjwmbv6NE4mOh8Z8VhPUx1Q), where she gives a tour of her bedroom.
 
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **6\. Be Prepared**
 
@@ -122,6 +114,10 @@ If you speak on camera in a monotone voice, you are not being expressive. Your f
 Consider your audience: they are coming home from school or work, where there were classes and meetings, and the last thing they want to watch is a video of your speaking without energy.
 
 Want to see a vlogger that is awesome at being expressive on camera? Check out [Emma Chamberlain](https://www.youtube.com/channel/UC78cxCAcp7JfQPgKxYdyGrg), if you haven’t already. Every word she says in her video is layered with emotion. We know exactly how she feels.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **8\. Stay Organized**
 
@@ -149,6 +145,10 @@ If you want to find a video editing solution that empowers your imagination and 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -170,24 +170,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/deal-screen-capture-device-for-effective-video-sharing/"><u>[New] Ideal Screen Capture Device for Effective Video Sharing</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-exploring-per-view-money-flow-among-youtubers/"><u>[New] In 2024, Exploring Per-View Money Flow Among YouTubers</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/he-beginners-guide-to-camera-lenses-in-filmmaking-and-vlogging/"><u>[New] The Beginner's Guide to Camera Lenses in Filmmaking & Vlogging</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-a-comprehensive-list-of-8-authentic-propagation-tools/"><u>[Updated] A Comprehensive List of 8 Authentic Propagation Tools</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/updated-analyzing-huawei-p10s-impact-on-mobile-photography-trends/"><u>[Updated] Analyzing Huawei P10's Impact on Mobile Photography Trends</u></a></li>
-<li><a href="https://tiktok-video-files.techidaily.com/updated-in-2024-cutting-edge-tiktok-techniques-for-new-video-borders/"><u>[Updated] In 2024, Cutting-Edge TikTok Techniques for New Video Borders</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-streamline-your-content-transform-videos-into-playful-animation-gifs-for-2024/"><u>[Updated] Streamline Your Content Transform Videos Into Playful Animation Gifs for 2024</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/android-2024/"><u>Android動画再生最新アプリ - 2024年のベストメディアプレイヤー選び</u></a></li>
-<li><a href="https://howto.techidaily.com/app-wont-open-on-your-vivo-s18-here-are-all-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>App Wont Open on Your Vivo S18? Here Are All Fixes | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/t-conscious-broadcayers-guide-to-cheap-mics/"><u>Budget-Conscious Broadcayer's Guide to Cheap Mics</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-realme-12plus-5g-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Realme 12+ 5G | Dr.fone</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/compact-yet-powerful-the-new-apple-m4-powered-mac-mini-review-how-does-it-stack-up-against-an-apple-tv/"><u>Compact Yet Powerful: The New Apple M4-Powered Mac Mini Review – How Does It Stack Up Against An Apple TV?</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-3-easy-ways-to-factory-reset-a-locked-iphone-7-plus-without-itunes-by-drfone-ios/"><u>In 2024, 3 Easy Ways to Factory Reset a Locked iPhone 7 Plus Without iTunes</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-how-to-add-timestamp-on-youtube-video-link-desktop-and-mobile/"><u>In 2024, How to Add Timestamp on YouTube Video Link? [Desktop and Mobile]</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-honor-100-pro-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Honor 100 Pro to iPhone XS/11 | Dr.fone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-soundwave-success-adding-audio-to-your-instastory/"><u>In 2024, Soundwave Success Adding Audio to Your InstaStory</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-time-reversal-tactics-unique-youtube-video-experiences/"><u>In 2024, Time-Reversal Tactics Unique YouTube Video Experiences</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-fake-gps-location-pro-and-is-it-good-on-honor-magic-v2-drfone-by-drfone-virtual-android/"><u>In 2024, What is Fake GPS Location Pro and Is It Good On Honor Magic V2? | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/er-content-creators-colloquy-for-2024/"><u>Premier Content Creators Colloquy for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-high-quality-game-capture-apps-reviewed/"><u>[New] 2024 Approved High-Quality Game Capture Apps Reviewed</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-weaving-in-youtubes-video-selection-a-step-by-step-guide/"><u>[New] 2024 Approved Weaving in YouTube's Video Selection A Step-by-Step Guide</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-capture-perfection-5-expert-tips-for-games-and-live-footage-for-2024/"><u>[New] Capture Perfection 5 Expert Tips for Games & Live Footage for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ouble-delight-endless-looping-of-youtube-videos-for-tvs/"><u>[New] Double Delight Endless Looping of YouTube Videos for TVs</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/levate-video-flair-advanced-techniques-in-youtube-studio-editor-for-2024/"><u>[New] Elevate Video Flair Advanced Techniques in YouTube Studio Editor for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-how-to-edit-youtube-videos-in-final-cut-pro/"><u>[Updated] How to Edit YouTube Videos in Final Cut Pro</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-unlocking-creative-potential-integrating-custom-graphic-elements-into-your-story/"><u>[Updated] Unlocking Creative Potential Integrating Custom Graphic Elements Into Your Story</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-leading-edge-tech-for-high-quality-video-discs-via-macos/"><u>2024 Approved Leading Edge Tech for High-Quality Video Discs via MacOS</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-10-fake-gps-location-apps-on-android-of-your-realme-c67-5g-drfone-by-drfone-virtual/"><u>In 2024, 10 Fake GPS Location Apps on Android Of your Realme C67 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-maximize-your-youtube-reach-key-tips-for-enhancing-video-seo/"><u>In 2024, Maximize Your YouTube Reach Key Tips for Enhancing Video SEO</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/march-2024s-ultimate-headset-offers-and-savings-check-out-the-latest-deals/"><u>March 2024'S Ultimate Headset Offers & Savings - Check Out the Latest Deals</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/revamp-your-email-security-a-step-by-step-guide-to-changing-your-gmail-password-with-ease/"><u>Revamp Your Email Security: A Step-by-Step Guide to Changing Your Gmail Password with Ease</u></a></li>
+<li><a href="https://win-dash.techidaily.com/updated-solution-how-to-install-default-printer-and-scanner-drivers-on-windows-11/"><u>Updated Solution: How to Install Default Printer & Scanner Drivers on Windows 11</u></a></li>
 </ul></div>
 

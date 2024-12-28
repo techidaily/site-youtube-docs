@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Indulge in 9 Holiday Blockbusters  Free Online Christmas Viewing\""
-date: 2024-12-20T18:07:39.712Z
-updated: 2024-12-22T22:28:12.085Z
+date: 2024-12-25T11:00:27.814Z
+updated: 2024-12-28T10:49:00.940Z
 tags:
   - ai video
   - ai youtube
@@ -31,29 +31,25 @@ If you are looking for Christmas entertainment this season you may be quick to l
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1. The nutcracker 1990
 
 The Nutcracker is a holiday classic that many people seek out every year on the stage. This family ballet classic was filmed by the Pacific Northwest ballet in a huge and lavish version of the production in 1986\. This still stands as one of the best versions of the Nutcracker ever captured on film and you can watch it for free on YouTube. You can find the Nutcracker at :
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2. A smoky mountain Christmas
 
 A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and starring Lee Majors and Dolly Parton. The full musical fairy tale can be found online on YouTube and it's about a country singer who is trying to spend a quiet Christmas holiday at home. She suddenly becomes involved with a mysterious mountain man, an evil witch and is forced to protect seven orphans over the holidays. This film can be found at:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3. Ernest saves Christmas
 
 This film from 1989 features Jim Varney and his most famous character Ernest in a holiday Christmas movie that is an instant classic. This film is very funny and a favorite amongst some of the Ernest films for many. This Christmas movie from 1989 can be found at:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4. A Christmas story
 
@@ -67,16 +63,24 @@ In this film from 1998 we hear the story of the richest kid in the world on Chri
 
 This film stars the hulk Mark Ruffalo in one of his earlier roles as a store employee who catches a con woman trying to steal from a department store on Christmas. His character agrees to be responsible for the con woman and her niece over the holidays to prevent them from staying with social services. A romance develops! This 1997 film can be found at:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 7. Santa Who?
 
 Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday classic Santa suffers a severe case of amnesia on Christmas Eve and needs to recover for Christmas day in order to make it through and deliver presents to all of the good children of the world. See if Santa gets his Christmas memories back by watching Santa Who here:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 8. A Christmas Carol
 
 In this film from 1984 George C Scott brings to life the role of Ebenezer Scrooge from the perspective of the Charles Dickens novel. This is heavily been regarded as one of the most accurate versions to the Charles Dickens story. Although it may not have all of the special effects of some of the other versions of a Christmas carol this is still one of the favored versions of the story out there. You can watch this 1984 film here:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 9. Miracle on 34th street
@@ -84,10 +88,6 @@ In this film from 1984 George C Scott brings to life the role of Ebenezer Scroog
 In this recreation of the original film from 1947 this shortened full-length version from 1955 per trade is the classic story of santa on trial. A department store Santa suggests that he's the real santa and goes on trial to prove it. In this version of miracle on 34th Street starring Thomas Mitchell and Macdonald Carey we learn who really believes in Santa Claus. You can find this classic film here:
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -110,14 +110,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/levate-your-content-seo-mastery-starts-here-in-2024/"><u>[New] Elevate Your Content SEO Mastery Starts Here, In 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-conduct-cost-effective-seminars-using-youtube/"><u>[New] In 2024, Conduct Cost-Effective Seminars Using YouTube</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ve-a-millennium-of-subscriber-milestones-for-2024/"><u>Achieve a Millennium of Subscriber Milestones for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/architectural-marvels-best-6-mojave-homes-for-2024/"><u>Architectural Marvels Best 6 Mojave Homes for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/down-of-earnings-how-much-does-a-clicky-make-in-2024/"><u>Breakdown of Earnings How Much Does a Clicky Make, In 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ny-and-rhythm-discover-the-best-15-youtube-educational-videos/"><u>Harmony & Rhythm Discover the Best 15 YouTube Educational Videos</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-xiaomi-redmi-12-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Xiaomi Redmi 12? | Dr.fone</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210355875-9781250803771-reading-tea-leaves/"><u>Reading Tea Leaves | Free Book</u></a></li>
-<li><a href="https://techtrends.techidaily.com/ultimate-guide-resolving-phase0exception-error-stopcode-0x00000078/"><u>Ultimate Guide: Resolving PHASE0_EXCEPTION Error - StopCode 0X00000078</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-streaming-stardom-unraveling-jake-pauls-youtube-rise/"><u>[New] 2024 Approved Streaming Stardom Unraveling Jake Paul's YouTube Rise</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nlocking-youtubes-subscriber-potential-in-30-days-for-2024/"><u>[New] Unlocking YouTube's Subscriber Potential in 30 Days for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-elevate-your-channels-templates-at-no-charge/"><u>[Updated] 2024 Approved Elevate Your Channels - Templates at No Charge</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-optimizing-audacity-a-guide-to-premium-sound-capture/"><u>[Updated] Optimizing Audacity A Guide to Premium Sound Capture</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-conveniently-share-your-videos-youtube-shorts-mobilecomputer-tips/"><u>2024 Approved Conveniently Share Your Videos YouTube Shorts Mobile/Computer Tips</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-mastering-file-saving-on-windows-11-a-compendium-of-six-techniques/"><u>2024 Approved Mastering File Saving on Windows 11 A Compendium of Six Techniques</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-ultimate-resource-compilation-for-media-imagery/"><u>2024 Approved Ultimate Resource Compilation for Media Imagery</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/convert-videos-at-no-cost-easy-file-conversion-with-movavis-free-tool/"><u>Convert Videos at No Cost: Easy File Conversion with Movavi's Free Tool</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-share-location-in-messenger-on-oppo-reno-8t-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share Location in Messenger On Oppo Reno 8T 5G? | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unveil-top-10plus-platforms-for-virtual-worship-spaces/"><u>In 2024, Unveil Top 10+ Platforms for Virtual Worship Spaces</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/must-download-10-amazing-apps-that-every-high-school-student-should-use/"><u>Must-Download: 10 Amazing Apps That Every High School Student Should Use</u></a></li>
 </ul></div>
 

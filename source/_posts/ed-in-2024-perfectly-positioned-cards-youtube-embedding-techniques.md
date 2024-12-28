@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Perfectly Positioned Cards  YouTube Embedding Techniques\""
-date: 2024-08-23T09:56:57.942Z
-updated: 2024-08-24T09:56:57.942Z
+date: 2024-12-21T11:13:28.524Z
+updated: 2024-12-28T00:52:47.980Z
 tags:
   - ai video
   - ai youtube
@@ -45,6 +45,10 @@ The main difference between annotation and cards is their outlook. Cards are mor
 * [Part 1: How to Add YouTube Cards](#part1)
 * [Part 2: How to Add YouTube Annotations](#part2)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to add YouTube Cards
 
 YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
@@ -58,12 +62,20 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
 * Click on the create button which will open the corresponding video
 * Once you finish the subsequent information required click create card
 * Select the timeline for the playhead to appear which leads to the card slide
 
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Apply changes and exit
 
@@ -77,10 +89,18 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -126,14 +146,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -142,8 +159,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-ending-invisible-gaming-captures-in-software/"><u>[New] 2024 Approved Ending Invisible Gaming Captures in Software</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-craft-a-powerhouse-channel-with-studio-expertise-for-2024/"><u>[New] Craft a Powerhouse Channel with Studio Expertise for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-first-rate-biodegradable-filming-gear-tutorials/"><u>[New] First-Rate Biodegradable Filming Gear Tutorials</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-streamline-channels-effortlessly-top-10-online-design-aids/"><u>[New] In 2024, Streamline Channels Effortlessly Top 10 Online Design Aids</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-building-the-ultimate-youtube-musical-collection-for-2024/"><u>[Updated] Building the Ultimate YouTube Musical Collection for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-making-dollars-from-skincare-videos/"><u>[Updated] In 2024, Making Dollars From Skincare Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-snippet-spectacle-top-hashes-to-trigger-the-viral-spree-on-youtube/"><u>[Updated] In 2024, Snippet Spectacle Top Hashes to Trigger the Viral Spree on YouTube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-income-levels-of-mr-beast/"><u>2024 Approved Income Levels of Mr. Beast</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-exclusive-access-to-6-premium-thumbnail-generators-for-youtube/"><u>In 2024, Exclusive Access to 6 Premium Thumbnail Generators for YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-unveiling-the-ultimate-secret-amplifying-gaming-vids-with-hashes/"><u>In 2024, Unveiling the Ultimate Secret Amplifying Gaming Vids with Hashes</u></a></li>
+<li><a href="https://win-answers.techidaily.com/resolving-chrome-pages-wont-load-a-comprehensive-guide/"><u>Resolving 'Chrome Pages Won't Load': A Comprehensive Guide</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
