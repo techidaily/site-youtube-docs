@@ -1,7 +1,7 @@
 ---
 title: "\"From Speech to Text  A Complete, FREE Workshop on YouTube Transcription for 2024\""
-date: 2024-08-16T06:49:50.837Z
-updated: 2024-08-17T06:49:50.837Z
+date: 2025-01-02T21:06:12.798Z
+updated: 2025-01-06T20:32:19.881Z
 tags:
   - ai video
   - ai youtube
@@ -38,8 +38,9 @@ Besides the [basic video editing features on the YouTube](https://tools.techidai
 Below are the two methods to transcribe your YouTube videos for free:
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Method 1: Use the Automated Transcription Service on YouTube
 
 As the name suggests, YouTube automatic transcription service works automatically. This means you don’t even have to click the ‘Transcribe’ button anymore to **transcribe a YouTube video**, and the website takes care of it on its own. All you need to do is, choose English as the language of the video when setting up subtitles. You can follow the instructions given below to do so:
@@ -49,9 +50,6 @@ As the name suggests, YouTube automatic transcription service works automaticall
 Sign in to your YouTube account, click your profile picture from the top-right corner, and click **YouTube Studio** from the menu. Next, click **CREATE** from the upper-right corner, click **Upload videos** from the menu, and drag and drop a video from your computer to the **Upload videos** box that appears next.
 
 ![Upload YouTube videos](https://images.wondershare.com/filmora/article-images/youtube-upload-video.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 #### Step 2  Select Transcription Language
 
@@ -76,8 +74,9 @@ While on the **YouTube Studio** page, click **Subtitles** from the left pane to 
 In the video subtitle page of the target video, hover mouse on the **Published Automatic** status under the **Subtitles** column, click the **Options** icon (with three vertical dots) that appears, and click **Edit on Classic Studio**.
 
 ![YouTube Classic Studio](https://images.wondershare.com/filmora/article-images/youtube-edit-on-classic-studio.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. **Download Transcription File**
@@ -85,13 +84,7 @@ In the video subtitle page of the target video, hover mouse on the **Published A
 Click and open the **Actions** drop-down list from the top-left corner of the left pane, click your preferred transcription format including .vtt, .srt and .sbv from the list, and save the file on your local hard disk.
 
 ![YouTube videos transcription](https://images.wondershare.com/filmora/article-images/download-youtube-video-transcription.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Method 2: Get YouTube Transcription when Watching
 
 In addition, if you are watching any other video, you can make YouTube transcribe that for you as well. You can follow the instructions given below to get the **YouTube video to text transcription**:
@@ -129,9 +122,6 @@ Click **Auto-generate** from the right window, and follow the on-screen instruct
 Click **Download SRT** from the left pane, and follow the instructions from there to download the transcription file in \*.srt format.
 
 ![Kapwing Auto Generate Subtitles](https://images.wondershare.com/filmora/article-images/kapwing-auto-generated-subtitles.jpg)
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 
 **Pros**
 
@@ -155,13 +145,18 @@ Click **Auto-generate** from the right window, and follow the on-screen instruct
 
 ![Kapwing Auto Generate Subtitles](https://images.wondershare.com/filmora/article-images/kapwing-auto-generate-subtitles.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3: Download the Transcription File**
 
 Click **Download SRT** from the left pane, and follow the instructions from there to download the transcription file in \*.srt format.
 
 ![Kapwing Auto Generate Subtitles](https://images.wondershare.com/filmora/article-images/kapwing-auto-generated-subtitles.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Pros**
@@ -189,6 +184,10 @@ If the speaker in the video is from a different region and is using an accent th
 * **Repurposing on Blogs**
 
 If you own a blog that you have embedded your video to, the transcription could be used to add text to it so the target audience can get a fair idea of what the video is all about. This is useful because many people prefer reading over watching.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### YouTube Video Transcription FAQs
 
@@ -234,14 +233,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -250,4 +246,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/iscover-the-top-10-historically-rich-youtube-tutorials-for-2024/"><u>[New] Discover the Top 10 Historically Rich YouTube Tutorials for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/xtracting-youtube-content-with-ease-for-2024/"><u>[New] Extracting YouTube Content with Ease for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/rganizing-soundtracks-formulating-a-youtube-music-list-for-2024/"><u>[New] Organizing Soundtracks Formulating a YouTube Music List for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-elevate-your-content-with-effective-video-seo/"><u>[Updated] In 2024, Elevate Your Content with Effective Video SEO</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-macs-best-picks-elite-4k-monitor-showdown/"><u>[Updated] In 2024, Mac's Best Picks Elite 4K Monitor Showdown</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-digital-detective-work-cracking-the-code-to-live-streams/"><u>2024 Approved Digital Detective Work Cracking the Code to Live Streams</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/direct-vs-additional-gpt-tools-for-effective-communication/"><u>Direct Vs. Additional GPT Tools for Effective Communication</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/exploring-ai-on-quora-how-to-connect-with-cutting-edge-chatbots-and-large-language-models-seamlessly/"><u>Exploring AI on Quora: How to Connect With Cutting-Edge Chatbots and Large Language Models Seamlessly</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/-income-tactics/"><u>Gamer Income Tactics</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-build-your-wealth-on-youtube-a-guide-to-creating-content-without-ads/"><u>In 2024, Build Your Wealth on YouTube A Guide to Creating Content Without Ads</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-art-of-converting-gifs-how-to-create-cool-stickers-in-discord-and-whatsapp/"><u>In 2024, The Art of Converting GIFs How to Create Cool Stickers in Discord & WhatsApp</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/navigating-the-process-of-archiving-google-voice-conversations-on-smartphones-and-computers/"><u>Navigating the Process of Archiving Google Voice Conversations on Smartphones & Computers</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/personalizing-your-gmail-experience-a-step-by-step-guide-to-creating-any-rule/"><u>Personalizing Your Gmail Experience: A Step-by-Step Guide to Creating Any Rule</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/the-ultimate-guide-to-infinix-zero-30-5g-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>The Ultimate Guide to Infinix Zero 30 5G Pattern Lock Screen Everything You Need to Know</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/top-15-tools-for-boosting-fb-sales-through-data-analysis/"><u>Top 15 Tools for Boosting FB Sales Through Data Analysis</u></a></li>
+</ul></div>
 

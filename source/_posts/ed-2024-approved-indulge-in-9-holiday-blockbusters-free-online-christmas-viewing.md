@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Indulge in 9 Holiday Blockbusters  Free Online Christmas Viewing\""
-date: 2024-12-25T11:00:27.814Z
-updated: 2024-12-28T10:49:00.940Z
+date: 2025-01-03T22:31:34.837Z
+updated: 2025-01-06T18:47:26.274Z
 tags:
   - ai video
   - ai youtube
@@ -35,12 +35,16 @@ If you are looking for Christmas entertainment this season you may be quick to l
 
 The Nutcracker is a holiday classic that many people seek out every year on the stage. This family ballet classic was filmed by the Pacific Northwest ballet in a huge and lavish version of the production in 1986\. This still stands as one of the best versions of the Nutcracker ever captured on film and you can watch it for free on YouTube. You can find the Nutcracker at :
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2. A smoky mountain Christmas
 
 A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and starring Lee Majors and Dolly Parton. The full musical fairy tale can be found online on YouTube and it's about a country singer who is trying to spend a quiet Christmas holiday at home. She suddenly becomes involved with a mysterious mountain man, an evil witch and is forced to protect seven orphans over the holidays. This film can be found at:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3. Ernest saves Christmas
@@ -48,7 +52,7 @@ A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and sta
 This film from 1989 features Jim Varney and his most famous character Ernest in a holiday Christmas movie that is an instant classic. This film is very funny and a favorite amongst some of the Ernest films for many. This Christmas movie from 1989 can be found at:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4. A Christmas story
@@ -59,29 +63,25 @@ A Christmas story has long been one of the favorite Christmas movies for many fa
 
 In this film from 1998 we hear the story of the richest kid in the world on Christmas. In this film we see the richest in the world wishing that he had never been born with the wish coming true. Richie needs to find himself a new wishing machine and a way out of the parallel universe he gets stuck in to get back to his family. You can find this film at:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 6. On the second day of Christmas
 
 This film stars the hulk Mark Ruffalo in one of his earlier roles as a store employee who catches a con woman trying to steal from a department store on Christmas. His character agrees to be responsible for the con woman and her niece over the holidays to prevent them from staying with social services. A romance develops! This 1997 film can be found at:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 7. Santa Who?
 
 Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday classic Santa suffers a severe case of amnesia on Christmas Eve and needs to recover for Christmas day in order to make it through and deliver presents to all of the good children of the world. See if Santa gets his Christmas memories back by watching Santa Who here:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 8. A Christmas Carol
 
 In this film from 1984 George C Scott brings to life the role of Ebenezer Scrooge from the perspective of the Charles Dickens novel. This is heavily been regarded as one of the most accurate versions to the Charles Dickens story. Although it may not have all of the special effects of some of the other versions of a Christmas carol this is still one of the favored versions of the story out there. You can watch this 1984 film here:
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 9. Miracle on 34th street
 
@@ -110,16 +110,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-streaming-stardom-unraveling-jake-pauls-youtube-rise/"><u>[New] 2024 Approved Streaming Stardom Unraveling Jake Paul's YouTube Rise</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/nlocking-youtubes-subscriber-potential-in-30-days-for-2024/"><u>[New] Unlocking YouTube's Subscriber Potential in 30 Days for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-elevate-your-channels-templates-at-no-charge/"><u>[Updated] 2024 Approved Elevate Your Channels - Templates at No Charge</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-optimizing-audacity-a-guide-to-premium-sound-capture/"><u>[Updated] Optimizing Audacity A Guide to Premium Sound Capture</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-conveniently-share-your-videos-youtube-shorts-mobilecomputer-tips/"><u>2024 Approved Conveniently Share Your Videos YouTube Shorts Mobile/Computer Tips</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-mastering-file-saving-on-windows-11-a-compendium-of-six-techniques/"><u>2024 Approved Mastering File Saving on Windows 11 A Compendium of Six Techniques</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-ultimate-resource-compilation-for-media-imagery/"><u>2024 Approved Ultimate Resource Compilation for Media Imagery</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/convert-videos-at-no-cost-easy-file-conversion-with-movavis-free-tool/"><u>Convert Videos at No Cost: Easy File Conversion with Movavi's Free Tool</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-share-location-in-messenger-on-oppo-reno-8t-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share Location in Messenger On Oppo Reno 8T 5G? | Dr.fone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-unveil-top-10plus-platforms-for-virtual-worship-spaces/"><u>In 2024, Unveil Top 10+ Platforms for Virtual Worship Spaces</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/must-download-10-amazing-apps-that-every-high-school-student-should-use/"><u>Must-Download: 10 Amazing Apps That Every High School Student Should Use</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-a-step-by-step-guide-to-youtube-stats-analysis-via-social-blade-platform/"><u>[New] 2024 Approved A Step-by-Step Guide to YouTube Stats Analysis via Social Blade Platform</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-churning-charts-todays-1-backdrop-music-for-youtube-shorts/"><u>[New] 2024 Approved Churning Charts Today's #1 Backdrop Music for YouTube Shorts</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-collect-priceless-imagery-from-trusted-4-youtube-directories/"><u>[New] 2024 Approved Collect Priceless Imagery From Trusted 4 YouTube Directories</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-embrace-the-pause-button-3-techniques-for-decelerating-youtube-video-playback-59-chars-slight-overage-with-rich-content-justification/"><u>[New] 2024 Approved Embrace the Pause Button 3 Techniques for Decelerating YouTube Video Playback (59 Chars, Slight Overage with Rich Content Justification)</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-harmonizing-tracks-in-youtube-music/"><u>[New] 2024 Approved Harmonizing Tracks in YouTube Music</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-investigating-spotlighted-comments-online/"><u>[New] 2024 Approved Investigating Spotlighted Comments Online</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-investment-alert-avoid-the-trap-of-artificial-youtube-engagement/"><u>[New] 2024 Approved Investment Alert Avoid the Trap of Artificial YouTube Engagement</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-launching-into-the-world-of-web-flipping-videos-from-mac/"><u>[New] 2024 Approved Launching Into the World of Web-Flipping Videos From Mac</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-procure-no-cost-media-content-from-prime-4-youtube-vids/"><u>[New] 2024 Approved Procure No-Cost Media Content From Prime 4 YouTube Vids</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-gopro-and-yi-the-2023-ultimate-actions-camera-verdict/"><u>[New] In 2024, GoPro & YI The 2023 Ultimate Actions Camera Verdict</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-best-of-mobile-8-ranked-free-and-premium-apps-for-androids-video-tiles/"><u>[Updated] Best of Mobile #8 Ranked Free & Premium Apps for Android's Video Tiles</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-mirth-mechanics-gratis-tools-to-amuse-and-entertain/"><u>[Updated] In 2024, Mirth Mechanics Gratis Tools to Amuse and Entertain</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-ideal-vr-solutions-for-drone-flying/"><u>2024 Approved Ideal VR Solutions for Drone Flying</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/dive-into-audacity-simple-steps-to-record-on-mac-devices/"><u>Dive Into Audacity Simple Steps to Record on Mac Devices</u></a></li>
+<li><a href="https://win-data.techidaily.com/emeditor-version-173-fixes-non-responsive-issues-in-handling-large-text-files/"><u>EmEditor Version 17.3 - Fixes Non-Responsive Issues in Handling Large Text Files</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/mastering-obs-and-zoom-simplified-integration-guide/"><u>Mastering OBS & Zoom Simplified Integration Guide</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/tailor-your-iphone-experience-on-ios-18-mastering-control-center-customization-with-tips-latest-article/"><u>Tailor Your iPhone Experience on iOS 18: Mastering Control Center Customization with Tips Latest Article</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-roadmap-how-to-make-your-covers-shine/"><u>The Roadmap How To Make Your Covers Shine</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/the-ultimate-checklist-for-achieving-high-quality-vocal-recordings/"><u>The Ultimate Checklist for Achieving High-Quality Vocal Recordings</u></a></li>
 </ul></div>
 

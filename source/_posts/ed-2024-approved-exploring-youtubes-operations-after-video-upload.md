@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Exploring YouTube's Operations After Video Upload\""
-date: 2024-08-23T09:52:47.344Z
-updated: 2024-08-24T09:52:47.344Z
+date: 2024-12-30T18:17:12.722Z
+updated: 2025-01-07T01:05:37.687Z
 tags:
   - ai video
   - ai youtube
@@ -28,6 +28,10 @@ You use YouTube to watch videos, post your own content, and build up a following
 
 This article will explain what goes on behind the scenes when you upload a video, where that video really goes, and what happens when somebody clicks play.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Does YouTube Work
 
 #### 1\. What Happens When You Upload?
@@ -40,9 +44,17 @@ If uploading takes a long time for you it probably has nothing to do with YouTub
 
 ![how youtube works](https://images.wondershare.com/filmora/article-images/how-youtube-works.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 As it is owned by Google YouTube uses Google's 'Bigtable', a compressed data storage system which allows it to store the 500+ hours of video uploaded to its servers every minute. Bigtable is software, though, not hardware. YouTube and Google both have massive amounts of data and it needs to be physically housed somewhere.
 
 ![videos uploaded to youtube](https://images.wondershare.com/filmora/article-images/videos-uploaded-to-youtube.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Google has Modular Data Centers all over the world where it keeps its servers. These centers could cost as much as $600 million dollars each and consume huge amounts of electricity. There are six of them in the United States, three in Europe, two in Asia, and one is South America.
 
@@ -54,20 +66,21 @@ If videos take a long time to load for you then there are a few things you can d
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -76,8 +89,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-high-definition-vision-saving-tech/"><u>[New] 2024 Approved High Definition Vision Saving Tech</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-maximizing-impact-with-a-triad-of-tailored-copywriting-methods/"><u>[New] 2024 Approved Maximizing Impact with a Triad of Tailored Copywriting Methods</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-4-simplified-techniques-to-embed-youtube-content-in-powerpoint/"><u>[Updated] 2024 Approved 4 Simplified Techniques to Embed YouTube Content in PowerPoint</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-unveiling-advanced-methods-to-harness-screencapture-tools/"><u>[Updated] 2024 Approved Unveiling Advanced Methods to Harness ScreenCapture Tools</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-harnessing-creative-energy-for-impactful-lyric-videos-and-lyric-video-maker-for-2024/"><u>[Updated] Harnessing Creative Energy for Impactful Lyric Videos & Lyric Video Maker for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-step-by-step-blueprint-crafting-engaging-youtube-content-via-windows-movie-maker/"><u>[Updated] In 2024, Step-by-Step Blueprint Crafting Engaging YouTube Content via Windows Movie Maker</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-why-are-your-video-shorts-thumbnails-not-showing/"><u>[Updated] In 2024, Why Are Your Video Shorts' Thumbnails Not Showing?</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-portrait-of-creativity-discover-the-bestiary-of-8-inspiring-ios-drawing-apps/"><u>[Updated] Portrait of Creativity Discover the Bestiary of 8 Inspiring iOS Drawing Apps</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/in-2024-viral-vector-tags-keywords-that-power-up-your-social-media-snaps/"><u>In 2024, Viral Vector Tags Keywords that Power Up Your Social Media Snaps</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/h-transition-from-phones-to-youtube-setting-up-personalbusiness-channels-for-2024/"><u>Smooth Transition From Phones to YouTube Setting Up Personal/Business Channels for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/streamline-your-content-leading-android-video-editors-for-2024/"><u>Streamline Your Content Leading Android Video Editors for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/rt-of-ad-driven-earnings-ajays-youtube-strategy-for-2024/"><u>The Art of Ad-Driven Earnings Ajay's YouTube Strategy for 2024</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/the-power-of-youtube-live-selling-unlock-your-sales-potential/"><u>The Power of YouTube Live Selling Unlock Your Sales Potential</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/the-visionarys-manual-selecting-the-most-compelling-4k-displays-today/"><u>The Visionary's Manual Selecting the Most Compelling 4K Displays Today</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->

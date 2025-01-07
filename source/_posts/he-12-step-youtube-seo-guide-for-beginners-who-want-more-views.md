@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The 12-Step YouTube SEO Guide for Beginners Who Want More Views\""
-date: 2024-08-23T09:52:39.200Z
-updated: 2024-08-24T09:52:39.200Z
+date: 2025-01-03T18:03:57.462Z
+updated: 2025-01-07T00:16:06.773Z
 tags:
   - ai video
   - ai youtube
@@ -38,6 +38,10 @@ Ready?
 
 Let’s Go!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Research Your Topic and Competitors
 
 [Come up with a video idea](https://tools.techidaily.com/wondershare/filmora/download/). Can’t come up with one? Let me help. I heard you can make a mean scrambled egg, why don’t you show the world how you do it?
@@ -52,11 +56,19 @@ Do a quick search on YouTube to see what videos already exist on your topic.
 
 ![Find Related Videos Sample](https://images.wondershare.com/filmora/article-images/find-related-videos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Uh oh… your video will be competing against celebrities like Gordon Ramsay and Jamie Oliver.
 
 Okay, don’t panic! There is a fantastic quote, credited to bestselling author, [Jon Acuff](https://acuff.me/), that goes:
 
 ![fantastic quote](https://images.wondershare.com/filmora/article-images/fantastic-quote-do-not-compare-beginning-to-middle.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 While researching your competition, you will feel overwhelmed, but remember, you are at the beginning, and Gordon Ramsay and Jamie Oliver are not even at their middle, they are way passed the finish line. You still have a long journey to go, so don’t get discouraged, get inspired!
 
@@ -89,6 +101,10 @@ This app gives you a whole list of long-tail keywords, which are 3-4-word phrase
 Some you will use to dig deeper in and other you will deem irrelevant to your videos. A good way of determining the value of a keyword is by the stats the application shows.
 
 ![ Keywords in Ubersuggest](https://images.wondershare.com/filmora/article-images/find-keywords-with-ubersuggest.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ####  
 
@@ -190,6 +206,10 @@ For example, in this scrambled egg video you are making, at the end you can ask,
 
 ![Encourage Viewers to Engage in Video](https://images.wondershare.com/filmora/article-images/encourage-viewers-to-engage-min.gif)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Who knows, who will respond.
 
 #### Step 9: Design a Thumbnail
@@ -208,18 +228,12 @@ You can use an online service called [Canva](https://www.canva.com/)or download 
 
 Want to know more thumbnail maker? Check our picks of the [best free YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 3: Publishing With Attention to Optimization
 
 Well done finishing the video! You are almost there… but not there yet.
 
 ![XDyocwuGRiSptxueJZ5aokKqKt-JXMbX](https://images.filmora.io/5/XDyocwuGRiSptxueJZ5aokKqKt-JXMbX.gif)
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
-<!-- affiliate ads end -->
 Come on, keep going!
 
 #### Step 10: Fill Out Your Videos Assets
@@ -228,9 +242,6 @@ The video is done, the thumbnail is designed, and you have all your title, descr
 
 ![Fill Out Your Videos Assets](https://images.wondershare.com/filmora/article-images/creator-stuido-fill-out-video-assets.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### Step 11: Add Transcripts
 
 In addition to making your content accessible for people who don’t want to or can’t listen to the audio in your video, adding subtitles and closed captions will help YouTube understand the spoken content in your video.
@@ -255,30 +266,21 @@ Besides considering YouTube SEO, you should make a good YouTube video as well. F
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 Do you have any questions about SEO? Please leave us a comment below.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -287,4 +289,23 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-elites-free-guide-to-10-caption-download-tools/"><u>[New] 2024 Approved Elite's Free Guide to 10 Caption Download Tools</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/astering-the-art-of-channel-creation-on-youtube/"><u>[New] Mastering the Art of Channel Creation on YouTube</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-demystifying-the-use-of-luts-in-professional-photoshop-workflows/"><u>[Updated] 2024 Approved Demystifying the Use of LUTs in Professional Photoshop Workflows</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-enhance-engagement-learn-to-dim-youtube-video-backgrounds/"><u>[Updated] In 2024, Enhance Engagement Learn to Dim YouTube Video Backgrounds</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-unlock-more-views-the-art-of-editing-your-youtube-content/"><u>[Updated] In 2024, Unlock More Views The Art of Editing Your YouTube Content</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-optimizing-hashtags-for-youtube-traffic-triplets-for-2024/"><u>[Updated] Optimizing Hashtags for YouTube Traffic Triplets for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-zooming-success-detailed-instruction-for-exceptional-podcast-recording-quality-for-2024/"><u>[Updated] Zooming Success Detailed Instruction for Exceptional Podcast Recording Quality for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-leverage-creative-studio-for-maximum-youtube-reach-and-engagement/"><u>2024 Approved Leverage Creative Studio for Maximum YouTube Reach and Engagement</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-mastering-youtube-channel-descriptions/"><u>2024 Approved Mastering YouTube Channel Descriptions</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/webmandmp4-hd/"><u>最新WEBM&MP4変換ツール【オンライン】- HD動画保ちます、安心して使い放題</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ring-the-art-and-size-game-your-guide-to-top-tier-yt-banners-for-2024/"><u>Mastering the Art & Size Game Your Guide to Top-Tier YT Banners for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/navigating-chat-interruptions-how-to-tell-if-theres-a-global-discoord-down-event-or-just-your-connection-woes/"><u>Navigating Chat Interruptions: How to Tell if There's a Global Discoord Down Event or Just Your Connection Woes</u></a></li>
+<li><a href="https://some-tips.techidaily.com/the-evolution-of-trade-finance-adaptive-strategies-for-emerging-obstacles-and-opportunities/"><u>The Evolution of Trade Finance: Adaptive Strategies for Emerging Obstacles and Opportunities</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/the-ultimate-solution-for-the-missing-xinput-1-3-dll-file-issue/"><u>The Ultimate Solution for the Missing Xinput 1-3 DLL File Issue</u></a></li>
+<li><a href="https://techtrends.techidaily.com/troubleshooting-the-dsounddll-not-found-problem-on-your-pc/"><u>Troubleshooting the 'dsound.dll Not Found' Problem on Your PC</u></a></li>
+<li><a href="https://fox-sys.techidaily.com/1728483847078-windows-114/"><u>Windows 11用の最も効果的な削除ファイル回復手法4つ</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Navigating to Submillion Territory on YouTube\""
-date: 2024-08-23T09:54:19.369Z
-updated: 2024-08-24T09:54:19.369Z
+date: 2025-01-05T19:19:31.930Z
+updated: 2025-01-06T23:58:41.686Z
 tags:
   - ai video
   - ai youtube
@@ -30,9 +30,17 @@ You’ve probably heard of stories about individuals who managed to find financi
 
 Jesse Ridgway is the owner of the vlog [McJuggerNuggets](https://www.youtube.com/user/McJuggerNuggets), which has grown to over 3.4 million subscribers. He makes enough money to live off of YouTube alone. Here is a case study of how he made his first $10,000 on YouTube:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Case Study of McJuggerNuggets
 
 ![Case Study McJugger Nuggets](https://images.wondershare.com/filmora/article-images/case-study-mcjugger-nuggets.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Jesse was one of the earliest YouTubers. He started his channel on December 9, 2006\. Jesse never guessed that he would make enough money to live off of the videos he was creating. Here are some of the ways that he monetized his channel:
 
@@ -82,11 +90,23 @@ Regular research into your target market will help you to create the trendiest n
 
 Timing and luck are definitely two of the biggest factors in becoming a success on YouTube. If you are willing to keep working and don’t get discouraged you will eventually earn profits.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Edit Your Videos with High-Quality Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -94,14 +114,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -110,8 +127,23 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-facebooks-real-time-media-watch-guide-2023/"><u>[New] 2024 Approved Facebook's Real-Time Media Watch Guide, 2023</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/utting-edge-gear-for-aspiring-youtube-stars-for-2024/"><u>[New] Cutting-Edge Gear for Aspiring YouTube Stars for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/tandardized-youtube-images-made-accessible-3-easy-ways-to-download-for-2024/"><u>[New] Standardized YouTube Images Made Accessible 3 Easy Ways to Download for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-architects-crafting-fantasy-realms-for-marvel/"><u>[Updated] 2024 Approved Architects Crafting Fantasy Realms for Marvel</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-quick-tips-for-high-quality-audio-recordings-on-your-imac/"><u>[Updated] 2024 Approved Quick Tips for High-Quality Audio Recordings on Your iMac</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-best-5-youtube-video-editor-alternatives-for-2024/"><u>[Updated] Best 5 YouTube Video Editor Alternatives for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-youtube-tv-explained-essential-knowledge-for-all-viewers/"><u>[Updated] In 2024, YouTube TV Explained Essential Knowledge for All Viewers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-spotlight-on-8-mirrorless-cameras-dominating-the-vlogging-scene/"><u>2024 Approved Spotlight on 8 Mirrorless Cameras Dominating the Vlogging Scene</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/cookiebot-enabled-solutions-your-key-to-effective-user-tracking/"><u>Cookiebot-Enabled Solutions: Your Key to Effective User Tracking</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-go-joystick-on-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Realme 11 Pro+? | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-comparing-gopro-and-polaroids-video-editors-for-filmmakers/"><u>In 2024, Comparing GoPro & Polaroid's Video Editors for Filmmakers</u></a></li>
+<li><a href="https://win-answers.techidaily.com/maximizing-game-performance-solutions-for-low-fps-on-war-thunder-latest-fixes/"><u>Maximizing Game Performance: Solutions for Low FPS on War Thunder - Latest Fixes</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/proven-winners-analyzing-5-leading-ai-prompt-generators/"><u>Proven Winners: Analyzing 5 Leading AI Prompt Generators</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/egies-for-elevating-your-content-with-featured-channels-on-youtube/"><u>Strategies for Elevating Your Content with Featured Channels on YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/uditory-alteration-aids-for-streamers-and-clips/"><u>Top Auditory Alteration Aids for Streamers and Clips</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/ultimate-screenplay-crafting-site-for-2024/"><u>Ultimate Screenplay Crafting Site for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->

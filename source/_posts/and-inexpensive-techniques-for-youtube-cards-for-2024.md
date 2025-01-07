@@ -1,7 +1,7 @@
 ---
 title: "Easy and Inexpensive Techniques for YouTube Cards for 2024"
-date: 2024-08-16T06:49:45.116Z
-updated: 2024-08-17T06:49:45.116Z
+date: 2025-01-02T18:03:30.491Z
+updated: 2025-01-06T22:12:06.733Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/441d853e672f2da2cc47c9b5003852c7b54a8c4bd
 
 [How To Make an End Card](#how-to)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -68,6 +72,10 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -78,8 +86,9 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -114,8 +123,9 @@ Some creators will leave their end cards at that and play music overtop, but it 
 14. Click **Apply Changes**.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -124,14 +134,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -140,4 +147,24 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-acquire-no-cost-sounds-for-videos-and-podcasts/"><u>[New] 2024 Approved Acquire No-Cost Sounds for Videos & Podcasts!</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-dimming-sound-effects-in-logic-pro-a-step-by-step-guide/"><u>[New] 2024 Approved Dimming Sound Effects in Logic Pro A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-the-ultimate-guide-to-charging-up-your-video-empire/"><u>[New] 2024 Approved The Ultimate Guide to Charging Up Your Video Empire</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-leverage-creative-studio-for-maximum-youtube-reach-and-engagement/"><u>[New] In 2024, Leverage Creative Studio for Maximum YouTube Reach and Engagement</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-film-school-at-home-mastering-video-editing-via-youtube-and-alternatives/"><u>[Updated] Film School at Home Mastering Video Editing via YouTube & Alternatives</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-elevate-your-vlogs-with-epic-youtube-reactions-discover-3-pro-tips/"><u>[Updated] In 2024, Elevate Your Vlogs with Epic YouTube Reactions – Discover 3 Pro Tips</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-game-testers-and-beta-gamers-online/"><u>[Updated] In 2024, Game Testers & Beta Gamers Online</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-instrument-innovations-see-the-top-15-music-tech-tutorials-on-youtube/"><u>[Updated] In 2024, Instrument Innovations See the Top 15 Music Tech Tutorials on YouTube</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/1722979132996-get-the-latest-eveo-bluetooth-device-driver-now/"><u>Get the Latest EVEO Bluetooth Device Driver Now</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/obal-quickly-optimal-tags-to-escalate-your-youtube-snippets/"><u>Go Global Quickly Optimal Tags to Escalate Your YouTube Snippets</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-change-country-on-app-store-for-apple-iphone-xs-with-7-methods-by-drfone-ios/"><u>How To Change Country on App Store for Apple iPhone XS With 7 Methods</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-vivo-y77t-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Vivo Y77t? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-apple-iphone-12-mini-to-chromecast-drfone-by-drfone-ios/"><u>In 2024, How to Cast Apple iPhone 12 mini to Chromecast? | Dr.fone</u></a></li>
+<li><a href="https://program-issues.techidaily.com/solution-guide-playstation-plus-members-unable-to-open-origin-compatible-with-windows-1011/"><u>Solution Guide: PlayStation Plus Members Unable to Open Origin, Compatible with Windows 10/11</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/the-art-of-captioning-on-tiktok-5-essential-insights-for-enhanced-engagement/"><u>The Art of Captioning on TikTok 5 Essential Insights for Enhanced Engagement</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/rt-of-youtube-thumbnails-for-mac-professionals/"><u>The Art of YouTube Thumbnails for Mac Professionals</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/the-ultimate-verdict-on-unihertz-atom-xl-small-size-huge-durability-and-performance/"><u>The Ultimate Verdict on Unihertz Atom XL - Small Size, Huge Durability and Performance!</u></a></li>
+</ul></div>
 

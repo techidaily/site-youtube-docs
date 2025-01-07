@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Create Captivating YT Thumbnails Fast, In 2024"
-date: 2024-08-23T09:49:49.027Z
-updated: 2024-08-24T09:49:49.027Z
+date: 2024-12-31T01:39:21.265Z
+updated: 2025-01-06T17:44:23.145Z
 tags:
   - ai video
   - ai youtube
@@ -55,9 +55,17 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step4](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step4.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 05:** If you want to use your custom background, you can import it into the Filmora by clicking import or dragging and dropping it in the media section.
 
 ![ai-portrait-thumbnail-step5](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step5.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 06:** Import your video the same way into the media folder of Filmora and drag it into the timeline and place it above your background.
 
@@ -66,6 +74,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 **Step 07:** Select your footage, go to the Effects tab and click on AI Portraits. It will open up all the effects related to AI Portraits. These AI Portrait features help you separate the human from a background without using a green screen or anything else.
 
 ![ai-portrait-thumbnail-step7](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 08:** Double click on any of these effects to see how they will look like on your footage.
 
@@ -87,6 +99,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step12](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step12.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### Conclusion
 
 This is how your Youtube thumbnail will look like after applying all the above-mentioned effects and settings.
@@ -94,6 +110,10 @@ This is how your Youtube thumbnail will look like after applying all the above-m
 This article on making a thumbnail for your Youtube is just an idea for you, and you can use your creativity to create amazing thumbnails using other features of Filmora. These cool thumbnails will help you attract more viewers and click, which will ultimately help you grow your Youtube Channel. Unlike all other articles and tutorials that show you how to make a thumbnail for Youtube, this method is free and doesn't need any technical skills to be implemented.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -103,14 +123,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,8 +136,22 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-exploring-8-superior-youtube-to-avi-software/"><u>[New] 2024 Approved Exploring 8 Superior YouTube-to-AVI Software</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-streamlined-steps-to-delete-youtube-discussions-fast/"><u>[New] 2024 Approved Streamlined Steps to Delete YouTube Discussions Fast</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-how-to-get-started-signing-up-for-a-youtube-channel-for-2024/"><u>[New] How to Get Started Signing Up for a YouTube Channel for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/hich-channel-pulls-more-money-dailymotion-versus-youtube-monetization/"><u>[New] Which Channel Pulls More Money? Dailymotion Versus YouTube Monetization</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-easy-youtube-file-transfer-techniques/"><u>[Updated] 2024 Approved Easy YouTube File Transfer Techniques</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-a-visual-hook-creating-captivating-youtube-thumbnails-to-drive-traffic-for-2024/"><u>[Updated] A Visual Hook Creating Captivating YouTube Thumbnails to Drive Traffic for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-electorate-engagement-experience-top-gaming-selections/"><u>[Updated] Electorate Engagement Experience Top Gaming Selections</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-viral-success-the-most-loved-ae-themes-for-social-media-for-2024/"><u>[Updated] Viral Success The Most Loved AE Themes for Social Media for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-prioritize-quality-and-ease-the-top-12-videophones/"><u>2024 Approved Prioritize Quality and Ease The Top 12 Videophones</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-voice-modification-gear-top-picks-for-creators/"><u>2024 Approved Voice Modification Gear Top Picks for Creators</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ing-mac-and-monetization-imovie-editing-to-youtube-success/"><u>Bridging Mac & Monetization IMovie Editing to YouTube Success</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-use-phone-clone-to-migrate-your-oppo-reno-8t-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Use Phone Clone to Migrate Your Oppo Reno 8T Data? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-motorola-moto-g14-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 Motorola Moto G14 Android SIM Unlock APK</u></a></li>
+<li><a href="https://fox-triigers.techidaily.com/personalized-user-designed-action-panel/"><u>Personalized User-Designed Action Panel</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ling-the-top-10-youtube-makeup-maestros-to-follow/"><u>Unveiling the Top 10 YouTube Makeup Maestros to Follow</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

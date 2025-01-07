@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Unlock Flawless Video Thumbnails Instantly\""
-date: 2024-08-23T09:51:38.236Z
-updated: 2024-08-24T09:51:38.236Z
+date: 2025-01-03T20:53:33.107Z
+updated: 2025-01-06T18:41:39.509Z
 tags:
   - ai video
   - ai youtube
@@ -47,9 +47,17 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step2](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step2.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 03:** Change the Aspect Ratio to 16:9 if it is not set to it already. 16:9 aspect ratio is the standard size of Youtube thumbnails that represents the best possible results.
 
 ![ai-portrait-thumbnail-step3](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step4.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 04:** Choose a background of your choice for your thumbnail. You can choose a background from the sample colors provided by Filmora.
 
@@ -71,6 +79,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step8](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step8.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 09:** To make a thumbnail for your Youtube, we have to remove the background of your footage first. To do that we have to apply Human Segmentation to the footage first. It will separate the human from the footage. Drag and drop the Human Segmentation effect into the footage in the timeline. Once you drop it into the footage, it will ask you to purchase this feature to export the footage. Since we are not trying to export the footage, we are only creating a thumbnail, click on "Try It". Once the background is removed, you can add other effects as well. Drag and drop the "Human Border" into the footage. It creates an outline around the human in your footage.
 
 ![ai-portrait-thumbnail-step9](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step9.png)
@@ -83,9 +95,17 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step11](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 12:** Once you are satisfied with the final results, click on the Camera icon below the preview screen or press "Ctrl+Alt+S" to take the screenshot.
 
 ![ai-portrait-thumbnail-step12](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step12.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Conclusion
 
@@ -103,14 +123,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,8 +136,18 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-files.techidaily.com/new-bio-essentials-the-ultimate-guide-to-crafting-impactful-social-media-profiles/"><u>[New] Bio Essentials The Ultimate Guide to Crafting Impactful Social Media Profiles</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/efending-your-youtube-profile/"><u>[New] Defending Your YouTube Profile</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-leverage-windows-movie-maker-to-upgrade-your-youtube-videos/"><u>[New] In 2024, Leverage Windows Movie Maker to Upgrade Your YouTube Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-boost-your-revenue-yielding-earnings-from-youtube-at-500-followers-for-2024/"><u>[Updated] Boost Your Revenue Yielding Earnings From YouTube at 500 Followers for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-discovering-income-monetization-through-youtube-sponsored-videos/"><u>[Updated] In 2024, Discovering Income Monetization Through YouTube Sponsored Videos?</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-download-youtube-music-to-your-android-phone-top-6-free-apps/"><u>2024 Approved Download YouTube Music to Your Android Phone Top 6 Free Apps</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-instantly-stream-youtube-content-on-facebook-auto-play-guide/"><u>2024 Approved Instantly Stream YouTube Content on Facebook Auto-Play Guide</u></a></li>
+<li><a href="https://some-tips.techidaily.com/complete-guide-securing-your-data-on-iphone-via-icloud-and-mac-tips-and-tricks/"><u>Complete Guide: Securing Your Data on iPhone via iCloud and Mac - Tips & Tricks</u></a></li>
+<li><a href="https://win-answers.techidaily.com/fallout-76-optimization-guide-enhance-your-frames-per-second-fps-for-a-smoother-gaming-experience/"><u>Fallout 76 Optimization Guide - Enhance Your Frames Per Second (FPS) for a Smoother Gaming Experience</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-easiest-path-to-personalizing-your-pubg-characters-speech-for-2024/"><u>The Easiest Path to Personalizing Your PUBG Character’s Speech for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/tips-and-tricks-for-setting-up-your-motorola-moto-g-stylus-2023-phone-pattern-lock-by-drfone-android/"><u>Tips and Tricks for Setting Up your Motorola Moto G Stylus (2023) Phone Pattern Lock</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

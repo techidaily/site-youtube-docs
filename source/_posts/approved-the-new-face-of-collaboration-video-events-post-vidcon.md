@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The New Face of Collaboration  Video Events Post-VidCon\""
-date: 2024-08-16T06:50:19.823Z
-updated: 2024-08-17T06:50:19.823Z
+date: 2024-12-31T19:37:00.583Z
+updated: 2025-01-06T22:41:17.206Z
 tags:
   - ai video
   - ai youtube
@@ -35,6 +35,10 @@ Want to meet your favorite creators? Or, do you want to become a better creator 
 5. [RTX (US/UK/Australia)](#rtx)
 6. [Amplify Live (Australia)](#amplify)
 7. [Summer in the City (UK)](#sitc)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **The Most Important YouTube Events**
 
@@ -80,6 +84,10 @@ You have a two-week window (usually the first half of May) to submit your choice
 
 ![Playlistlive](https://images.wondershare.com/filmora/Playlistlive.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Playlist Live is a YouTube event for creators and their supporters that has a particular focus on music. Where VidCon is advertised using images of sunshine, crowded convention halls, and speakers, Playlist Live is advertised with images of city skylines, concerts, and fireworks.
 
 Playlist Live prides itself on having ‘non-stop interactive activities.’ These include chances to meet your favorite creators on the Saturday and Sunday of the event. Which meetups you get to attend are determined by first-come-first-serve online signup.
@@ -114,6 +122,10 @@ There is also business **Passes** with Merch and Deluxe (Business Deluxe can cos
 
 ![beautycon-festivals](https://images.wondershare.com/filmora/beautycon-festivals.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Beautycon is an event meant to highlight innovators in the fields of Beauty, Makeup, and Lifestyle. They bring together online creators, fans, celebrities, and brands for two-day festivals full of fun, panel discussions, shopping, and free samples.
 
 In 2017, 30,000 people attended Beautycon festivals internationally.
@@ -137,6 +149,10 @@ The final type of pass, the **Two-Day Beauty Insider** ($1999) pass, has everyth
 These events are customized to the wherever festival is visiting, so you’re always sure to see the big and rising YouTube stars from your region. Generally, these events include performances and activities as well as a Meet & Greet.
 
 ![youtube-fanfest](https://images.wondershare.com/filmora/youtube-fanfest.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 There is not a steady annual schedule for FanFests, but it has visited these cities in the past: Manila, Mumbai, Seoul, Toronto, Sao Paulo, Jakarta, Tokyo, Jeddah, Bangkok, Ho Chi Minh City, Hong Kong, and Washington, DC.
 
@@ -188,6 +204,10 @@ For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
 
 ![summer-in-the-city](https://images.wondershare.com/filmora/summer-in-the-city.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 This is the largest online video festival in the UK. It features discussion panels, workshops, and live performances targeted at creators, fans of online video, and industry professionals. YouTubers might hang out on the show floor meeting fans, and there are also Meet and Greet sessions for top creators. All ticket holders can submit online ballots for a chance at Meet and Greet access.
 
 Summer in the City even has its own awards show, SitC, to honor the best in online content. Previous winners include Dodie, Tomska, Jack & Dean, and Nathan Zed.
@@ -218,14 +238,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -234,9 +251,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-unraveling-vloggers-terrors-and-techniques-to-triumph/"><u>[New] 2024 Approved Unraveling Vloggers' Terrors and Techniques to Triumph</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/-compreayers-guide-to-polishing-youtube-content-via-imovie-editing-techniques/"><u>[New] A Compreayer's Guide to Polishing YouTube Content via iMovie Editing Techniques</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-best-instagram-highlights-covers-apps/"><u>[New] Best Instagram Highlights Covers Apps</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/fficient-content-curation-steps-towards-a-well-organized-watch-later-playlist/"><u>[New] Efficient Content Curation Steps Towards a Well-Organized 'Watch Later' Playlist</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-the-beginners-blueprint-for-creating-a-sports-chain-on-mac/"><u>[New] In 2024, The Beginner's Blueprint for Creating a Sports Chain on Mac</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-cinematographers-playbook-top-5-creative-strategies/"><u>[New] The Cinematographer's Playbook Top 5 Creative Strategies</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-full-motion-assessment-2023/"><u>[Updated] 2024 Approved Full Motion Assessment 2023</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unveiling-15-favorite-youtube-video-intros/"><u>[Updated] Unveiling 15 Favorite YouTube Video Intros</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-the-detectives-playbook-for-scouring-secret-youtube-content/"><u>2024 Approved The Detective's Playbook for Scouring Secret YouTube Content</u></a></li>
+<li><a href="https://apple-account.techidaily.com/guide-on-how-to-remove-apple-id-from-iphone-se-2022-by-drfone-ios/"><u>Guide on How To Remove Apple ID From iPhone SE (2022)</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/the-art-of-recording-your-steam-gaming-sessions/"><u>The Art of Recording Your Steam Gaming Sessions</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
-<!-- affiliate ads end -->

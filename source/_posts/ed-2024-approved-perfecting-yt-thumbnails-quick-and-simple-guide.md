@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Perfecting YT Thumbnails  Quick & Simple Guide\""
-date: 2024-08-23T09:53:03.496Z
-updated: 2024-08-24T09:53:03.496Z
+date: 2024-12-31T16:32:43.033Z
+updated: 2025-01-06T16:38:02.118Z
 tags:
   - ai video
   - ai youtube
@@ -51,6 +51,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step3](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step4.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 04:** Choose a background of your choice for your thumbnail. You can choose a background from the sample colors provided by Filmora.
 
 ![ai-portrait-thumbnail-step4](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step4.png)
@@ -67,13 +71,25 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step7](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 08:** Double click on any of these effects to see how they will look like on your footage.
 
 ![ai-portrait-thumbnail-step8](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step8.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 09:** To make a thumbnail for your Youtube, we have to remove the background of your footage first. To do that we have to apply Human Segmentation to the footage first. It will separate the human from the footage. Drag and drop the Human Segmentation effect into the footage in the timeline. Once you drop it into the footage, it will ask you to purchase this feature to export the footage. Since we are not trying to export the footage, we are only creating a thumbnail, click on "Try It". Once the background is removed, you can add other effects as well. Drag and drop the "Human Border" into the footage. It creates an outline around the human in your footage.
 
 ![ai-portrait-thumbnail-step9](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step9.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 10:** The effect will be applied to the footage. Now the background has been removed from the footage and ready to be used on your custom background. You can adjust the human accordingly where it looks perfect.
 
@@ -86,6 +102,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 **Step 12:** Once you are satisfied with the final results, click on the Camera icon below the preview screen or press "Ctrl+Alt+S" to take the screenshot.
 
 ![ai-portrait-thumbnail-step12](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step12.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Conclusion
 
@@ -103,14 +123,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,8 +136,24 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-easy-guide-online-tools-to-save-your-youtube-videos/"><u>[New] 2024 Approved Easy Guide Online Tools to Save Your YouTube Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-focused-gaming-recordings-software/"><u>[New] 2024 Approved Focused Gaming Recordings Software</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-guidelines-for-responsible-content-disclosure-in-online-spaces-like-fb/"><u>[New] In 2024, Guidelines for Responsible Content Disclosure in Online Spaces Like FB</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-scaling-success-the-tactics-for-increasing-youtube-audiences/"><u>[New] In 2024, Scaling Success The Tactics for Increasing YouTube Audiences</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-detailed-guide-crafting-powerful-video-thumbnails-for-content-marketing/"><u>2024 Approved Detailed Guide Crafting Powerful Video Thumbnails for Content Marketing</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-proven-techniques-for-amplifying-your-impact-on-youtube-shorts/"><u>2024 Approved Proven Techniques for Amplifying Your Impact on YouTube Shorts</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/apple-revitalizes-ai-landscape-with-promising-advances-opportunities-and-challenges-ahead/"><u>Apple Revitalizes AI Landscape with Promising Advances: Opportunities and Challenges Ahead</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/exploring-the-toughest-and-most-resilient-laptops-insights-from-zdnet/"><u>Exploring the Toughest and Most Resilient Laptops - Insights From ZDNet</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nizing-hues-in-online-beauty-videos/"><u>Harmonizing Hues in Online Beauty Videos</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-master-your-vision-with-these-6-premier-nft-tools/"><u>In 2024, Master Your Vision with These 6 Premier NFT Tools</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/porating-cards-and-annotations-in-youtube-content-for-2024/"><u>Incorporating Cards and Annotations in YouTube Content for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/leading-list-the-best-10-apps-for-live-racing-and-rugby-streaming-for-2024/"><u>Leading List The Best 10 Apps for Live Racing & Rugby Streaming for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/mastering-the-use-of-m1-max-clip/"><u>Mastering the Use of M1 Max Clip</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/raft-community-image-bank-access-for-2024/"><u>Minecraft Community Image Bank Access for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/secrets-of-invisibility-activating-incognito-features-in-your-favorite-browser/"><u>Secrets of Invisibility: Activating Incognito Features in Your Favorite Browser</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-ultimate-guide-to-gpt-3-in-openai-playground/"><u>The Ultimate Guide to GPT-3 in OpenAI Playground</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ltimate-guide-to-refining-your-youtube-videos-after-publishing/"><u>The Ultimate Guide to Refining Your YouTube Videos After Publishing</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

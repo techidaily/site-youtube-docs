@@ -1,7 +1,7 @@
 ---
 title: "[New] Achieving Depth in Indoor Vlogging Lighting"
-date: 2024-12-21T13:00:42.071Z
-updated: 2024-12-27T23:54:08.807Z
+date: 2025-01-02T00:00:30.875Z
+updated: 2025-01-07T00:35:28.015Z
 tags:
   - ai video
   - ai youtube
@@ -33,10 +33,6 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Video Lighting Basics: Three Point Lighting
 
 ![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
@@ -54,13 +50,13 @@ The **fill light** is less bright than the primary source of light and it is pla
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Watch Video! Top Lighting Tips for Vlogging
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
@@ -90,7 +86,7 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
@@ -100,7 +96,7 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
@@ -108,6 +104,10 @@ If you are using all of the lighting options available to you and your video sti
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -130,18 +130,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-decoding-the-earning-dynamics-for-podcasters/"><u>[New] Decoding the Earning Dynamics for Podcasters</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-loop-and-relish-youtube-videos-double-the-delight-on-tv/"><u>[New] Loop & Relish YouTube Videos, Double the Delight on Tv</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-unveiling-hidden-gems-essential-tricks-for-win11/"><u>[New] Unveiling Hidden Gems Essential Tricks for Win11</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-visualizing-tweet-reactions-a-complete-twitch-tale-for-23/"><u>[New] Visualizing Tweet Reactions - A Complete Twitch-Tale for '23</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-skyrocket-your-youtube-speed-render-and-upload-hacks/"><u>[Updated] 2024 Approved Skyrocket Your YouTube Speed - Render and Upload Hacks</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-compreeve-youtube-extraction-11-tools-reviewed-for-2024/"><u>[Updated] Compreeve YouTube Extraction 11 Tools Reviewed for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-monetization-assessment-creators-income-gauge/"><u>[Updated] Monetization Assessment Creators’ Income Gauge</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-find-friends-in-fandoms-forums/"><u>2024 Approved Find Friends in Fandom's Forums</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ing-youtube-downloader-apps-on-your-android-device/"><u>Choosing YouTube Downloader Apps on Your Android Device</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/cod-vanguard-voice-chat-malfunction-heres-how-to-get-it-working-again/"><u>Cod: Vanguard Voice Chat Malfunction? Here's How to Get It Working Again</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/confrontando-flac-e-mp3-quale-formato-audio-superiore-per-la-qualita-del-suono/"><u>Confrontando FLAC E MP3 - Quale Formato Audio Superiore per La Qualità Del Suono?</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/delving-into-color-modification-through-lut-techniques/"><u>Delving Into Color Modification Through LUT Techniques</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/innovations-in-personal-safety-with-miniscule-gps-trackers-a-look-at-the-latest-and-smallest-options-for-belongings-security/"><u>Innovations in Personal Safety with Miniscule GPS Trackers - A Look at the Latest and Smallest Options for Belongings Security</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-beginners-blueprint-for-viral-video-seo/"><u>[New] 2024 Approved Beginner's Blueprint for Viral Video SEO</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-edit-with-ease-prime-10-converters-unveiled/"><u>[New] 2024 Approved Edit with Ease Prime 10 Converters Unveiled</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-elevate-your-aspects-of-sound-and-sight-in-asmr-recording/"><u>[New] 2024 Approved Elevate Your Aspects of Sound and Sight in ASMR Recording</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-maximize-youtube-exposure-in-156-characters-or-less/"><u>[New] 2024 Approved Maximize YouTube Exposure in 156 Characters or Less</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-elevate-your-storytelling-on-snapchat-with-top-tips/"><u>[Updated] 2024 Approved Elevate Your Storytelling on Snapchat with Top Tips</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-permanent-ousting-technique-for-the-quick-video-feature/"><u>[Updated] In 2024, Permanent Ousting Technique for the Quick Video Feature</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-best-starter-accessories-to-elevate-your-gopro-capture/"><u>[Updated] The Best Starter Accessories to Elevate Your GoPro Capture</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-total-mobility-assessment-2023/"><u>[Updated] Total Mobility Assessment 2023</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-revolutionize-your-memories-old-photos-new-video-life/"><u>2024 Approved Revolutionize Your Memories Old Photos, New Video Life</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/efficient-techniques-to-release-held-up-window-update-on-obsolete-os-like-win7-a-complete-solution-walkthrough-troubleshooting-guide-solutions-and-step-by-s57/"><u>Efficient Techniques to Release Held-Up Window Update on Obsolete OS Like Win7 – A Complete Solution Walkthrough (Troubleshooting Guide, Solutions and Step by Step Guide)</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-iphone-12-passcode-without-itunes-without-knowing-passcode-drfone-by-drfone-ios/"><u>How to Unlock iPhone 12 Passcode without iTunes without Knowing Passcode? | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-breathing-life-into-images-mastering-face-motion-blur-in-picsart/"><u>In 2024, Breathing Life Into Images Mastering Face Motion Blur in Picsart</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-elevate-your-video-production-adobe-premiere-pro-on-mac/"><u>In 2024, Elevate Your Video Production Adobe Premiere Pro on Mac</u></a></li>
 </ul></div>
 

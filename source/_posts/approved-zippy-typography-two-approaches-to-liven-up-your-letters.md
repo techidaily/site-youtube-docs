@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Zippy Typography  Two Approaches to Liven Up Your Letters\""
-date: 2024-12-24T16:06:50.300Z
-updated: 2024-12-28T02:00:57.367Z
+date: 2025-01-02T22:37:38.761Z
+updated: 2025-01-06T17:11:19.772Z
 tags:
   - ai video
   - ai youtube
@@ -32,7 +32,7 @@ Earlier, you learned how to have a **[bounce text effect in Adobe After Effects]
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Method 1: How to Create Bouncing Text in Filmora Video Editor?
@@ -55,6 +55,10 @@ In the timeline, double-click the title you just added, use the upper-left secti
 
 ![Create Bouncing Text video Filmora9](https://images.wondershare.com/filmora/article-images/add-up-down-animation-to-bounce.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3: Add Shake Filters**
 
 Go to **Effects** from the standard toolbar, expand the **Filters** category from the left pane, and click **Shake**. From the Library window, click and drag your preferred shake filter to the timeline. Here, I will choose Mild.
@@ -65,15 +69,15 @@ You can customize the default effect by double-clicking the shake filter in the 
 
 ![Mild Shake filters adjust](https://images.wondershare.com/filmora/article-images/mild-shake-filter-adjust.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4: Export the Final Output**
 
 Click **EXPORT** from the top of the interface, go to the **Local** tab in the **Export** box, choose your preferred output format from the list in the left, make required customizations from the right pane, and click **EXPORT** from the bottom-right corner to export the video.
 
 ![Filmora9 Export Options](https://images.wondershare.com/filmora/article-images/export-filmora9-video.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Now, you can add the bouncing text video and the background video to the timeline, and then place the bouncing text video above the background video track.
 
@@ -96,7 +100,7 @@ Website: <https://engfto.com/index/create%5Fanimated%5Fbouncing%5Ftext/0-26>
 ![Create Animated Bouncing Text with ENGFTO](https://images.wondershare.com/filmora/article-images/engfto-create-animated-bouncing-text.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You can follow the instructions given below to use Engfto to generate bouncing text for your footages:
@@ -126,7 +130,7 @@ Launch your favorite web browser and go to <https://loading.io/animation/text/>.
 ![Create Animated Bouncing Text with Loading.io](https://images.wondershare.com/filmora/article-images/create-bouncing-text-with-loadingio.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Use the options available on the webpage to type your text, and change its font, color, background, transparency level etc. Select **Bounce** (or any of its variants) from the **Animation** drop-down list, and adjust the speed using the **Speed** slider.
@@ -142,10 +146,6 @@ Click your preferred option from next to the **Download As** section to download
 Generating **bounce text** effect is much simpler when you use Wondershare Filmora or any of the online solutions as explained in Method 2\. While the former gives you more flexibility when it comes to customizations, the latter doesn’t require any app to be installed on your PC. In addition, many times the web apps offer their services for free, and therefore they are preferred by the novice users who are not much into post-production processes.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -168,18 +168,20 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-no-cash-only-computers-recording-youtube-video-playback-for-screenshots/"><u>[New] 2024 Approved No Cash, Only Computers Recording YouTube Video Playback for Screenshots</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-unlock-slow-momentum-a-filmmakers-tale-on-instagram/"><u>[New] In 2024, Unlock Slow Momentum A Filmmaker’s Tale on Instagram</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-nba-game-views-the-ultimate-guide-15-methods-for-2024/"><u>[New] NBA Game Views The Ultimate Guide (15 Methods) for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-triumph-through-tales-3-crucial-strategies-for-channels/"><u>[Updated] 2024 Approved Triumph Through Tales 3 Crucial Strategies for Channels</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-expert-strategies-to-maximize-income-with-video-ads-on-youtube-for-2024/"><u>[Updated] Expert Strategies to Maximize Income with Video Ads on Youtube for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-outstanding-movies-beyond-the-leading-titles/"><u>[Updated] In 2024, Outstanding Movies Beyond the Leading Titles</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-your-stepwise-approach-to-uploading-youtube-shorts-on-laptop-phone/"><u>[Updated] Your Stepwise Approach to Uploading YouTube Shorts on Laptop, Phone</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/gpt-innovations-potential-se-engine-counterparts/"><u>GPT Innovations: Potential SE Engine Counterparts</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-lenovo-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Lenovo</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-the-essential-guide-to-posting-vimeo-on-instagram/"><u>In 2024, The Essential Guide to Posting Vimeo on Instagram</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/new-2024-approved-make-a-lasting-impression-with-the-best-video-invitation-apps/"><u>New 2024 Approved Make a Lasting Impression with the Best Video Invitation Apps</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-oneplus-11r-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On OnePlus 11R? | Dr.fone</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/zdnet-review-honor-magicbook-14-the-value-packed-14-wonder-laptop-featuring-a-powerful-graphics-upgrade/"><u>ZDNet Review: Honor MagicBook 14 – The Value-Packed 14 Wonder Laptop Featuring a Powerful Graphics Upgrade!</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-crafting-unique-valorant-thumbnails-with-style-and-flair/"><u>[New] 2024 Approved Crafting Unique Valorant Thumbnails with Style and Flair</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-dismantle-that-dominating-green-distortion-in-mac-based-videos/"><u>[New] 2024 Approved Dismantle That Dominating Green Distortion in Mac-Based Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-elevating-youtube-live-with-high-quality-webcam-cameras/"><u>[New] 2024 Approved Elevating YouTube Live with High-Quality Webcam Cameras</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-essential-insights-on-youtube-tvs-unique-features/"><u>[New] 2024 Approved Essential Insights on YouTube TV's Unique Features</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-how-to-block-youtube-ads-on-chromefirefoxandroidiphone/"><u>[New] 2024 Approved How to Block YouTube Ads on Chrome/Firefox/Android/iPhone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-revolutionize-marketing-top-tools-for-perfectly-timed-video-tags/"><u>[New] 2024 Approved Revolutionize Marketing Top Tools for Perfectly Timed Video Tags</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-unlocking-audio-potential-in-audacity-mac-edition/"><u>[New] 2024 Approved Unlocking Audio Potential in Audacity, Mac Edition</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-drone-innovation-existing-applications-and-upcoming-potential-for-2024/"><u>[New] Drone Innovation Existing Applications & Upcoming Potential for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-top-film-previews-unveiled/"><u>[New] In 2024, Top Film Previews Unveiled</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-leading-the-video-conversion-game-with-ipv-strategies-for-2024/"><u>[New] Leading the Video Conversion Game with IPV Strategies for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-spectacular-10-royale-skirmishes-for-2024/"><u>[New] Spectacular 10 Royale Skirmishes for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-terminology-trek-through-the-virtual-landscape/"><u>[New] Terminology Trek Through the Virtual Landscape</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/4k-resolution-reimagined-picking-the-right-vision-technology-for-2024/"><u>4K Resolution Reimagined Picking the Right Vision Technology for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/mastering-sierras-cloud-storage-for-effortless-documentdrive-access-for-2024/"><u>Mastering Sierra's Cloud Storage for Effortless Document/Drive Access for 2024</u></a></li>
+<li><a href="https://win-great.techidaily.com/yl-software-and-hardware-checkup-verifying-your-devices-power-cord-connections-for-optimal-performance/"><u>YL Software & Hardware Checkup: Verifying Your Device's Power Cord Connections for Optimal Performance</u></a></li>
 </ul></div>
 

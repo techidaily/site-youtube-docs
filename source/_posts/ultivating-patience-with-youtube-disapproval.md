@@ -1,7 +1,7 @@
 ---
 title: "[New] Cultivating Patience with YouTube Disapproval"
-date: 2024-08-23T09:52:41.483Z
-updated: 2024-08-24T09:52:41.483Z
+date: 2025-01-06T02:04:26.176Z
+updated: 2025-01-07T02:38:00.781Z
 tags:
   - ai video
   - ai youtube
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/d10871bf9176c5cb0128f25d3d2d16f8b628e764c
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -54,20 +58,21 @@ thumbnail: https://thmb.techidaily.com/d10871bf9176c5cb0128f25d3d2d16f8b628e764c
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -76,8 +81,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-cutting-edge-video-communities-eclipsing-youtube/"><u>[New] 2024 Approved Cutting-Edge Video Communities Eclipsing Youtube</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-smartcapture-hd-v2/"><u>[New] 2024 Approved SmartCapture HD V2</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-elevate-your-youtube-presence-with-custom-animated-subscription-buttons-in-filmora/"><u>[New] In 2024, Elevate Your YouTube Presence with Custom Animated Subscription Buttons in Filmora</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/esizing-youtube-images-step-by-step-guide/"><u>[New] Resizing YouTube Images Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/he-digital-duel-how-jake-paul-triumphed-on-youtube-for-2024/"><u>[New] The Digital Duel How Jake Paul Triumphed on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-steps-to-create-an-impactful-youtube-trailer/"><u>[Updated] 2024 Approved Steps to Create an Impactful YouTube Trailer</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-10-must-try-microphones-for-exceptional-asmr-sounds/"><u>[Updated] In 2024, 10 Must-Try Microphones for Exceptional ASMR Sounds</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-expertise-in-film-perfecting-the-art-of-chroma-key/"><u>[Updated] In 2024, Expertise in Film Perfecting the Art of Chroma Key</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-free-music-unlocked-the-ultimate-library-for-videographers/"><u>2024 Approved Free Music Unlocked The Ultimate Library for Videographers</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/2024-approved-sculpting-your-audio-experience-in-videos-with-ease-and-precision/"><u>2024 Approved Sculpting Your Audio Experience in Videos with Ease and Precision</u></a></li>
+<li><a href="https://discover-awesome.techidaily.com/comment-activer-automatiquement-la-sauvegarde-de-fichiers-via-une-commande-wbadmin-en-tlf/"><u>Comment Activer Automatiquement La Sauvegarde De Fichiers via Une Commande WBAdmin en TLF</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/enjoy-digital-books-with-apples-ibooks-application-free-downloads-for-mac-users/"><u>Enjoy Digital Books with Apple's iBooks Application - Free Downloads for Mac Users</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-honor-x9a-drfone-by-drfone-virtual-android/"><u>In 2024, How to Watch Hulu Outside US On Honor X9a | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-mastering-content-restrictions-on-youtube-videos/"><u>In 2024, Mastering Content Restrictions on YouTube Videos</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/insightful-analysis-madden-19s-impressive-modes-overshadowed-by-familiarity/"><u>Insightful Analysis: Madden 19'S Impressive Modes Overshadowed by Familiarity</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-how-to-add-bitmoji-to-keyboard-complete-guide/"><u>New How to Add Bitmoji to Keyboard? Complete Guide</u></a></li>
+<li><a href="https://discover-forum.techidaily.com/step-by-step-guide-eliminating-newtab-adware-with-malwarefox/"><u>Step-by-Step Guide: Eliminating NewTab Adware with MalwareFox</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
