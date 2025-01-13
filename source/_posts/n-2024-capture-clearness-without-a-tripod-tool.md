@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Capture Clearness Without a Tripod Tool"
-date: 2024-08-16T06:43:31.697Z
-updated: 2024-08-17T06:43:31.697Z
+date: 2025-01-10T17:58:54.977Z
+updated: 2025-01-13T00:23:06.678Z
 tags:
   - ai video
   - ai youtube
@@ -34,11 +34,16 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Here are 3 of our favorite DIY tripods.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **DIY smartphone tripod using binder clips or hair clips**
 
 You’re a solo operation and your best camera is on your phone. That’s pretty common.
@@ -52,24 +57,19 @@ Hold your phone in landscape mode (horizontally, so it’s long rather than tall
 Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **DIY adjustable tripod using books and a towel**
 
 You’ve probably heard a million times that you can stabilize your camera by sitting it down on any stable surface – on your desk, on a stack of books, up in a tree, etc. This is very true!
@@ -87,6 +87,10 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -94,8 +98,9 @@ Gorillapod’s are cool because you can use them like normal tripods, carry them
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
@@ -119,9 +124,6 @@ _**Step 2:**_ After all the legs are attached, wrap some more tape around all 3 
 _Note: make sure the bolt is a fit for your camera before you get too far into this process._
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -129,14 +131,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -145,4 +144,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-musical-journey-fbs-lifeline-to-sound/"><u>[New] 2024 Approved Musical Journey - FB's Lifeline to Sound</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-convenient-technique-winning-the-art-of-fish-dialogue-alteration/"><u>[New] Convenient Technique Winning the Art of Fish Dialogue Alteration</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-quick-glance-fastest-photo-viewer-in-11-os-for-2024/"><u>[New] Quick Glance Fastest Photo Viewer in 11 OS for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-unlocking-full-potential-in-depth-review-of-lgs-monitor-tech/"><u>[New] Unlocking Full Potential In-Depth Review of LG's Monitor Tech</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-from-childhood-to-cash-flow-young-kajis-youtube-economic-surge/"><u>[Updated] 2024 Approved From Childhood to Cash Flow Young Kaji’s YouTube Economic Surge</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-boosting-viewership-responsibly-strategies-that-work-for-2024/"><u>[Updated] Boosting Viewership Responsibly Strategies That Work for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-elevate-your-freefire-gameplay-on-youtube-channels-for-2024/"><u>[Updated] Elevate Your FreeFire Gameplay on YouTube Channels for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-short-form-success-strategic-hashtags-for-social-media-stardom-for-2024/"><u>[Updated] Short-Form Success Strategic Hashtags for Social Media Stardom for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-10-best-desktop-and-online-gif-tools-ranked/"><u>2024 Approved 10 Best Desktop & Online GIF Tools Ranked</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-effortless-offline-access-best-youtube-playlist-downloaders/"><u>2024 Approved Effortless Offline Access Best YouTube Playlist Downloaders</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-from-concept-to-creation-crafting-youtube-video-splits/"><u>2024 Approved From Concept to Creation Crafting YouTube Video Splits</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-error-code-963-on-google-play-of-realme-10t-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Error Code 963 on Google Play Of Realme 10T 5G | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/change-and-embrace-the-beauty-tweaking-windows-11-taskbar-colors/"><u>Change and Embrace the Beauty: Tweaking Windows 11 Taskbar Colors</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-stream-anything-from-samsung-galaxy-s24-to-apple-tv-drfone-by-drfone-android/"><u>How To Stream Anything From Samsung Galaxy S24 to Apple TV | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-a-lost-nokia-150-2023-for-free-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track a Lost Nokia 150 (2023) for Free? | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-upcoming-games-with-industry-experts/"><u>In 2024, Upcoming Games with Industry Experts</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ring-yoga-top-10-youtube-resources-for-enlightened-living/"><u>Mastering Yoga Top 10 YouTube Resources for Enlightened Living</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/plants-vs-zombies-battle-for-neighborville-a-family-friendly-gunfight-gets-a-hilarious-twist/"><u>Plants Vs. Zombies: Battle for Neighborville - A Family Friendly Gunfight Gets a Hilarious Twist!</u></a></li>
+<li><a href="https://win-forum.techidaily.com/resolving-app-cannot-operate-on-pc-a-step-by-step-guide/"><u>Resolving 'App Cannot Operate on PC': A Step-by-Step Guide</u></a></li>
+</ul></div>
 

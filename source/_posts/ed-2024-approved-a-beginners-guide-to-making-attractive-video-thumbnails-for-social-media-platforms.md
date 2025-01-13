@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  A Beginner's Guide to Making Attractive Video Thumbnails for Social Media Platforms\""
-date: 2024-12-31T20:04:07.224Z
-updated: 2025-01-06T23:36:00.137Z
+date: 2025-01-11T20:20:10.695Z
+updated: 2025-01-12T21:47:51.626Z
 tags:
   - ai video
   - ai youtube
@@ -44,7 +44,7 @@ Here are 5 easy tips for creating thumbnails that get views.
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Edit Your Videos Before Creating Video Thumbnails
@@ -52,7 +52,7 @@ Here are 5 easy tips for creating thumbnails that get views.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. Have a Consistent Layout
@@ -64,7 +64,7 @@ An example of a standard layout could be you in the middle of the screen wearing
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **2\. Use Your Face**
@@ -80,7 +80,7 @@ Anybody can take a screenshot of themselves in their video and use it as a thumb
 Make sure the images you choose are relevant to the topic of your video.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Make Your Text Huge
@@ -88,6 +88,10 @@ Make sure the images you choose are relevant to the topic of your video.
 If you use text in your thumbnail (you don’t have to) then it should be to add context. For example, if the main image is just you smiling then you might need some text to let viewers know the video is a makeup tutorial.
 
 Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5\. Keep it Clutter-Free
 
@@ -100,10 +104,6 @@ A good rule for text is to use only 1-3 words. That way they won’t clutter you
 Use these tips to make video thumbnails for YouTube, and tell us what kind of results you get!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -126,22 +126,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-delving-into-trending-video-exchange/"><u>[New] 2024 Approved Delving Into Trending Video Exchange</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-demystifying-the-process-of-submitting-videos-on-youtube/"><u>[New] 2024 Approved Demystifying the Process of Submitting Videos on YouTube</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-first-steps-on-the-path-equipment-for-beginners/"><u>[New] 2024 Approved First Steps on the Path Equipment for Beginners</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-historical-insights-from-youtubes-top-10-vlogs/"><u>[New] 2024 Approved Historical Insights From YouTube's Top 10 Vlogs</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-maximizing-monetary-gains-with-youtubes-short-form-videos/"><u>[New] 2024 Approved Maximizing Monetary Gains with YouTube's Short-Form Videos</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-simplify-your-content-creation-mobile-friendly-youtube-channel-setup-guide/"><u>[New] 2024 Approved Simplify Your Content Creation Mobile-Friendly YouTube Channel Setup Guide</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-elevate-your-visual-storytelling-with-lut-techniques-in-premiere-for-2024/"><u>[Updated] Elevate Your Visual Storytelling with LUT Techniques in Premiere for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-shortcut-to-go-to-tags-maximizing-your-youtube-impact/"><u>[Updated] Shortcut to Go-To Tags Maximizing Your YouTube Impact</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-retrieve-lost-contacts-from-motorola-by-fonelab-android-recover-contacts/"><u>Best Android Data Recovery - Retrieve Lost Contacts from Motorola .</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/-spontaneous-youtube-video-triggers/"><u>Block Spontaneous YouTube Video Triggers</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/-and-steady-essential-youtube-camera-tech/"><u>Clear and Steady Essential YouTube Camera Tech</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/everything-you-need-to-know-about-lock-screen-settings-on-your-realme-narzo-60x-5g-by-drfone-android/"><u>Everything You Need to Know about Lock Screen Settings on your Realme Narzo 60x 5G</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/for-beginners-the-top-8-versatile-cameras-under-400/"><u>For Beginners The Top 8 Versatile Cameras Under $400</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/improve-your-call-experience-tips-for-louder-iphone-audio-during-conversations/"><u>Improve Your Call Experience: Tips for Louder iPhone Audio During Conversations</u></a></li>
-<li><a href="https://win11.techidaily.com/master-your-media-exclusive-list-the-best-video-editors-for-windows/"><u>Master Your Media - Exclusive List: The Best Video Editors for Windows</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/microsoft-battery-driver-error-resolved-for-enhanced-acpi-standards-support/"><u>Microsoft Battery Driver Error Resolved for Enhanced ACPI Standards Support</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/navigate-through-idea-stagnation-with-these-5-ai-assistants/"><u>Navigate Through Idea Stagnation With These 5 AI Assistants</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/oost-engagement-discover-the-top-5-youtube-promotion-tactics/"><u>[New] Boost Engagement Discover the Top 5 YouTube Promotion Tactics</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/aximizing-youtube-profits-transitioning-from-ads-to-accounts/"><u>[New] Maximizing YouTube Profits Transitioning From Ads to Accounts</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ransform-youtube-performance-leading-tracking-apps-revealed/"><u>[New] Transform YouTube Performance - Leading Tracking Apps Revealed</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-metaverse-joke-ology-building-your-own-hilarious-memes/"><u>[Updated] 2024 Approved Metaverse Joke-Ology Building Your Own Hilarious Memes</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-engaging-audiences-how-tos-for-effective-youtube-logo-creation-for-2024/"><u>[Updated] Engaging Audiences How-To's for Effective YouTube Logo Creation for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-what-is-parody-and-how-to-make-a-parody-video/"><u>[Updated] In 2024, What Is Parody and How to Make a Parody Video</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-how-to-choose-the-best-free-introduction-maker/"><u>2024 Approved How to Choose the Best Free Introduction Maker</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/7-amazing-imessage-challenges-to-try/"><u>7 Amazing iMessage Challenges to Try</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/amazons-ongoing-steep-discounts-grab-your-8tb-samsung-t5-ssd-at-an-unbeatable-36-off-beyond-prime-day-zdnet-insights/"><u>Amazon's Ongoing Steep Discounts: Grab Your 8TB Samsung T5 SSD at an Unbeatable 36% Off Beyond Prime Day - ZDNet Insights</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/practices-for-boosting-views-on-freefire-gaming-channels-for-2024/"><u>Best Practices for Boosting Views on FreeFire Gaming Channels for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/discover-geoffrey-scotts-visionary-photography-on-the-movavi-platform/"><u>Discover Geoffrey Scott's Visionary Photography on the Movavi Platform</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-itel-a70-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Itel A70 | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-bypassing-google-account-with-vnrom-bypass-for-honor-magic-5-by-drfone-android/"><u>In 2024, Bypassing Google Account With vnROM Bypass For Honor Magic 5</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/positive-persuasion-the-secret-to-attracting-followers/"><u>Positive Persuasion The Secret to Attracting Followers</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/smooth-out-flickers-fixes-wins11/"><u>Smooth Out Flickers, Fixes Wins11</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/k-your-creativity-editing-and-revamping-youtube-clips-in-wmm/"><u>Unlock Your Creativity Editing and Revamping YouTube Clips in WMM</u></a></li>
 </ul></div>
 

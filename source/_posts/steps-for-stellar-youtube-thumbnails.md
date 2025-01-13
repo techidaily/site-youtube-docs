@@ -1,7 +1,7 @@
 ---
 title: "Easy Steps for Stellar YouTube Thumbnails"
-date: 2024-08-16T06:47:46.442Z
-updated: 2024-08-17T06:47:46.442Z
+date: 2025-01-05T16:50:56.558Z
+updated: 2025-01-13T05:12:43.916Z
 tags:
   - ai video
   - ai youtube
@@ -35,6 +35,10 @@ Youtube is one of the widely and most used video-sharing platforms all around th
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to make a thumbnail for Youtube using AI Portrait
 
 With time, Filmora brings new and advanced features for its users to equip them with all the necessary tools required for effective and efficient video editing. One of its latest features is AI Portrait. This feature has several uses and benefits. This feature is designed for Gamers, Vlogger, and other related genres to help them make their videos stand out from the crowd and gain more clicks and views. AI Portrait contains several effects that help you make the human element of the video separate from the background and make it more obvious. We can also use the AI Portrait effects to make beautiful and attractive thumbnails for your Youtube. Follow these steps to create a stunning thumbnail for your Youtube videos.
@@ -42,6 +46,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 **Step 01:** Open Filmora X. If it is not already installed on your computer, download and install its latest version from [here](https://tools.techidaily.com/wondershare/filmora/download/).
 
 ![ai-portrait-thumbnail-step1](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step1.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 02:** Make sure that the aspect ratio of your project is 16:9\. To do that, click on a screen-shaped icon below the preview screen and select "Change Project Aspect Ratio."
 
@@ -58,6 +66,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 **Step 05:** If you want to use your custom background, you can import it into the Filmora by clicking import or dragging and dropping it in the media section.
 
 ![ai-portrait-thumbnail-step5](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step5.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 06:** Import your video the same way into the media folder of Filmora and drag it into the timeline and place it above your background.
 
@@ -83,6 +95,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step11](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 12:** Once you are satisfied with the final results, click on the Camera icon below the preview screen or press "Ctrl+Alt+S" to take the screenshot.
 
 ![ai-portrait-thumbnail-step12](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step12.png)
@@ -97,20 +113,21 @@ This article on making a thumbnail for your Youtube is just an idea for you, and
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,8 +136,22 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-unlock-youtube-collaboration-a-guide-to-partnering-and-producing-together/"><u>[New] In 2024, Unlock YouTube Collaboration A Guide to Partnering and Producing Together</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-unlocking-seo-the-essentials-of-keyword-analysis-on-youtube/"><u>[New] In 2024, Unlocking SEO The Essentials of Keyword Analysis on YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/op-pick-the-most-versatile-gif-software/"><u>[New] Top Pick The Most Versatile GIF Software</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-unlock-your-video-potential-nine-superior-stream-filters/"><u>[New] Unlock Your Video Potential Nine Superior Stream Filters</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-seamlessly-incorporating-yt-clips-in-slideshows-via-ppt/"><u>[Updated] In 2024, Seamlessly Incorporating YT Clips in Slideshows via PPT</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-unlocking-youtube-the-full-guide-to-premium-membership/"><u>[Updated] In 2024, Unlocking YouTube The Full Guide to Premium Membership</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-premium-zero-price-point-live-capture-app-for-2024/"><u>[Updated] Premium Zero-Price Point Live Capture App for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/effective-remedies-to-stop-recurring-shutdowns-and-freezes-in-the-fantasy-rpg-blade-and-magic-volume-7-for-personal-computers/"><u>Effective Remedies to Stop Recurring Shutdowns and Freezes in the Fantasy RPG 'Blade & Magic Volume 7' For Personal Computers</u></a></li>
+<li><a href="https://win-blog.techidaily.com/fixing-utorrent-network-errors-tips-for-reestablishing-peer-links/"><u>Fixing uTorrent Network Errors – Tips for Reestablishing Peer Links</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/vision-to-value-an-all-inclusive-guide-on-analyzing-views-clicks-and-monetization-for-2024/"><u>From Vision to Value An All-Inclusive Guide on Analyzing Views, Clicks, & Monetization for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-essential-iphoneandroid-apps-for-aspiring-creators/"><u>In 2024, Essential iPhone/Android Apps for Aspiring Creators</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-synchronized-screenscapes-youtube-clips-in-tv-loops/"><u>In 2024, Synchronized Screenscapes YouTube Clips in TV Loops</u></a></li>
+<li><a href="https://windows11.techidaily.com/reclaim-your-lost-5ghz-lan-link-in-windows-11-heres-how/"><u>Reclaim Your Lost 5GHz LAN Link in Windows 11 Here's How</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-comprehensive-guide-to-chatgpt-for-macos-users/"><u>The Comprehensive Guide to ChatGPT for macOS Users</u></a></li>
+<li><a href="https://fox-ssl.techidaily.com/ultimate-guide-effortless-methods-to-eliminate-image-watermarks/"><u>Ultimate Guide: Effortless Methods to Eliminate Image Watermarks</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
-<!-- affiliate ads end -->

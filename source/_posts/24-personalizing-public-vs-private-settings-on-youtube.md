@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Personalizing Public vs Private Settings on YouTube"
-date: 2024-08-16T06:46:47.752Z
-updated: 2024-08-17T06:46:47.752Z
+date: 2025-01-10T09:38:55.376Z
+updated: 2025-01-13T08:46:50.913Z
 tags:
   - ai video
   - ai youtube
@@ -61,8 +61,13 @@ thumbnail: https://thmb.techidaily.com/e937c769751b4b8235d825da190a8de514c18ce6c
 ![youtube privacy setting](https://images.wondershare.com/filmora/article-images/youtube-privacy-setting.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: How to Change Privacy Settings
 
  There are two ways to change the privacy settings: firstly, when you upload the video, and secondly through Creator Studio.
@@ -73,42 +78,39 @@ thumbnail: https://thmb.techidaily.com/e937c769751b4b8235d825da190a8de514c18ce6c
 
 ![upload youtube video privacy](https://images.wondershare.com/filmora/article-images/upload-youtube-video-privacy.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Method 2:**
 
  To change the privacy setting later, go to Creator Studio, then Video Manager. On the right-hand side you’ll see one of three icons: a world, a chain, and a lock. The world means **"public"**, the chain means **"unlisted"**, and the lock is for **"private"**.
 
 ![youtube privacy settings](https://images.wondershare.com/filmora/article-images/unlisted-video.JPG)
+
 <!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 3: Sharing Private Videos
 
  If a video is set to "private', you'll have the option to share it with specific people. Below where it says "private" on the info and settings page you'll see a button labeled "share". Click this and type in the email addresses of the people you want to be able to watch the video. You’ll also have the option of notifying the people via email that you’ve shared the video with them.
 
 ![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ## Conclusion
 
  And that's all there is to it! Changing the privacy setting on YouTube videos is a simple, helpful tool to allow you to control the audience of you work. Enjoy!
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -116,14 +118,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -132,4 +131,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-tips.techidaily.com/new-breaking-down-whatsapps-voice-call-features/"><u>[New] Breaking Down WhatsApp's Voice Call Features</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/astronomy-goals-attractive-food-network-branding-ideas/"><u>[New] Gastronomy Goals Attractive Food Network Branding Ideas</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-the-ultimate-viewer-count-challenge-worldwide-youtuber-leaders/"><u>[New] In 2024, The Ultimate Viewer Count Challenge Worldwide YouTuber Leaders</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-securing-your-online-discussions-for-2024/"><u>[New] Securing Your Online Discussions for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-advanced-setup-setting-up-an-elapsed-time-display-in-obs/"><u>[Updated] Advanced Setup Setting up an Elapsed Time Display in OBS</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-live-follower-tracker-software/"><u>[Updated] In 2024, Live Follower Tracker Software</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-top-5-web-based-or-extension-voice-changers-for-chromebook-for-2024/"><u>[Updated] Top 5 Web-Based or Extension Voice Changers for Chromebook for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-steps-to-an-exceptional-youtube-closure/"><u>2024 Approved Steps to an Exceptional YouTube Closure</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-the-best-hashtags-for-youtube-gaming-videos/"><u>2024 Approved The Best Hashtags for YouTube Gaming Videos</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/how-to-legally-watch-and-download-netflix-content-on-laptops/"><u>How To Legally Watch & Download Netflix Content on Laptops</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/outube-really-measures-your-contents-popularity-for-2024/"><u>How YouTube Really Measures Your Content's Popularity for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/revolutionize-your-views-non-xplit-applications/"><u>Revolutionize Your Views Non-Xplit Applications</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/top-rated-apple-watch-skin-shields-expert-review-by-zdnet/"><u>Top-Rated Apple Watch Skin Shields - Expert Review by ZDNet</u></a></li>
+</ul></div>
 

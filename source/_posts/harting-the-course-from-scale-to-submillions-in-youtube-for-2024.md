@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Charting the Course  From Scale to Submillions in Youtube for 2024\""
-date: 2024-08-16T06:44:37.249Z
-updated: 2024-08-17T06:44:37.249Z
+date: 2025-01-09T13:27:13.146Z
+updated: 2025-01-13T03:27:33.881Z
 tags:
   - ai video
   - ai youtube
@@ -30,9 +30,17 @@ You’ve probably heard of stories about individuals who managed to find financi
 
 Jesse Ridgway is the owner of the vlog [McJuggerNuggets](https://www.youtube.com/user/McJuggerNuggets), which has grown to over 3.4 million subscribers. He makes enough money to live off of YouTube alone. Here is a case study of how he made his first $10,000 on YouTube:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Case Study of McJuggerNuggets
 
 ![Case Study McJugger Nuggets](https://images.wondershare.com/filmora/article-images/case-study-mcjugger-nuggets.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Jesse was one of the earliest YouTubers. He started his channel on December 9, 2006\. Jesse never guessed that he would make enough money to live off of the videos he was creating. Here are some of the ways that he monetized his channel:
 
@@ -83,18 +91,21 @@ Regular research into your target market will help you to create the trendiest n
 Timing and luck are definitely two of the biggest factors in becoming a success on YouTube. If you are willing to keep working and don’t get discouraged you will eventually earn profits.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Edit Your Videos with High-Quality Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -103,14 +114,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,4 +127,20 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-an-all-inclusive-examination-of-inshots-video-edits/"><u>[Updated] 2024 Approved An All-Inclusive Examination of InShot's Video Edits</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-perfect-the-art-of-posting-on-snapchat-15-tips/"><u>[Updated] 2024 Approved Perfect the Art of Posting on Snapchat (15 Tips)</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-soundscaping-stories-musical-elements-in-reels/"><u>[Updated] In 2024, Soundscaping Stories Musical Elements in Reels</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-key-strategies-utilizing-hashtags-in-youtube-gaming-content-for-2024/"><u>[Updated] Key Strategies Utilizing Hashtags in YouTube Gaming Content for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-making-a-mark-advanced-strategies-for-youtube-video-production/"><u>[Updated] Making a Mark Advanced Strategies for YouTube Video Production</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-pioneering-platforms-for-no-cost-media-downloads-for-2024/"><u>[Updated] Pioneering Platforms for No-Cost Media Downloads for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/best-3-software-to-transfer-files-tofrom-your-realme-11-pro-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Best 3 Software to Transfer Files to/from Your Realme 11 Pro via a USB Cable | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/effortless-ways-to-access-jackie-chan-films-online/"><u>Effortless Ways to Access Jackie Chan Films Online</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-from-itel-a60s-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock from Itel A60s Phones with/without a PC</u></a></li>
+<li><a href="https://games-able.techidaily.com/ideal-eyewear-for-diminished-blue-haze/"><u>Ideal Eyewear for Diminished Blue Haze</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-nokia-c110-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Nokia C110? | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/izing-impact-strategies-for-overcoming-video-short-snags-for-2024/"><u>Maximizing Impact Strategies for Overcoming Video Short Snags for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/unbeatable-deal-alert-upgrade-to-winx-premium-software-bundle-at-just-25-of-the-price-includes-dvd-ripper-and-advanced-converter-features/"><u>Unbeatable Deal Alert: Upgrade to WinX Premium Software Bundle at Just 25% of the Price – Includes DVD Ripper and Advanced Converter Features!</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] Achieving Depth in Indoor Vlogging Lighting"
-date: 2025-01-02T00:00:30.875Z
-updated: 2025-01-07T00:35:28.015Z
+date: 2025-01-09T09:23:55.946Z
+updated: 2025-01-12T19:35:47.400Z
 tags:
   - ai video
   - ai youtube
@@ -33,9 +33,17 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Video Lighting Basics: Three Point Lighting
 
 ![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
@@ -49,15 +57,7 @@ The **fill light** is less bright than the primary source of light and it is pla
 
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Watch Video! Top Lighting Tips for Vlogging
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
 
@@ -86,7 +86,7 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
@@ -96,7 +96,7 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
@@ -106,7 +106,7 @@ If you are stuck shooting in **low light conditions** it is best to use a lens w
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -130,18 +130,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-beginners-blueprint-for-viral-video-seo/"><u>[New] 2024 Approved Beginner's Blueprint for Viral Video SEO</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-edit-with-ease-prime-10-converters-unveiled/"><u>[New] 2024 Approved Edit with Ease Prime 10 Converters Unveiled</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-elevate-your-aspects-of-sound-and-sight-in-asmr-recording/"><u>[New] 2024 Approved Elevate Your Aspects of Sound and Sight in ASMR Recording</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-maximize-youtube-exposure-in-156-characters-or-less/"><u>[New] 2024 Approved Maximize YouTube Exposure in 156 Characters or Less</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-elevate-your-storytelling-on-snapchat-with-top-tips/"><u>[Updated] 2024 Approved Elevate Your Storytelling on Snapchat with Top Tips</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-permanent-ousting-technique-for-the-quick-video-feature/"><u>[Updated] In 2024, Permanent Ousting Technique for the Quick Video Feature</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-the-best-starter-accessories-to-elevate-your-gopro-capture/"><u>[Updated] The Best Starter Accessories to Elevate Your GoPro Capture</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-total-mobility-assessment-2023/"><u>[Updated] Total Mobility Assessment 2023</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-revolutionize-your-memories-old-photos-new-video-life/"><u>2024 Approved Revolutionize Your Memories Old Photos, New Video Life</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/efficient-techniques-to-release-held-up-window-update-on-obsolete-os-like-win7-a-complete-solution-walkthrough-troubleshooting-guide-solutions-and-step-by-s57/"><u>Efficient Techniques to Release Held-Up Window Update on Obsolete OS Like Win7 – A Complete Solution Walkthrough (Troubleshooting Guide, Solutions and Step by Step Guide)</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-iphone-12-passcode-without-itunes-without-knowing-passcode-drfone-by-drfone-ios/"><u>How to Unlock iPhone 12 Passcode without iTunes without Knowing Passcode? | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-breathing-life-into-images-mastering-face-motion-blur-in-picsart/"><u>In 2024, Breathing Life Into Images Mastering Face Motion Blur in Picsart</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-elevate-your-video-production-adobe-premiere-pro-on-mac/"><u>In 2024, Elevate Your Video Production Adobe Premiere Pro on Mac</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/udio-extraction-made-easy-youtube-music-on-your-mac-for-2024/"><u>[New] Audio Extraction Made Easy YouTube Music on Your Mac for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-galaxy-visionhub-premium-integrated-4k-all-in-one-panels/"><u>[New] Galaxy VisionHub Premium Integrated 4K All-in-One Panels</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-tastemakers-playbook-recipes-for-attractive-channel-names/"><u>[New] In 2024, Tastemakers' Playbook Recipes for Attractive Channel Names</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ro-shortcuts-every-youtuber-needs-the-top-20-list-for-2024/"><u>[New] Pro Shortcuts Every YouTuber Needs - The Top 20 List for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-seo-booster-essentials-for-top-online-videos/"><u>[Updated] 2024 Approved SEO Booster Essentials for Top Online Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-the-ultimate-guide-youtube-mp3-converters-ranked/"><u>[Updated] 2024 Approved The Ultimate Guide YouTube Mp3 Converters Ranked</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-a-year-in-the-market-top-15-finance-videos/"><u>[Updated] In 2024, A Year in the Market Top 15 Finance Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-paving-way-to-success-premier-video-gatherings-post-vidcon/"><u>[Updated] In 2024, Paving Way to Success Premier Video Gatherings (Post-VidCon)</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-10plus-free-apps-to-convert-youtube-videos-on-demand/"><u>2024 Approved 10+ Free Apps to Convert YouTube Videos on Demand</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-crafting-a-hit-list-youtubes-way-for-fans/"><u>2024 Approved Crafting a Hit-List Youtube's Way for Fans</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-lens-and-light-essential-camera-movements-every-novice-needs/"><u>2024 Approved Lens & Light Essential Camera Movements Every Novice Needs</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/craft-a-winning-resume-the-chatgpt-way/"><u>Craft a Winning Resume: The ChatGPT Way</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/expert-breakdown-and-review-keeping-your-ryzen-7-1800x-cool-with-the-lian-li-galahad-ii-aio-system/"><u>Expert Breakdown & Review: Keeping Your Ryzen 7 1800X Cool with the Lian Li Galahad II AIO System</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/1723003868213-fix-horizon-zero-dawn-pc-crashes-with-this-simple-solution/"><u>Fix Horizon Zero Dawn PC Crashes with This Simple Solution</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-fix-oem-unlock-missing-on-infinix-note-30-vip-racing-edition-by-drfone-android/"><u>How To Fix OEM Unlock Missing on Infinix Note 30 VIP Racing Edition?</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-whatsapp-messages-on-vivo-y78plus-without-them-knowing-drfone-by-drfone-virtual-android/"><u>How to Track WhatsApp Messages on Vivo Y78+ Without Them Knowing? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-nokia-c110-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Snapchat Location Spoofer to Protect Your Privacy On Nokia C110? | Dr.fone</u></a></li>
 </ul></div>
 

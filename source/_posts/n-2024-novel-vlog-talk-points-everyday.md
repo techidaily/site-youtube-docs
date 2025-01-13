@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Novel Vlog Talk Points Everyday"
-date: 2024-08-16T06:48:55.560Z
-updated: 2024-08-17T06:48:55.560Z
+date: 2025-01-05T20:32:02.909Z
+updated: 2025-01-13T09:10:31.899Z
 tags:
   - ai video
   - ai youtube
@@ -45,6 +45,10 @@ The other reason it’s good to have a niche is that you’ll be able to use key
 
 Here are 4 things to talk about in your daily vlog:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What are you watching/reading?
 
  If you’re really into a book or tv show, or if you saw a movie recently, then those are all good things to talk about (warn people if you’re going to spoil anything!). You do recaps, reviews, or just share a few thoughts you had. If you’re worried about alienating people who don’t watch/read the same stuff as you then you can keep it more general and just react to a few things from the media you’re consuming while also talking about your day. It’ll give you an anchor to build the rest of your video around, even if it’s not all you talk about.
@@ -52,17 +56,15 @@ Here are 4 things to talk about in your daily vlog:
 By commenting on what you’re watching/reading you have a better chance of capitalizing on a trending topic people are searching for. You could also find yourself an audience by becoming involved in fan communities.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Snapshots of Your Day
 
  Casey Neistat is the master of this. He is always ready with a camera on hand so that, when something interesting happens, he can capture it and build his daily vlog around it.
 
 Carrying a camera around like Casey may or may not suit your lifestyle, but you can still pick out one story from your day to tell. It doesn’t have to be a major event, and you shouldn’t worry that it won’t be interesting to other people. It’s your personality they’re tuning in for, so even if you’re just talking about a funny thing your cat did it will keep your audience interested because a) it’s you talking about it and b) it gives them a bit of insight into your life.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Whatever You Need to Get Out
 
 _Flula is frequently puzzled by English expressions, like 'Party Pooper', and needs to get his confusion off his chest at odd hours of the day._
@@ -73,9 +75,6 @@ It does not matter what it is that is making you have this strong reaction (unle
 
 Alternatively: you could do a vlog about how happy you are to have gotten engaged or a vlog about how happy you are that it was sunny today, and your enthusiasm will carry your audience through either video with you.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What did you learn today?
 
  _Fun fact: The original lyrics Paul McCartney imagined for 'Yesterday' were 'Scrambled eggs, oh my baby how I love your legs'._
@@ -93,26 +92,29 @@ The puya chilensis is a plant that ‘eats’ sheep (sheep get stuck to it, star
 Sea monkeys can survive in space.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## EVERYTHING
 
 You could also just flick the camera on and tell the full story of your day like you’d do in a traditional daily blog. What did you have for breakfast, how was school/work, did you talk to any friends, how was the weather – anything and everything. Generally, these videos can run a bit long and don’t have a lot of snappy editing. They’re faster to make, which is good if you’re doing them every day, but the unpolished nature of them won’t appeal to everyone. It will be exactly what appeals to some people, though.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Customize Your Vlog Stories with Powerful Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **We’ve got a new eBook out!**
 
 It’s got strategies that have worked for other YouTubers, boiled down to simple action steps.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -121,14 +123,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -137,4 +136,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-broadcasting-made-simple-3-secrets-to-great-lol-streams/"><u>[New] Broadcasting Made Simple 3 Secrets to Great LOL Streams</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ptimizing-your-youtube-video-presentation-for-2024/"><u>[New] Optimizing Your YouTube Video Presentation for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/he-essential-guide-to-advanced-youtube-studio-editing-for-2024/"><u>[New] The Essential Guide to Advanced YouTube Studio Editing for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-boosting-your-channels-viewer-loyalty-essential-tactics-unveiled/"><u>[Updated] 2024 Approved Boosting Your Channels' Viewer Loyalty Essential Tactics Unveiled</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-elevating-your-video-content-youtube-to-igtv-transition/"><u>[Updated] 2024 Approved Elevating Your Video Content YouTube to IGTV Transition</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-creating-a-cash-flow-from-content-youtubes-monetization-techniques-for-the-future/"><u>[Updated] Creating a Cash Flow From Content YouTube's Monetization Techniques for the Future</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-easy-efficient-and-essential-top-23-tools-to-downgrade-youtube-audios/"><u>[Updated] Easy, Efficient, and Essential Top 23 Tools to Downgrade YouTube Audios</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-top-budget-friendly-vfx-resources-your-go-to-guide-for-cost-effective-edits/"><u>[Updated] Top Budget-Friendly VFX Resources - Your Go-To Guide for Cost-Effective Edits</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-xiaomi-redmi-k70-phone-without-password-by-drfone-android/"><u>How To Unlock Xiaomi Redmi K70 Phone Without Password?</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-a-detailed-analysis-of-mozillas-popup-functionality/"><u>In 2024, A Detailed Analysis of Mozilla's Popup Functionality</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-from-oneplus-11r-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock from OnePlus 11R Devices</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-quicker-scaling-ensure-perfect-youtubemac-ratios/"><u>In 2024, Quicker Scaling Ensure Perfect Youtube/Mac Ratios</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-streamline-your-audio-savings-from-youtube-playback/"><u>In 2024, Streamline Your Audio Savings From YouTube Playback</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-top-3-storytelling-techniques-to-grow-your-youtube-channel/"><u>In 2024, Top 3 Storytelling Techniques to Grow Your YouTube Channel</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-ultimate-love-ballads-ideal-tunes-for-a-heartfelt-proposal/"><u>In 2024, Ultimate Love Ballads Ideal Tunes for a Heartfelt Proposal</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-through-key-considerations-a-guide-before-investing-in-a-wearable-fitness-device/"><u>Navigating Through Key Considerations: A Guide Before Investing in a Wearable Fitness Device</u></a></li>
+<li><a href="https://driver-error.techidaily.com/quick-guide-resolving-qualcomm-atheros-bluetooth-driver-failures-on-pc-with-windows-10/"><u>Quick Guide: Resolving Qualcomm Atheros Bluetooth Driver Failures on PC with Windows 10</u></a></li>
+<li><a href="https://fox-http.techidaily.com/savor-on-screen-mastering-food-films-with-these-7-essentials-for-2024/"><u>Savor on Screen - Mastering Food Films with These 7 Essentials for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/what-is-generative-ai/"><u>What Is Generative AI?</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Influencers' Utopia Summit"
-date: 2025-01-03T01:24:57.042Z
-updated: 2025-01-06T22:38:47.019Z
+date: 2025-01-12T08:37:21.162Z
+updated: 2025-01-13T07:26:13.242Z
 tags:
   - ai video
   - ai youtube
@@ -65,24 +65,16 @@ _Tess takes you to some of her favorite places in Dumbo._
 Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Post Cards
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 3\. S’well bottle
 
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 4\. Branded slippers
 
@@ -93,18 +85,26 @@ To help them relax after long days at the summit, YouTube provided creators with
 _thinknoodles wearing his YouTube slippers._
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. Pins, pins, pins
 
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 6\. Denim jacket
 
 A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
 
 _![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
 
@@ -115,7 +115,7 @@ Want to join the YouTube Creator Summit in the future? We all know that there is
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -141,16 +141,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/ostering-relationships-not-just-viewers-a-guide-to-subscriptions-for-2024/"><u>[New] Fostering Relationships, Not Just Viewers A Guide to Subscriptions for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-channel-image-makeovers-on-the-house/"><u>[Updated] Channel Image Makeovers on the House</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-profiles-profits-and-partnerships-joining-a-youtube-mcn/"><u>[Updated] In 2024, Profiles, Profits & Partnerships Joining a YouTube MCN</u></a></li>
-<li><a href="https://extra-information.techidaily.com/a-quick-guide-to-firefoxs-innovative-pip-mode/"><u>A Quick Guide to Firefox's Innovative PIP Mode</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/installing-windows-drivers-hp-officejet-pro-8600-download-guide/"><u>Installing Windows Drivers: HP Officejet Pro 8600 Download Guide</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/new-discover-the-best-vsdc-video-editor-alternatives-for-mac-computers/"><u>New Discover the Best VSDC Video Editor Alternatives for Mac Computers</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ize-your-videos-the-quick-thumbnail-guide/"><u>Optimize Your Videos The Quick Thumbnail Guide</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/resolving-uninstall-failure-windows-1011-access-issue/"><u>Resolving Uninstall Failure: Windows 10/11 Access Issue</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/turn-zip-into-srt-a-step-by-step-conversion-process-for-2024/"><u>Turn ZIP Into SRT A Step-by-Step Conversion Process for 2024</u></a></li>
-<li><a href="https://win-exceptional.techidaily.com/ultimate-beginners-guide-mastering-chatgpt-usage-with-step-by-step-tips-and-practical-examples/"><u>Ultimate Beginner's Guide: Mastering ChatGPT Usage with Step-by-Step Tips & Practical Examples</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/be-video-aspect-ratio-guide-optimal-upload-sizes-for-2024/"><u>YouTube Video Aspect Ratio Guide Optimal Upload Sizes for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2023-streamline-facebook-vids-to-smooth-mp3/"><u>[New] 2023 Streamline Facebook Vids to Smooth MP3</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-go-beyond-screens-how-to-watch-360-videos-and-vr-via-android/"><u>[New] 2024 Approved Go Beyond Screens How to Watch 360 Videos & VR via Android</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-best-in-class-writing-workshop/"><u>[New] Best-in-Class Writing Workshop</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/oosting-income-via-youtube-ads-and-analytics-across-platforms/"><u>[New] Boosting Income via YouTube Ads & Analytics Across Platforms</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-perfect-your-yt-profile-expert-tips-for-channel-descriptors/"><u>[New] In 2024, Perfect Your YT Profile Expert Tips for Channel Descriptors</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/op-10-best-flvto-alternatives-youtube-converter-for-2024/"><u>[New] Top 10 Best Flvto Alternatives YouTube Converter for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-launching-into-content-creation-account-setup-on-youtube/"><u>[Updated] 2024 Approved Launching Into Content Creation Account Setup on YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-mastering-video-content-for-youtube-success/"><u>[Updated] 2024 Approved Mastering Video Content for YouTube Success</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-mobilize-your-marketing-easy-youtube-channel-launch-tips-for-entrepreneurs/"><u>[Updated] 2024 Approved Mobilize Your Marketing Easy YouTube Channel Launch Tips for Entrepreneurs</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-pinpointing-the-premier-top-10-pc-vr-headset-models-of-2-written-by-dr-jane-smith-on-january-15-2023/"><u>[Updated] In 2024, Pinpointing the Premier Top 10 PC VR Headset Models of 2 Written by Dr. Jane Smith on January 15, 2023</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-screencaptureelite-the-5-star-apeaksoft-evaluation-for-2024/"><u>[Updated] ScreenCaptureElite – The 5-Star Apeaksoft Evaluation for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-master-the-art-of-youtube-thumbnails-in-minutes/"><u>In 2024, Master the Art of YouTube Thumbnails in Minutes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/polish-study-made-fast-and-easy/"><u>Polish Study Made Fast and Easy</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/techniques-simples-pour-reduire-la-taille-dune-video-volumineuse-sur-whatsapp-sans-sacrifier-sa-qualite-avec-le-logiciel-gratuit-winripper/"><u>Techniques Simples Pour Réduire La Taille D'une Vidéo Volumineuse Sur WhatsApp Sans Sacrifier Sa Qualité Avec Le Logiciel Gratuit WinRipper</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nfographic-spectacle-of-youtubes-2017-data/"><u>The Infographic Spectacle of YouTube's 2017 Data</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210692922-9780008589325-your-personal-horoscope-2024/"><u>Your Personal Horoscope 2024 | Free Book</u></a></li>
 </ul></div>
 

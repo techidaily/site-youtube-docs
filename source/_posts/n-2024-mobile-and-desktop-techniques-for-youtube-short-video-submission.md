@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Mobile & Desktop Techniques for YouTube Short Video Submission"
-date: 2024-12-30T20:15:35.397Z
-updated: 2025-01-06T19:46:31.139Z
+date: 2025-01-09T01:21:50.197Z
+updated: 2025-01-12T20:01:23.290Z
 tags:
   - ai video
   - ai youtube
@@ -49,23 +49,19 @@ Once you have a video recorded using the first two guidelines from the above lis
 
 ![Upload YouTube Shorts Video to desktop](https://images.wondershare.com/filmora/article-images/upload-short-videos-on-youtube-pc.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Launch your favorite web browser on your PC, go to YouTube, make sure to sign in to your YouTube account, click the **Create** (**Camera**) icon from the top-right corner of the web page, click **SELECT FILES** on the **Upload videos** window, and locate, select, and upload a short video from your PC to the portal.
 
 ![Upload YouTube Shorts Video](https://images.wondershare.com/filmora/article-images/upload-short-videos-interface-on-youtube-pc.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Step 2: Mark the Video as Short
 
 On the **Details** window that appears, add **#Shorts** in the **Title** or **Description** field, optionally pick a thumbnail from the suggested images present under the **Thumbnail** section (or upload a custom picture from your PC), select your preferred radio button from under the **Audience** section, make the other necessary changes if need be, and click **NEXT**. When the **Video elements** window comes up, choose your preferred options and elements, click **NEXT**.
 
 ![Mark YouTube Shorts Video in title and description](https://images.wondershare.com/filmora/article-images/mark-shorts-videos-on-youtube-pc.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### Step 3: Publish the Short Video
 
@@ -82,7 +78,7 @@ For Win 7 or later (64-bit)
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -91,7 +87,15 @@ For macOS 10.12 or later
 
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ---
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to Upload Short Video on YouTube Mobile App?
 
@@ -107,10 +111,6 @@ The process of **uploading YouTube Shorts** from the mobile app is fairly simple
 
 ![Select a Video to Upload as Shorts](https://images.wondershare.com/filmora/article-images/select-shorts-videos-to-upload-on-youtube.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 On your Android or iOS smartphone, launch the YouTube app, tap the **+** (**Create**) icon from the bottom, tap **Create a Short** from the **Create** box that pops up from the bottom, tap **Upload** from the bottom-right corner of the next screen, and select and upload a short, 60 seconds video recorded in portrait orientation from your device’s storage to the app.
 
 #### Step 2: Add Details
@@ -123,6 +123,10 @@ On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the b
 
 Finally tap **UPLOAD** from the top-right corner to upload the short video on YouTube.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Method 2: Record a Short Video and Upload
 
 **Step 1:** Record Shorts Video
@@ -132,6 +136,10 @@ Previously, I have introduced [how to record and upload YouTube Shorts videos](h
 Please note you will not see the **Create a Short** option if you are outsides of India.
 
 ![ Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 In the YouTube app, tap the **+** (**Add**) button and select **Create** **a Short**. Please note you will not see the **Create a Short** option if you are outsides of India.
 
@@ -155,15 +163,7 @@ Learning the process of **how to post short videos on YouTube** is fairly simple
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -186,15 +186,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-superstars-with-a-subscriber-base/"><u>[New] 2024 Approved Superstars with a Subscriber Base</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-vidvibes-merge-android-and-ios-insta-photos-for-2024/"><u>[New] VidVibes Merge Android & iOS Insta Photos for 2024</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/exploring-the-versatility-of-lenovos-hybrid-device-a-dual-mode-windows-and-android-laptoptablet-reviewed-by-zdnet/"><u>Exploring the Versatility of Lenovo's Hybrid Device: A Dual-Mode Windows & Android Laptop/Tablet Reviewed by ZDNet</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-apple-iphone-12-pro-apples-new-iphone-drfone-by-drfone-ios/"><u>How to Unlock Apple iPhone 12 Pro, Apples New iPhone | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-beef-up-your-cgi-with-these-8-online-repositories-of-free-green-screens-and-clips/"><u>In 2024, Beef up Your CGI with These 8 Online Repositories of FREE Green Screens and Clips</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-crafting-a-successful-mukbang-video-journey/"><u>In 2024, Crafting a Successful Mukbang Video Journey</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-demystifying-the-world-of-youtube-shorts/"><u>In 2024, Demystifying the World of YouTube Shorts</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-game-changers-discovering-top-tier-gaming-webcam-technology/"><u>In 2024, Game Changers Discovering Top-Tier Gaming Webcam Technology</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/keeping-content-copyright-compliant-with-instra-watermarking/"><u>Keeping Content Copyright-Compliant with Instra Watermarking</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/securing-smooth-timelines-to-avoid-frame-drops-in-obs-for-2024/"><u>Securing Smooth Timelines to Avoid Frame Drops in OBS for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-ryans-wealth-wonders-a-kids-fortune-in-the-streaming-space/"><u>[New] In 2024, Ryan’s Wealth Wonders A Kid's Fortune in the Streaming Space</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-transformative-content-blocks-enhanced-youtube-decks/"><u>[New] In 2024, Transformative Content Blocks Enhanced Youtube Decks</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/implicity-in-video-creation-a-guide-to-10-easy-to-make-youtube-videos-for-2024/"><u>[New] Simplicity in Video Creation A Guide to 10 Easy-to-Make YouTube Videos for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-experts-guide-to-video-editors-picking-between-filmora-and-democreator/"><u>[Updated] 2024 Approved Expert's Guide to Video Editors Picking Between Filmora and Democreator</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-discover-7-premier-android-apps-to-banish-ads/"><u>[Updated] In 2024, Discover 7 Premier Android Apps to Banish Ads</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/accelerate-your-skills-with-these-15-no-cost-autonomous-ai-educational-opportunnities/"><u>Accelerate Your Skills with These 15 No-Cost, Autonomous AI Educational Opportunnities</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/chatgpt-workarounds-and-side-jobs-expert-level-pc-building-advice-vintage-handheld-gaming-revival-tips/"><u>ChatGPT Workarounds & Side Jobs, Expert-Level PC Building Advice, Vintage Handheld Gaming Revival Tips</u></a></li>
+<li><a href="https://win11.techidaily.com/decoding-and-fixing-0x0000004e-on-windows-xp7/"><u>Decoding and Fixing 0X0000004E on Windows XP/7</u></a></li>
+<li><a href="https://fox-triigers.techidaily.com/expert-guide-to-fixing-net-40-error-0x800c0006-in-windows-7/"><u>Expert Guide to Fixing .NET 4.0 Error 0X800C0006 in Windows 7</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/finding-opportunities-where-youtube-collaborations-thrive/"><u>Finding Opportunities Where YouTube Collaborations Thrive</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-streamlining-your-spotify-to-youtube-music-library-transition/"><u>In 2024, Streamlining Your Spotify to YouTube Music Library Transition</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/oneplus-nord-ce-3-5g-not-receiving-texts-10-hassle-free-solutions-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>OnePlus Nord CE 3 5G Not Receiving Texts? 10 Hassle-Free Solutions Here | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/pro-level-strategies-for-mass-downloading-tiktok-content/"><u>Pro-Level Strategies for Mass Downloading TikTok Content</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/be-studios-pathway-to-high-quality-videography/"><u>YouTube Studio's Pathway to High-Quality Videography</u></a></li>
 </ul></div>
 
