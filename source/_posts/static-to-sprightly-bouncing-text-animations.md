@@ -1,7 +1,7 @@
 ---
 title: "\"From Static to Sprightly  Bouncing Text Animations\""
-date: 2025-01-07T00:32:29.578Z
-updated: 2025-01-13T03:35:41.313Z
+date: 2025-01-18T16:59:40.426Z
+updated: 2025-01-19T16:19:34.945Z
 tags:
   - ai video
   - ai youtube
@@ -31,6 +31,10 @@ Earlier, you learned how to have a **[bounce text effect in Adobe After Effects]
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Method 1: How to Create Bouncing Text in Filmora Video Editor?
 
 When talking about [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/), the application is populated with several presets for texts and titles, animations, effects, filters, and much more.
@@ -52,7 +56,7 @@ In the timeline, double-click the title you just added, use the upper-left secti
 ![Create Bouncing Text video Filmora9](https://images.wondershare.com/filmora/article-images/add-up-down-animation-to-bounce.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 3: Add Shake Filters**
@@ -62,7 +66,7 @@ Go to **Effects** from the standard toolbar, expand the **Filters** category fro
 ![Shake filters in Filmora9](https://images.wondershare.com/filmora/article-images/shake-filter.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You can customize the default effect by double-clicking the shake filter in the timeline, using the sliders in the upper-left area of the interface to make necessary adjustments, and then clicking **OK** to save the changes and to get back to the previous interface.
@@ -75,10 +79,6 @@ Click **EXPORT** from the top of the interface, go to the **Local** tab in the *
 
 ![Filmora9 Export Options](https://images.wondershare.com/filmora/article-images/export-filmora9-video.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Now, you can add the bouncing text video and the background video to the timeline, and then place the bouncing text video above the background video track.
 
 Double click the text track, go to the **Chroma Key** effect, select the **Color Picker** tool, and click anywhere in the Preview window to get things right. Finally, export the entire project to your preferred output format as explained in **Step 4**.
@@ -86,10 +86,6 @@ Double click the text track, go to the **Chroma Key** effect, select the **Color
 As explained before, Wondeshare Filmora makes the entire process of creating and adding **bounce text** effect pretty simple. With all the pre-build templates, and the versatility of the options that can be used to customize those presets, you can come up with the effects that are usually obtained when you start generating them from the scratch.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Method 2: Generate Animated Bouncing Texts Online
 
@@ -102,6 +98,10 @@ Some most trusted websites to generate **bounce text** are listed below:
 Website: <https://engfto.com/index/create%5Fanimated%5Fbouncing%5Ftext/0-26>
 
 ![Create Animated Bouncing Text with ENGFTO](https://images.wondershare.com/filmora/article-images/engfto-create-animated-bouncing-text.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You can follow the instructions given below to use Engfto to generate bouncing text for your footages:
 
@@ -144,7 +144,7 @@ Generating **bounce text** effect is much simpler when you use Wondershare Filmo
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -168,24 +168,22 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-8-best-free-video-editing-software-for-youtube/"><u>[New] In 2024, 8 Best Free Video Editing Software for YouTube</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-mastering-soft-melodies-pcos-guide/"><u>[New] In 2024, Mastering Soft Melodies PC/OS Guide</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-fostering-engagement-creating-budget-friendly-youtube-intros/"><u>[Updated] 2024 Approved Fostering Engagement Creating Budget-Friendly YouTube Intros</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-how-to-add-logo-or-watermark-to-youtube-video/"><u>[Updated] 2024 Approved How to Add Logo or Watermark to YouTube Video</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-accelerate-your-channel-growth-affordable-subscribers-available-for-2024/"><u>[Updated] Accelerate Your Channel Growth - Affordable Subscribers Available for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-echoharvest-app-reviews-step-by-step-guide/"><u>[Updated] EchoHarvest App Reviews Step-by-Step Guide</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-icon-and-logo-havens-a-guide-to-6-unique-online-resources/"><u>[Updated] In 2024, Icon & Logo Havens A Guide to 6 Unique Online Resources</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-optic-zenith-premier-choices-in-the-realm-of-8k-for-2024/"><u>[Updated] Optic Zenith Premier Choices in the Realm of 8K for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-searchingforsmartercameraspost-mycam-for-2024/"><u>[Updated] SearchingForSmarterCamerasPost-MyCam for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-best-ios-tools-for-psp-gaming-top-5/"><u>2024 Approved Best iOS Tools for PSP Gaming, Top 5</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/id-and-ios-the-best-sound-distortion-tools/"><u>Android & iOS The Best Sound Distortion Tools</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/e-a-youtube-earning-expert-universal-device-strategies/"><u>Become a YouTube Earning Expert Universal Device Strategies</u></a></li>
-<li><a href="https://win-dash.techidaily.com/1722971127287-get-the-latest-dell-wd19-printer-drivers-installed-today/"><u>Get the Latest Dell WD19 Printer Drivers Installed Today!</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-change-poco-c50-lock-screen-password-by-drfone-android/"><u>How To Change Poco C50 Lock Screen Password?</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-your-complimentary-access-to-50-premium-youtube-banners/"><u>In 2024, Your Complimentary Access to 50 Premium YouTube Banners</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/insta-stats-spotlight-pinpointing-viewers-of-your-photos/"><u>Insta Stats Spotlight Pinpointing Viewers of Your Photos</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ng-tech-review-the-top-10-screen-recorders/"><u>Leading Tech Review The Top 10 Screen Recorders</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-oppo-k11x-device-by-drfone-android/"><u>Mastering Android Device Manager The Ultimate Guide to Unlocking Your Oppo K11x Device</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-romer-rechargeable-flashlights-assessed-a-durable-battery-free-light-solution/"><u>Top Romer Rechargeable Flashlights Assessed: A Durable, Battery-Free Light Solution</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-garageband-guide-gently-dissolve-decibels/"><u>[New] Garageband Guide Gently Dissolve Decibels</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/op-ranked-screen-recorder-for-seamless-youtubing-for-2024/"><u>[New] Top-Ranked Screen Recorder for Seamless YouTubing for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/loggers-with-the-largest-digital-incomes/"><u>[New] Vloggers with the Largest Digital Incomes</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-15-youtube-video-ideas-for-musicians/"><u>[Updated] 15 YouTube Video Ideas for Musicians</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-chronicles-of-youtube-the-ultimate-viral-list/"><u>[Updated] In 2024, Chronicles of YouTube The Ultimate Viral List</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-elevate-your-game-with-immediate-skilled-valorant-thumbnails/"><u>[Updated] In 2024, Elevate Your Game with Immediate, Skilled Valorant Thumbnails</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-quick-steps-to-live-stream-youtube-via-obs-for-novices/"><u>[Updated] In 2024, Quick Steps to Live Stream Youtube via OBS for Novices</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-snapshot-verbalizer/"><u>[Updated] In 2024, Snapshot Verbalizer</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-thrifty-filmmaker-best-economical-camera-lineup/"><u>2024 Approved Thrifty Filmmaker Best Economical Camera Lineup</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-best-tools-to-hard-reset-oppo-find-n3-flip-drfone-by-drfone-reset-android-reset-android/"><u>3 Best Tools to Hard Reset Oppo Find N3 Flip | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/crafting-engaging-facebook-reels-the-making-process-explained/"><u>Crafting Engaging Facebook Reels The Making Process Explained</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/how-to-repair-stop-error-0x000003d-a-comprehensive-troubleshooting-guide/"><u>How to Repair STOP Error 0X00000^3D: A Comprehensive Troubleshooting Guide</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-teleport-your-gps-location-on-vivo-s18-drfone-by-drfone-virtual-android/"><u>How To Teleport Your GPS Location On Vivo S18? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-edit-and-send-fake-location-on-telegram-for-your-honor-magic-v2-in-3-ways-drfone-by-drfone-virtual-android/"><u>In 2024, Edit and Send Fake Location on Telegram For your Honor Magic V2 in 3 Ways | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/oppo-a56s-5g-stuck-on-screen-finding-solutions-for-stuck-on-boot-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Oppo A56s 5G Stuck on Screen – Finding Solutions For Stuck on Boot | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/top-strategies-for-successful-play-in-cs2-mac/"><u>Top Strategies for Successful Play in CS2, Mac</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-honor-play-40c-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Honor Play 40C | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Vlog Confidently Like Popular YouTubers, In 2024"
-date: 2025-01-11T02:39:49.357Z
-updated: 2025-01-13T01:12:46.587Z
+date: 2025-01-12T18:03:48.823Z
+updated: 2025-01-19T16:09:51.793Z
 tags:
   - ai video
   - ai youtube
@@ -35,10 +35,6 @@ When we watch the most popular YouTubers, the traits that make them successful a
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **1\. Be Authentic**
 
 People opt to watch vlogs because they want to see something real.
@@ -48,6 +44,10 @@ Vlogging is about honesty, telling a story that is truthful and showing your per
 There will be an urge for you to mimic other vloggers, talking and acting the way they do, but savvy YouTube viewers will be able to see your faux personality pretty quickly.
 
 Don’t focus on your image, but instead focus on your voice. What makes you different? That is how you will build a proper reputation.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **2\. Tell A Story**
 
@@ -59,10 +59,6 @@ Once all the pieces of the story are captured — including your storytelling, b
 
 Take a look at this example from [Tiffany Alvord](https://www.youtube.com/user/TiffanyAlvord) and notice how there are jump cuts both to skip information that can be assumed by the audience and add the tension to the story she’s telling.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **3\. Surprise and Delight Your Audience**
 
 There is a saying that a great ending to a story is that it is [surprising, yet inevitable](https://www.huffingtonpost.com/david-kudler/writing-the-inevitable-bu%5Fb%5F1630419.html).
@@ -72,7 +68,7 @@ The ending needs to be justified even if there is a twist. Everything before tha
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **4\. Be Inviting**
@@ -84,7 +80,7 @@ Unlike being invited to a party, there is no obligation when it comes to YouTube
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **5\. Compose the Shot**
@@ -99,6 +95,10 @@ Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UC
 
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **6\. Be Prepared**
 
 While you can pick up a camera and start vlogging on the fly, being prepared enables you to produce the best video possible. Take a few minutes before you hit record simply to outline the key points you want to talk about and how the video will end, ensuring that after filming you haven’t forgotten a crucial part.
@@ -108,10 +108,6 @@ Additionally, knowing what to say makes you a better host for your vlog. Watch y
 Good preparation includes having all your gear ready for filming when you need it. There is nothing worse than being set to shoot and running out of battery or memory.
 
 Take a look at [Ashley Nichole](https://www.youtube.com/channel/UC8GTe3Wn7dtWXf3B%5Fv5gm9w) in this vlog and notice that although she sounds spontaneous, it is also evident that she knows what she is going to talk about next.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **7\. Be Expressive**
 
@@ -149,6 +145,10 @@ If you want to find a video editing solution that empowers your imagination and 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -170,15 +170,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-a-simple-path-to-enhanced-youtube-sign-ups-create-animated-subscription-bar-using-filmora/"><u>[New] In 2024, A Simple Path to Enhanced YouTube Sign-Ups - Create Animated Subscription Bar Using Filmora</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/iew-victory-hashes-that-help-your-youtube-shorts-go-mainstream-for-2024/"><u>[New] View Victory Hashes That Help Your YouTube Shorts Go Mainstream for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-channel-upgrade-plans-standard-studio-or-beta-revolution/"><u>[Updated] 2024 Approved Channel Upgrade Plans Standard Studio or Beta Revolution</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-immerse-in-unprecedented-reality-stories/"><u>In 2024, Immerse in Unprecedented Reality Stories</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/meilleurs-outils-dextraction-video-librement-accessibles-guide-exhaustif-des-utilitaires-premium-windows-11-2023/"><u>Meilleurs Outils D'Extraction Vidéo Librement Accessibles: Guide Exhaustif Des Utilitaires Premium Windows 11 2023</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/navigating-dangerous-terrain-unveiling-eight-reasons-why-ai-security-flaws-are-becoming-more-severe/"><u>Navigating Dangerous Terrain: Unveiling Eight Reasons Why AI Security Flaws Are Becoming More Severe</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/toms-tech-the-ultimate-guide-to-hardware-and-computing-solutions/"><u>Tom's Tech: The Ultimate Guide to Hardware and Computing Solutions</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/unleashing-the-power-of-time-lapse-photography-using-gopro/"><u>Unleashing the Power of Time-Lapse Photography Using GoPro</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/king-youtube-potential-expert-tips-for-wirecast-streaming/"><u>Unlocking YouTube Potential Expert Tips for WireCast Streaming</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-decoding-the-differences-premiere-pro-vs-after-effects-for-video-editors-for-2024/"><u>Updated Decoding the Differences Premiere Pro vs After Effects for Video Editors for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-the-science-of-choosing-music-for-movie-previews/"><u>[New] 2024 Approved The Science of Choosing Music for Movie Previews</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/levate-your-youtube-presence-with-simple-seo-techniques-for-2024/"><u>[New] Elevate Your YouTube Presence with Simple SEO Techniques for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-elevate-your-content-with-these-top-keyword-discovery-tools/"><u>[New] In 2024, Elevate Your Content with These Top Keyword Discovery Tools</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-navigating-complex-editing-a-practical-guide-for-youtube-video-creators-on-pc/"><u>[New] In 2024, Navigating Complex Editing A Practical Guide for YouTube Video Creators on PC</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-tips-for-effortless-sharing-of-musical-selections/"><u>[New] In 2024, Tips for Effortless Sharing of Musical Selections</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/outube-video-magic-advanced-editing-with-premiere-pro/"><u>[New] YouTube Video Magic Advanced Editing with Premiere Pro</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-enhance-your-content-creating-engaging-loop-videos-for-ig/"><u>2024 Approved Enhance Your Content Creating Engaging Loop Videos for IG</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-asus-realtek-sound-card-software-no-cost/"><u>Download ASUS Realtek Sound Card Software - No Cost</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-ai-assisted-the-ultimate-list-of-podcast-title-makers/"><u>In 2024, AI-Assisted The Ultimate List of Podcast Title Makers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-why-choose-av1-for-youtube-unlock-potential/"><u>In 2024, Why Choose AV1 for YouTube? – Unlock Potential</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/superior-prompt-quality-vs-expense-a-value-insight/"><u>Superior Prompt Quality vs Expense: A Value Insight?</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/rtisans-guide-to-animation-enchantment/"><u>The Artisan's Guide to Animation Enchantment</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/the-ultimate-guide-to-navigating-steam-with-switch-pro-for-2024/"><u>The Ultimate Guide to Navigating Steam with Switch Pro for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unveiling-top-7-thrilling-new-capabilities-of-bard-ai-showcased-at-google-io-2023/"><u>Unveiling Top 7 Thrilling New Capabilities of BARD AI Showcased at Google I/O 2023</u></a></li>
 </ul></div>
 

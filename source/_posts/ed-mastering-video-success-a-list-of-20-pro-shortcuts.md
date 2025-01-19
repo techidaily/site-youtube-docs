@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Mastering Video Success  A List of 20 Pro Shortcuts\""
-date: 2025-01-07T23:07:54.784Z
-updated: 2025-01-13T03:15:54.004Z
+date: 2025-01-18T17:36:34.963Z
+updated: 2025-01-19T17:55:37.135Z
 tags:
   - ai video
   - ai youtube
@@ -37,6 +37,10 @@ With that said, the following two-columned tables give you detailed information 
 
 To make things convenient for you, the shortcut keys are placed under their corresponding categories, where each category is in the form of a two-columned table.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Category 1: YouTube Playback Hotkeys
 
 While watching a YouTube video, there might be instances when you want to pause and resume the playback. This category teaches how this can be done using the keyboard:
@@ -47,7 +51,7 @@ While watching a YouTube video, there might be instances when you want to pause 
 | 'Spacebar'        | Play and Pause (Works as a toggle key) |
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Category 2: Scrolling YouTube Videos Back and Forth
@@ -68,10 +72,6 @@ This section talks about the shortcut keys to skim the video forward and backwar
 If you’re watching videos on YouTube mobile app, you can use double-tap on the right side of the video player to skip 10 seconds forward, and double-tap on the left side of the video player to skip the video 10 seconds backward. Every double-tap forwards/rewinds the video in 10-seconds increments. E.g., Tapping 6 times on the right skips the video 30 seconds forward. Tapping 6 times on the left skips the video 30 seconds backward.
 
 Long press the Video Player and swipe right will navigate the video forward; and long press the video player and wwipe left will navigate the video backward.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Category 3: Manage Playback Speed
 
@@ -94,6 +94,10 @@ This category talks about managing the video captions using the shortcut keys:
 | '-' (Minus Key)    | Reduce the font size of the captions (Minus key on the Numpad isn't supported)                                       |
 | '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Category 5: Managing the Audio Video
 
 This category shows the shortcut keys to manage audio for a YouTube video:
@@ -103,6 +107,10 @@ This category shows the shortcut keys to manage audio for a YouTube video:
 | 'M'               | Mute YouTube video    |
 | '↑'               | Increase volume by 5% |
 | '↓'               | Decrease volume by 5% |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Category 6: Switching Between Screen Modes
 
@@ -142,10 +150,6 @@ So, when you press the Shift+? on YouTube, you will see a full list of shortcuts
 
 ![YouTube Shortcut List](https://images.wondershare.com/filmora/article-images/youtube-keyboard-shortcuts-list.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Conclusion**
 
 Watching videos on YouTube is fun, and you can enjoy the clips, movies, tutorials, etc. more if you are well-aware of the important shortcut keys. This not only helps you navigate through the videos faster but also gives you relief from the additional efforts that you would otherwise have to make while grabbing the mouse, and then looking for and using the correct option.
@@ -154,14 +158,10 @@ As one of the most popular video editing software among YouTubers, Filmora provi
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -185,19 +185,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-elevate-your-chuckles-kapwings-meme-designer-for-2024/"><u>[New] Elevate Your Chuckles Kapwing's Meme Designer for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ngaging-viewers-with-ease-the-art-of-confidently-filming/"><u>[New] Engaging Viewers with Ease The Art of Confidently Filming</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/treaming-success-starts-here-8-tips-for-beginners-for-2024/"><u>[New] Streaming Success Starts Here - 8 Tips for Beginners for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-elevate-photos-selecting-a-robust-text-editor/"><u>[Updated] 2024 Approved Elevate Photos Selecting a Robust Text Editor</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-directing-the-flow-of-digital-storytelling-through-youtube-fusion/"><u>[Updated] Directing the Flow of Digital Storytelling Through Youtube Fusion</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-freshflicks-app-overview-and-score/"><u>[Updated] FreshFlicks App Overview & Score</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-incorporating-cards-and-annotations-in-youtube-content-for-2024/"><u>[Updated] Incorporating Cards and Annotations in YouTube Content for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-microvid-virtuoso/"><u>2024 Approved MicroVid Virtuoso</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-streamlining-youtube-edits-with-advanced-sony-vegas-techniques/"><u>2024 Approved Streamlining YouTube Edits with Advanced Sony Vegas Techniques</u></a></li>
-<li><a href="https://win11.techidaily.com/bridging-browser-speed-discrepancy-across-devices/"><u>Bridging Browser Speed Discrepancy Across Devices</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/diy-guide-steps-to-successfully-wipe-your-iphone-clean/"><u>DIY Guide: Steps to Successfully Wipe Your iPhone Clean</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-a-guide-vivo-v30-lite-5g-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>In 2024, A Guide Vivo V30 Lite 5G Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
-<li><a href="https://fox-access.techidaily.com/in-2024-choosing-the-right-display-elevate-your-xbox-series-x-experience/"><u>In 2024, Choosing the Right Display - Elevate Your Xbox Series X Experience</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/top-iphone-markers-choosing-the-best-image-watermarks/"><u>Top iPhone Markers Choosing the Best Image Watermarks</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-enhance-video-popularity-with-strategic-timestamps/"><u>[New] In 2024, Enhance Video Popularity with Strategic Timestamps</u></a></li>
+<li><a href="https://driver-error.techidaily.com/solved-error-code-45-in-device-manager/"><u>[SOLVED] Error Code 45 in Device Manager</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-blueprints-to-masterful-valorant-thumbnail-designs-on-social-platforms/"><u>[Updated] Blueprints to Masterful Valorant Thumbnail Designs on Social Platforms</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-engineering-endgame-echoes/"><u>[Updated] Engineering Endgame Echoes</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-expertly-crafted-video-making-software-iphone-android/"><u>[Updated] Expertly Crafted Video-Making Software (iPhone, Android)</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-transform-your-streaming-experience-via-youtubes-av1-feature/"><u>[Updated] In 2024, Transform Your Streaming Experience via YouTube's AV1 Feature</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-inside-look-at-optimizing-channels-in-youtube-studio/"><u>[Updated] Inside Look at Optimizing Channels in YouTube Studio</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-no-more-youtube-the-best-5-alternative-editors-await/"><u>2024 Approved No More Youtube? The Best 5 Alternative Editors Await</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/everything-you-need-to-know-about-lock-screen-settings-on-your-tecno-camon-20-by-drfone-android/"><u>Everything You Need to Know about Lock Screen Settings on your Tecno Camon 20</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-hidefake-snapchat-location-on-your-xiaomi-redmi-13c-drfone-by-drfone-virtual-android/"><u>How to Hide/Fake Snapchat Location on Your Xiaomi Redmi 13C | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-gionee-f3-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Gionee F3 Pro? | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-navigating-youtube-sharing-with-google-credentials/"><u>In 2024, Navigating YouTube Sharing with Google Credentials</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-professional-capture-tools-for-pcmac-devices/"><u>In 2024, Professional Capture Tools for PC/Mac Devices</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/tips-on-recognizing-and-responding-to-fake-chatgpt-portals/"><u>Tips on Recognizing and Responding to Fake ChatGPT Portals</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/ultimate-guide-from-samsung-galaxy-a15-5g-frp-bypass-by-drfone-android/"><u>Ultimate Guide from Samsung Galaxy A15 5G FRP Bypass</u></a></li>
 </ul></div>
 

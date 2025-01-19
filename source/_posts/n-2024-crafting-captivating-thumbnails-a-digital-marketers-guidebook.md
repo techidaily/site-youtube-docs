@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Crafting Captivating Thumbnails  A Digital Marketer's Guidebook\""
-date: 2025-01-06T00:26:16.108Z
-updated: 2025-01-12T23:12:38.752Z
+date: 2025-01-15T16:24:56.706Z
+updated: 2025-01-19T18:19:49.711Z
 tags:
   - ai video
   - ai youtube
@@ -42,7 +42,7 @@ Viewers click on thumbnails that both standout and feel relevant to their search
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to Make a YouTube Thumbnail
@@ -80,7 +80,7 @@ You should also avoid fonts that are harder to read. Fonts with a lot of curves 
 Another tactic used in successful thumbnails is to add small graphics, like emojis or small images (i.e. pumpkins for a Halloween video), which are related to your video’s content. As with text, you don’t want to overload your thumbnail with images, but they’re a great way to add something eye-catching that’s a bit different from competing thumbnails.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. The Emotional Laser (Background + Face Reacting)
@@ -92,7 +92,7 @@ The three main elements of the Emotional Laser thumbnail are a background (usual
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### #1. Ham It Up (Take Your Reaction Photo)
@@ -117,6 +117,10 @@ In your thumbnail maker or a program like Photoshop, you’ll need to put your p
 
 If instead of an object you plan to fill the other side of your thumbnail with text, question marks, emojis, or some other graphic element then now is the time to add it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: How to Upload a YouTube Thumbnail
 
 When you upload a new video to YouTube, you will see a **Custom thumbnail** option under **Video thumbnails** after your upload is complete.
@@ -134,10 +138,6 @@ YouTube recommends that thumbnail images have a resolution of **1280x720px**, an
 
 Make sure that all of your thumbnails adhere to YouTube’s Community guidelines. Anything sexually suggestive, violent, or otherwise graphic could result in your video being age-restricted.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3: YouTube Thumbnail Makers
 
 You don’t have to go out and buy a photo editor like Photoshop to make custom video thumbnails (although it’s a good thing to use if you already have it). Here are two free online programs you can use instead:
@@ -151,10 +151,6 @@ Generally, using Canva is as easy as dragging and dropping things where you want
 You can make changes to the colors in your Spark thumbnail easily by selecting a new color scheme or filter. You can even toggle through layouts easily. When you choose a new layout, Spark will rearrange all the pieces of your current thumbnail to align with the new layout so you can quickly see what it looks like instead of having to rebuild.
 
 Click to check more [YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 4: How to Make Thumbnails That Get Clicks (Without Clickbait!)
 
@@ -194,6 +190,10 @@ Type your video’s title or topic into the search engine on YouTube and look at
 
 Generally, if most of the thumbnails have the same layout, you’ll want to mimic that layout. Where you can break from the crowd is in the colors, fonts, and graphics you use.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 5: Animated YouTube Thumbnails
 
 Whether or not you upload a custom thumbnail to YouTube, YouTube’s A.I will choose what it thinks are the 3 juiciest seconds of your video (you cannot choose for yourself) and play them as a GIF-like animation when people mouseover your video thumbnails.
@@ -231,20 +231,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/mbracing-constructive-feedback-ignoring-the-rest-for-2024/"><u>[New] Embracing Constructive Feedback, Ignoring the Rest for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-ideal-camera-and-recording-apps-for-iphone-and-android-smartphones/"><u>[Updated] In 2024, Ideal Camera and Recording Apps for iPhone and Android Smartphones</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-innovative-methods-for-shuffling-yt-playlists/"><u>[Updated] In 2024, Innovative Methods for Shuffling YT Playlists</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-sound-selection-secrets-top-7-free-effects-for-youtube-for-2024/"><u>[Updated] Sound Selection Secrets Top 7 Free Effects for YouTube for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-streamline-your-shoots-top-lenses-recommended-by-professionals/"><u>[Updated] Streamline Your Shoots Top Lenses Recommended by Professionals</u></a></li>
-<li><a href="https://some-tips.techidaily.com/updated-unveiling-the-full-potential-of-video-storage-in-modern-hardware-64128gb/"><u>[Updated] Unveiling the Full Potential of Video Storage in Modern Hardware (64/128GB)</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/bringing-the-future-home-gpt-4-for-crafters/"><u>Bringing the Future Home: GPT-4 for Crafters</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/comprehensive-troubleshooting-steps-for-computer-speaker-problems/"><u>Comprehensive Troubleshooting Steps for Computer Speaker Problems</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/t-speaker-change-devices-for-youtube-gurus/"><u>Expert Speaker Change Devices for YouTube Gurus</u></a></li>
-<li><a href="https://program-issues.techidaily.com/fixing-minecraft-stutter-and-lag-issues-top-solutions/"><u>Fixing Minecraft Stutter & Lag Issues : Top Solutions</u></a></li>
-<li><a href="https://driver-download.techidaily.com/get-the-new-eveo-bluetooth-dongle-driver-free-and-compatible-with-all-models/"><u>Get the New EVEO Bluetooth Dongle Driver: Free & Compatible with All Models</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-dominate-online-chatter-secrets-to-buzz-creating/"><u>In 2024, Dominate Online Chatter Secrets to Buzz-Creating</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-proven-ways-for-a-boom-in-youtube-viewership-top-12-methods/"><u>In 2024, Proven Ways for a Boom in YouTube Viewership (Top 12 Methods)</u></a></li>
-<li><a href="https://fox-access.techidaily.com/palette-perfection-unveiling-top-5-premium-color-tvs/"><u>Palette Perfection Unveiling Top 5 Premium Color TVs</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/unleashing-creativity-in-micro-videography-and-photography/"><u>Unleashing Creativity in Micro Videography and Photography</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-13-ways-to-fine-tune-colors-in-photoshop-effortlessly/"><u>[New] 2024 Approved 13 Ways to Fine-Tune Colors in Photoshop Effortlessly</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ssential-steps-for-mp3-streams-on-youtube/"><u>[New] Essential Steps for MP3 Streams on Youtube</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-enhancing-gaming-experience-with-steam-switch-control/"><u>[New] In 2024, Enhancing Gaming Experience with Steam Switch Control</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-fostering-resilience-in-the-face-of-cyber-haters/"><u>[Updated] In 2024, Fostering Resilience in the Face of Cyber Haters</u></a></li>
+<li><a href="https://facebook.techidaily.com/datas-destiny-post-facebook-fade/"><u>Data's Destiny Post Facebook Fade</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/forego-youtube-previews-to-enjoy-live-videos/"><u>Forego YouTube Previews to Enjoy Live Videos</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-3-easy-ways-to-factory-reset-a-locked-apple-iphone-xr-without-itunes-by-drfone-ios/"><u>In 2024, 3 Easy Ways to Factory Reset a Locked Apple iPhone XR Without iTunes</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-transforming-standard-tweets-into-hd-spectacles/"><u>In 2024, Transforming Standard Tweets Into HD Spectacles</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/raphic-social-strategies-for-budget-brands/"><u>Infographic Social Strategies for Budget Brands</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/reasons-for-xiaomi-redmi-note-12-4g-stuck-on-boot-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Xiaomi Redmi Note 12 4G Stuck on Boot Screen and Ways To Fix Them | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ess-integration-of-smartphone-tech-in-creating-youtube-channels/"><u>Seamless Integration of Smartphone Tech in Creating YouTube Channels</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/swaying-symbols-dynamic-animation-for-text-effects-for-2024/"><u>Swaying Symbols Dynamic Animation for Text Effects for 2024</u></a></li>
+<li><a href="https://fox-search.techidaily.com/troubleshooting-guide-solutions-when-your-pc-mouse-fails-to-function-yl-software-by-yl-computing/"><u>Troubleshooting Guide: Solutions When Your PC Mouse Fails to Function - YL Software by YL Computing</u></a></li>
 </ul></div>
 

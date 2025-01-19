@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Exciting Conversation Starter Ideas\""
-date: 2025-01-08T16:05:12.392Z
-updated: 2025-01-13T07:06:26.194Z
+date: 2025-01-13T18:16:07.065Z
+updated: 2025-01-19T16:17:41.572Z
 tags:
   - ai video
   - ai youtube
@@ -37,10 +37,6 @@ Before starting your daily vlogging, you have to figure out one important thing 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Do you have a niche?
 
   You should have a niche. In a genre as broad as vlogging it is important to have some kind of hook that sets you apart from other vloggers. This can be an interest that you have, an industry you work in, or even a field of study you’re involved in at school. If you’re into technology, for example, you’ll always have a wealth of subjects to vlog about because all you’ll have to do is look at the day’s tech news and make a video reporting and commenting on it.
@@ -55,7 +51,7 @@ The other reason it’s good to have a niche is that you’ll be able to use key
 Here are 4 things to talk about in your daily vlog:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What are you watching/reading?
@@ -64,11 +60,19 @@ Here are 4 things to talk about in your daily vlog:
 
 By commenting on what you’re watching/reading you have a better chance of capitalizing on a trending topic people are searching for. You could also find yourself an audience by becoming involved in fan communities.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Snapshots of Your Day
 
  Casey Neistat is the master of this. He is always ready with a camera on hand so that, when something interesting happens, he can capture it and build his daily vlog around it.
 
 Carrying a camera around like Casey may or may not suit your lifestyle, but you can still pick out one story from your day to tell. It doesn’t have to be a major event, and you shouldn’t worry that it won’t be interesting to other people. It’s your personality they’re tuning in for, so even if you’re just talking about a funny thing your cat did it will keep your audience interested because a) it’s you talking about it and b) it gives them a bit of insight into your life.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Whatever You Need to Get Out
 
@@ -96,20 +100,20 @@ The puya chilensis is a plant that ‘eats’ sheep (sheep get stuck to it, star
 
 Sea monkeys can survive in space.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## EVERYTHING
 
 You could also just flick the camera on and tell the full story of your day like you’d do in a traditional daily blog. What did you have for breakfast, how was school/work, did you talk to any friends, how was the weather – anything and everything. Generally, these videos can run a bit long and don’t have a lot of snappy editing. They’re faster to make, which is good if you’re doing them every day, but the unpolished nature of them won’t appeal to everyone. It will be exactly what appeals to some people, though.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Customize Your Vlog Stories with Powerful Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **We’ve got a new eBook out!**
@@ -117,10 +121,6 @@ You could also just flick the camera on and tell the full story of your day like
 It’s got strategies that have worked for other YouTubers, boiled down to simple action steps.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -143,15 +143,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/dit-your-way-to-success-iosandroid-apps-for-youtube-shorts-for-2024/"><u>[New] Edit Your Way to Success IOS/Android Apps for YouTube Shorts for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-unlocking-visual-potential-the-9-best-mobile-accessories-for-vloggers/"><u>[New] In 2024, Unlocking Visual Potential The 9 Best Mobile Accessories for Vloggers</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-the-wayfinders-guide-your-path-to-youtube-video-mastery-hub/"><u>[Updated] 2024 Approved The Wayfinder’s Guide Your Path to YouTube Video Mastery Hub</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-navigating-the-world-of-digital-gifs/"><u>[Updated] Navigating the World of Digital GIFs</u></a></li>
-<li><a href="https://fox-access.techidaily.com/becoming-an-exemplary-conductor-of-candidate-assessments-for-2024/"><u>Becoming An Exemplary Conductor of Candidate Assessments for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-guide-unveiling-the-samsung-galaxy-tab-s4-a-top-tier-android-device/"><u>Comprehensive Guide: Unveiling the Samsung Galaxy Tab S4 - A Top-Tier Android Device</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/wanderlusts-to-web-presence-your-strategy-for-professional-blogging-success-for-2024/"><u>From Wanderlusts To Web Presence Your Strategy for Professional Blogging Success for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/movaviflvmpeg/"><u>Movaviで気軽に行うFLVとMPEGファイル間の自由配布変換サービス</u></a></li>
-<li><a href="https://facebook.techidaily.com/quick-setup-for-extended-messaging-networks/"><u>Quick Setup for Extended Messaging Networks</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/ways-to-find-unlocking-codes-for-infinix-note-30-vip-phones-by-drfone-android/"><u>Ways To Find Unlocking Codes For Infinix Note 30 VIP Phones</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-pioneering-affordable-switch-emulators/"><u>[New] 2024 Approved Pioneering Affordable Switch Emulators</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/omprehensive-insights-into-imovie-techniques-for-youtube-creators-for-2024/"><u>[New] Comprehensive Insights Into iMovie Techniques for YouTube Creators for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-comprehensive-review-of-googles-ar-stickers/"><u>[New] Comprehensive Review of Google's AR Stickers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-tutorial-incorporating-youtube-soundtracks-in-imovie/"><u>[New] In 2024, Tutorial Incorporating YouTube Soundtracks in iMovie</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-speed-watchers-24-hrs-youtube-chart-leaders/"><u>[Updated] 2024 Approved Speed Watchers 24-Hrs YouTube Chart Leaders</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-increase-your-streams-value-youtube-monetizing-techniques-worldwide/"><u>[Updated] In 2024, Increase Your Stream's Value YouTube Monetizing Techniques Worldwide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-the-economics-of-earning-via-youtube/"><u>[Updated] In 2024, The Economics of Earning via YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-skyrocketing-influence-growth-in-youtube-audience/"><u>2024 Approved Skyrocketing Influence Growth in YouTube Audience</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/easy-tutorial-how-to-transform-mp4-files-into-h264-video-codec-for-ios-devices-playback/"><u>Easy Tutorial: How to Transform MP4 Files Into H26#4 Video Codec for iOS Devices Playback</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-amazon-echo-show-10-third-gen-a-dynamic-and-interactive-smart-device-for-your-space/"><u>Exploring the Amazon Echo Show 10, Third Gen: A Dynamic and Interactive Smart Device for Your Space</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-can-itel-a60smirror-share-to-pc-drfone-by-drfone-android/"><u>How Can Itel A60sMirror Share to PC? | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-toggle-pip-for-streaming-youtube-videos-more-conveniently-with-iphone/"><u>In 2024, Toggle PIP for Streaming Youtube Videos More Conveniently with iPhone</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/troubleshooting-steps-for-when-valorant-fails-to-boot-on-windows-updated-guide/"><u>Troubleshooting Steps for When Valorant Fails to Boot on Windows - Updated Guide</u></a></li>
 </ul></div>
 

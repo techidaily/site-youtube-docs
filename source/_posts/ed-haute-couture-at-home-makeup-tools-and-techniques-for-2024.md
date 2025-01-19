@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Haute Couture at Home  Makeup, Tools & Techniques for 2024\""
-date: 2025-01-08T23:00:27.767Z
-updated: 2025-01-13T00:36:13.507Z
+date: 2025-01-14T17:23:20.430Z
+updated: 2025-01-19T18:18:26.623Z
 tags:
   - ai video
   - ai youtube
@@ -52,10 +52,6 @@ Wondershare Filmora is specifically made keeping quality on priority and to make
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Finding Your Niche in Beauty or Lifestyle**
 
 As a new makeup, beauty, or lifestyle YouTuber you’ll be jumping into a category that’s already packed with thousands of channels. In order to gain any momentum, you’ll have to decide on a particular thing you want to be known for. That’s your niche.
@@ -65,6 +61,10 @@ People looking for beauty tutorials are often looking for someone who has someth
 Another way you could find a niche is by taking on a specific area of interest, like a skincare channel with a focus on coping with acne or a makeup channel with a focus on natural products.
 
   SunKissAlba has a lifestyle channel that focuses on a ‘natural’ niche. She posts videos about every aspect of her lifestyle from putting on makeup to cooking, but natural/non-toxic products are a constant theme through everything she does. By niching her channel she hasn’t limited what kinds of videos she can do at all - she posts a huge variety of different types of videos. What she has done is to make her channel particularly valuable to audiences interested in things that are natural or organic.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Types of Beauty Videos – Your Content Strategy**
 
@@ -126,7 +126,7 @@ Make sure to link to your channel so they can verify what you say (do not hide y
 Emphasize what value you could provide the brand with (i.e. ‘I’ve had a lot of success with videos on managing acne and I’m sure my subscribers would love to see a review of your cream’) and outline what kind of video you’d like to make (i.e. a five-minute review focusing on the product, or a short feature in a longer makeup tutorial).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Simple Camera Setup for Beauty Vloggers**
@@ -166,21 +166,17 @@ An aperture of f/5.0 is good if you’re going to be moving around a lot, but if
 
 ![set f stop](https://images.wondershare.com/filmora/article-images/set-f-stop2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 6:** Set your ISO (film speed). A lower ISO will give you a darker, but higher quality, image. A higher ISO will lower your quality and give you a brighter image.
 
 ISO 400 should be a happy medium for shooting inside with your ring light, but you may need to try out a couple of settings to find one perfect for your situation.
 
 ![set film speed](https://images.wondershare.com/filmora/article-images/set-film-speed3.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 For more info on [camera settings for beauty videos, click here](https://www.filmora.io/video-tutorials/how-to-set-up-your-camera-%E2%80%93-the-makeup-series-12.html).
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Lighting for Beauty**
 
@@ -195,6 +191,10 @@ There are, however, some reasons you might want additional light:
 If you only have a ring light/front light then you may end up looking like you’re surrounded by shadows. If you want more light for your space you can use windows, household lamps, or professional video lights like softboxes or LED panels.
 
  ![light background](https://images.wondershare.com/filmora/article-images/light-background4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### **To Stand Out Against your Background (‘Backlighting’)**
 
@@ -218,6 +218,10 @@ You can use softboxes, LED panels, clamp lights, household lamps, or any other l
 * **_Clamp lights ($10 each) and paper lanterns ($10 each) provide great lighting and are much more affordable than professional lighting kits._ The paper lanterns will provide even, diffused, light and the clamp lights will be easy to set up wherever you need them.**
 * **_Check out these [DIY tips for creating your own reflectors and diffusers](https://www.filmora.io/community-blog/save-money-with-clever-diy-youtube-gear%21-462.html)._**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Top Ring Lights for YouTube**
 
 ####  
@@ -228,6 +232,10 @@ One cool feature of the Neewer Ring Light is that you can choose between dayligh
 
 ![Neewer Ring Light ](https://images.wondershare.com/filmora/article-images/neewer-ring-light5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 This light is dimmable and can be adjusted to the angle that suits your shot. That’s true of our number 2 pick too, and the second place light actually has a slight edge over the Neewer light because its color temperature is 5400K which is slightly closer to daylight than Neewer’s 5500K, but that’s honestly not super important for YouTube. They’re close enough that you won’t be able to tell the difference, and this light is over $100 more affordable.
 
 #### 2\. [**Prismatic Halo Ring Light**](https://www.amazon.com/Prismatic-Halo-Ring-Light-Stand/dp/B015NJ2YHY/ref=sr%5F1%5F3?s=electronics&ie=UTF8&qid=1530135663&sr=1-3&keywords=prismatic+18%22+halo+ring+light) **\- $260**
@@ -235,10 +243,6 @@ This light is dimmable and can be adjusted to the angle that suits your shot. Th
 This lightweight ring light is easy to transport, set up, and mount your phone or camera to. It’s a fluorescent ‘daylight’ (5400K) light, so the colors in your videos will look natural.
 
 This light is dimmable, so you can turn it down if it’s too bright, and the Prismatic Light Stand will allow you to tilt your light to the perfect angle. This will be handy if you’re mounting your camera inside the ring but want to place it slightly above your face instead of having it look at you head on.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Build Your Own Diva Ring Light**
 
@@ -302,10 +306,6 @@ Remember to include what type of video you made, i.e. ‘tutorial’, ‘review�
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -327,20 +327,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-cutting-edge-editors-scouting-the-ultimate-tools-for-youtube-shorts/"><u>[New] In 2024, Cutting Edge Editors Scouting the Ultimate Tools for YouTube Shorts</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-improve-video-comprehensibility-with-effective-use-of-chapters-in-youtube/"><u>[New] In 2024, Improve Video Comprehensibility with Effective Use of Chapters in YouTube</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-pro-gamers-and-casters-to-subscribe-now/"><u>[Updated] 2024 Approved Pro Gamers & Casters to Subscribe Now</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-unlocking-potential-solving-common-youtube-short-problems/"><u>[Updated] 2024 Approved Unlocking Potential Solving Common YouTube Short Problems</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-easily-pulling-picture-moments-from-videos-for-windows-photos/"><u>[Updated] Easily Pulling Picture Moments From Videos for Windows Photos</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-efficient-downloads-transform-vimeo-videos-into-mp4/"><u>[Updated] In 2024, Efficient Downloads Transform Vimeo Videos Into MP4</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-streamlining-your-youtube-vids-for-igtv-adoption-for-2024/"><u>[Updated] Streamlining Your YouTube Vids for IGTV Adoption for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/1-how-to-handle-liquid-found-in-iphone-charging-port-choices-explained-insights/"><u>1. 'How to Handle Liquid Found in iPhone Charging Port: Choices Explained - Insights '</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/st-travel-youtube-channels-you-may-want-to-follow/"><u>10 Best Travel Youtube Channels You May Want to Follow</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-downloading-samfw-frp-tool-30-for-oppo-reno-9a-by-drfone-android/"><u>In 2024, Downloading SamFw FRP Tool 3.0 for Oppo Reno 9A</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-my-apple-iphone-11-location-is-wrong-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Fix My Apple iPhone 11 Location Is Wrong | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-vintage-video-production-techniques-for-timelessness/"><u>In 2024, Vintage Video Production Techniques for Timelessness</u></a></li>
-<li><a href="https://program-issues.techidaily.com/maplestory-crashes-on-windows-11-find-solutions-with-our-2023-best-practices/"><u>MapleStory Crashes on Windows 11? Find Solutions with Our 2023 Best Practices</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/process-of-screen-sharing-honor-magic-6-to-pc-detailed-steps-drfone-by-drfone-android/"><u>Process of Screen Sharing Honor Magic 6 to PC- Detailed Steps | Dr.fone</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/screencasting-guide-what-is-and-how-to-for-2024/"><u>Screencasting Guide What Is and How To for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/95600551-new-in-2024-collect-premium-audio-for-video-editors/"><u>[New] In 2024, Collect Premium Audio for Video Editors</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-the-gamers-guide-to-boosting-pc-speed-controls-for-2024/"><u>[New] The Gamer's Guide to Boosting PC Speed Controls for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-blurred-lines-the-art-of-anonymizing-youtube-content/"><u>[Updated] 2024 Approved Blurred Lines The Art of Anonymizing YouTube Content</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-extracting-youtube-music-three-secure-ways-without-financial-burden/"><u>[Updated] 2024 Approved Extracting YouTube Music Three Secure Ways Without Financial Burden</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/el-artistry-in-a-click-10-prime-apps-for-banner-crafting/"><u>Channel Artistry in a Click 10 Prime Apps for Banner Crafting</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-change-lock-screen-wallpaper-on-samsung-galaxy-a14-5g-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Samsung Galaxy A14 5G</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-core-elements-in-narrative-technology/"><u>In 2024, Core Elements in Narrative Technology</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-vivo-v29e-location-by-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Vivo V29e Location by Number | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-practical-steps-for-disabling-youtube-channels-on-devices/"><u>In 2024, Practical Steps for Disabling YouTube Channels on Devices</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-visual-snips-tool/"><u>In 2024, Visual Snips Tool</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/securing-privacy-with-8-advanced-photographic-editors-for-2024/"><u>Securing Privacy with 8 Advanced Photographic Editors for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-savvy-making-ethical-choices-online/"><u>Social Media Savvy: Making Ethical Choices Online</u></a></li>
+<li><a href="https://discover-guides.techidaily.com/1726219841489-avi-mp4-movavi/"><u>무료 AVI-MP4 바이트 감소: 제공자 - Movavi</u></a></li>
 </ul></div>
 
