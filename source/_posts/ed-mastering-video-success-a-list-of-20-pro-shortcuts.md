@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Mastering Video Success  A List of 20 Pro Shortcuts\""
-date: 2025-01-18T17:36:34.963Z
-updated: 2025-01-19T17:55:37.135Z
+date: 2025-01-23T16:14:09.290Z
+updated: 2025-01-25T16:08:16.284Z
 tags:
   - ai video
   - ai youtube
@@ -38,7 +38,7 @@ With that said, the following two-columned tables give you detailed information 
 To make things convenient for you, the shortcut keys are placed under their corresponding categories, where each category is in the form of a two-columned table.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Category 1: YouTube Playback Hotkeys
@@ -49,10 +49,6 @@ While watching a YouTube video, there might be instances when you want to pause 
 | ----------------- | -------------------------------------- |
 | 'K'               | Play and Pause (Works as a toggle key) |
 | 'Spacebar'        | Play and Pause (Works as a toggle key) |
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Category 2: Scrolling YouTube Videos Back and Forth
 
@@ -94,10 +90,6 @@ This category talks about managing the video captions using the shortcut keys:
 | '-' (Minus Key)    | Reduce the font size of the captions (Minus key on the Numpad isn't supported)                                       |
 | '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Category 5: Managing the Audio Video
 
 This category shows the shortcut keys to manage audio for a YouTube video:
@@ -109,7 +101,7 @@ This category shows the shortcut keys to manage audio for a YouTube video:
 | '↓'               | Decrease volume by 5% |
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Category 6: Switching Between Screen Modes
@@ -138,6 +130,10 @@ In this category, the navigation and management of shortcut keys for 360o and Vi
 | '-' (Minus Key on Keyboard) | Decrease font size                                    |
 | '+' (Plus Key on Keyboard)  | Increase font size                                    |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Bonus: How to Get the YouTube Shortcut List with One-Click
 
 In this section, you will learn how to pull up the list of important YouTube shortcuts by pressing merely one key:
@@ -158,10 +154,14 @@ As one of the most popular video editing software among YouTubers, Filmora provi
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -185,20 +185,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-enhance-video-popularity-with-strategic-timestamps/"><u>[New] In 2024, Enhance Video Popularity with Strategic Timestamps</u></a></li>
-<li><a href="https://driver-error.techidaily.com/solved-error-code-45-in-device-manager/"><u>[SOLVED] Error Code 45 in Device Manager</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-blueprints-to-masterful-valorant-thumbnail-designs-on-social-platforms/"><u>[Updated] Blueprints to Masterful Valorant Thumbnail Designs on Social Platforms</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-engineering-endgame-echoes/"><u>[Updated] Engineering Endgame Echoes</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-expertly-crafted-video-making-software-iphone-android/"><u>[Updated] Expertly Crafted Video-Making Software (iPhone, Android)</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-transform-your-streaming-experience-via-youtubes-av1-feature/"><u>[Updated] In 2024, Transform Your Streaming Experience via YouTube's AV1 Feature</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-inside-look-at-optimizing-channels-in-youtube-studio/"><u>[Updated] Inside Look at Optimizing Channels in YouTube Studio</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-no-more-youtube-the-best-5-alternative-editors-await/"><u>2024 Approved No More Youtube? The Best 5 Alternative Editors Await</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/everything-you-need-to-know-about-lock-screen-settings-on-your-tecno-camon-20-by-drfone-android/"><u>Everything You Need to Know about Lock Screen Settings on your Tecno Camon 20</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-hidefake-snapchat-location-on-your-xiaomi-redmi-13c-drfone-by-drfone-virtual-android/"><u>How to Hide/Fake Snapchat Location on Your Xiaomi Redmi 13C | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-gionee-f3-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Gionee F3 Pro? | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-navigating-youtube-sharing-with-google-credentials/"><u>In 2024, Navigating YouTube Sharing with Google Credentials</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/in-2024-professional-capture-tools-for-pcmac-devices/"><u>In 2024, Professional Capture Tools for PC/Mac Devices</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/tips-on-recognizing-and-responding-to-fake-chatgpt-portals/"><u>Tips on Recognizing and Responding to Fake ChatGPT Portals</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/ultimate-guide-from-samsung-galaxy-a15-5g-frp-bypass-by-drfone-android/"><u>Ultimate Guide from Samsung Galaxy A15 5G FRP Bypass</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-streaming-with-flair-xbox-one-edition/"><u>[New] 2024 Approved Streaming with Flair Xbox One Edition</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-streamlining-your-verification-process-on-yt/"><u>[Updated] 2024 Approved Streamlining Your Verification Process on YT</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-understanding-the-importance-of-professional-images-as-thumbnails/"><u>[Updated] 2024 Approved Understanding the Importance of Professional Images as Thumbnails</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-a-step-by-step-approach-to-youtube-gold-music-reaction-magic/"><u>[Updated] A Step-by-Step Approach to YouTube Gold Music Reaction Magic</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-the-ultimate-guide-to-cinematography-on-youtube/"><u>[Updated] In 2024, The Ultimate Guide to Cinematography on YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-direct-youtube-file-access-tips/"><u>2024 Approved Direct YouTube File Access Tips</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-youtubing-green-magic-ideas-that-come-to-life/"><u>2024 Approved Youtubing Green Magic – Ideas That Come to Life</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/audio-assimilation-for-inshot-projects/"><u>Audio Assimilation for InShot Projects</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/avoiding-add-ons-for-disk-image-duality-on-pc/"><u>Avoiding Add-Ons for Disk Image Duality on PC</u></a></li>
+<li><a href="https://games-able.techidaily.com/how-to-join-a-minecraft-java-server-from-bedrock-using-geysermc/"><u>How to Join a Minecraft Java Server From Bedrock Using GeyserMC</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-reset-a-oppo-k11-5g-phone-that-is-locked-by-drfone-android/"><u>How to Reset a Oppo K11 5G Phone that is Locked?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/remove-frp-lock-on-ace-2-pro-by-drfone-android-unlock-remove-google-frp/"><u>Remove FRP Lock on Ace 2 Pro</u></a></li>
+<li><a href="https://win-comparisons.techidaily.com/top-no-cost-substitutes-for-mackeeper-effective-data-restoration-tools-for-both-mac-and-pc/"><u>Top No-Cost Substitutes for Mackeeper: Effective Data Restoration Tools for Both Mac & PC</u></a></li>
 </ul></div>
 

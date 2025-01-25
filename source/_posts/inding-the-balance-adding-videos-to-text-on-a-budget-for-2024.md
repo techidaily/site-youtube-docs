@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Finding the Balance  Adding Videos to Text on a Budget for 2024\""
-date: 2024-12-20T17:57:14.004Z
-updated: 2024-12-22T18:43:54.655Z
+date: 2025-01-18T16:09:30.200Z
+updated: 2025-01-25T16:27:31.481Z
 tags:
   - ai video
   - ai youtube
@@ -34,7 +34,7 @@ Luckily, video editing and presentation software products offer the tools you wi
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to Add Video to Text for Free with PowerPoint?
@@ -50,7 +50,7 @@ Head over to the Insert tab, select Rectangle from the Shapes menu, and create a
 ![Add video to text - Powerpoint- insert shape](https://images.wondershare.com/filmora/article-images/insert-rectangle-shape.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The next step you will have to take is to create the cut-out of the text within the rectangle. Select both the text and shape you placed in the background before clicking on the Format tab that is located near the end of PowerPoint’s ribbon.
@@ -64,7 +64,7 @@ Click on the Insert tab, and then choose the Video option from the Media menu. Y
 You can then fine-tune the video playback settings from the Playback tab. Preview the results before you move on to the next slide in your presentation, and make necessary adjustments if you don’t like how the video merged with the text.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Adding Video to Text in Filmora
@@ -73,21 +73,21 @@ Besides presentation software, you can also use video editing software products 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You should start by creating a new project in Filmora and importing the video you want to add to the text into the project. Click on the Titles tab, and choose the title that matches the visual style of your project.
 
 ![Add video to text - Filmora9](https://images.wondershare.com/filmora/article-images/add-title-effects.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Set the preferred duration of the title by dragging one of its ends to the left or right after you place it on the timeline, and then double-click on it to customize it. Click on the Advanced button once the Text tab opens and insert the text into the Input Text box.
 
 ![Add video to text - Filmora9 Advanced Editing](https://images.wondershare.com/filmora/article-images/make-text-video-advanced-text-edit.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Proceed to select a font and adjust the text size before deciding if you want to [animate the text](https://tools.techidaily.com/wondershare/filmora/download/). When done, you should export the title as a video file, and then import it back into your project.
 
@@ -128,22 +128,19 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-ultimate-list-templates-for-youtube-previews/"><u>[New] 2024 Approved Ultimate List Templates for YouTube Previews</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/rafting-the-next-big-thing-your-guide-to-youtubes-best-video-types/"><u>[New] Crafting the Next Big Thing Your Guide to YouTube's Best Video Types</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/aximizing-video-impact-on-youtube-top-video-formats-for-2024/"><u>[New] Maximizing Video Impact on YouTube – Top Video Formats for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-channel-size-independent-strategies-for-securing-sponsors/"><u>[Updated] 2024 Approved Channel-Size-Independent Strategies for Securing Sponsors</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-substitute-film-gems-for-fans-top-7-lists/"><u>[Updated] 2024 Approved Substitute Film Gems for Fans - Top 7 Lists</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-a-visual-hook-creating-captivating-youtube-thumbnails-to-drive-traffic/"><u>[Updated] A Visual Hook Creating Captivating YouTube Thumbnails to Drive Traffic</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-visual-ventures-a-guide-to-social-video-growth/"><u>[Updated] In 2024, Visual Ventures A Guide to Social Video Growth</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-spotify-how-to-halt-default-podcast-additions/"><u>2024 Approved Spotify How to Halt Default Podcast Additions</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/best-of-copilot-enabled-pcs-unveiled-at-ifa-2024-featuring-a-gaming-powerhouse-zdnet-insights/"><u>Best of Copilot-Enabled PCs Unveiled at IFA 2024, Featuring a Gaming Powerhouse - ZDNET Insights</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/how-to-create-a-successful-video-earnings-model-on-vimeo/"><u>How to Create a Successful Video Earnings Model on Vimeo</u></a></li>
-<li><a href="https://driver-error.techidaily.com/how-to-fix-nvidia-drivers-crashing-issues/"><u>How To Fix Nvidia Drivers Crashing Issues</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-creating-high-impact-yt-cover-images/"><u>In 2024, Creating High-Impact YT Cover Images</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-fixing-foneazy-mockgo-not-working-on-xiaomi-redmi-note-13-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Fixing Foneazy MockGo Not Working On Xiaomi Redmi Note 13 Pro+ 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-maximize-youtube-income-insights-and-techniques/"><u>In 2024, Maximize Youtube Income Insights and Techniques</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-unlinking-from-youtube-shorts-easy-and-permanent/"><u>In 2024, Unlinking From YouTube Shorts - Easy and Permanent</u></a></li>
-<li><a href="https://facebook.techidaily.com/secure-your-virtual-world-meta-or-facebook-for-quest-2/"><u>Secure Your Virtual World: Meta or Facebook for Quest 2?</u></a></li>
-<li><a href="https://common-error.techidaily.com/troubleshooting-guide-fixes-for-non-responsive-dell-bluetooth-keyboard/"><u>Troubleshooting Guide: Fixes for Non-Responsive Dell Bluetooth Keyboard</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-breaking-down-youtube-short-barriers/"><u>[New] 2024 Approved Breaking Down YouTube Short Barriers</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-uncovering-facebooks-fresh-favorites-our-picks-of-top-vids/"><u>[Updated] In 2024, Uncovering Facebook's Fresh Favorites Our Picks of Top Vids</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-top-10-must-watch-global-journey-vids-on-youtube/"><u>[Updated] Top 10 Must-Watch Global Journey Vids on YouTube</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-essential-6-apps-elevating-your-instagram-reels/"><u>2024 Approved Essential 6 Apps Elevating Your Instagram Reels</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-top-10-youtube-to-webm-converter-apps-reviewed-and-ranked/"><u>2024 Approved Top 10 YouTube to WebM Converter Apps Reviewed & Ranked</u></a></li>
+<li><a href="https://extra-information.techidaily.com/acquiring-fcp-for-zip-legal-strategies-explained-for-2024/"><u>Acquiring FCP for Zip Legal Strategies Explained for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/capture-screens-in-windows-8-4-methods-for-2024/"><u>Capture Screens in Windows 8 4 Methods for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/cing-user-experience-a-quick-how-to-for-youtube-cc-and-subtitles-for-2024/"><u>Enhancing User Experience A Quick How-To for YouTube CC & Subtitles for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/o-create-impactful-valorant-thumbnails-a-compreayers-guide-for-2024/"><u>How to Create Impactful Valorant Thumbnails A Compreayer's Guide for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-oppo-a18-phone-with-broken-screen-by-drfone-android/"><u>How to Unlock Oppo A18 Phone with Broken Screen</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-masterful-visuals-in-motion-an-insiders-guide-to-creating-impressive-thumbnails/"><u>In 2024, Masterful Visuals in Motion An Insider's Guide to Creating Impressive Thumbnails</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/insta-meets-tiktok-connectors-handbook/"><u>Insta Meets TikTok Connector's Handbook</u></a></li>
+<li><a href="https://fox-that.techidaily.com/steps-to-address-erroneous-website-tracking-by-ios-device-screen-time-monitor/"><u>Steps to Address Erroneous Website Tracking by iOS Device Screen Time Monitor</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/king-youtubes-encrypted-video-secrets/"><u>Unlocking YouTube's Encrypted Video Secrets</u></a></li>
 </ul></div>
 

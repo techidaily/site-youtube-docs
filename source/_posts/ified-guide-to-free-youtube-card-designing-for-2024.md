@@ -1,7 +1,7 @@
 ---
 title: "Simplified Guide to Free YouTube Card Designing for 2024"
-date: 2024-08-08T16:56:41.316Z
-updated: 2024-08-09T16:56:41.316Z
+date: 2025-01-20T16:04:50.263Z
+updated: 2025-01-25T16:05:27.759Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
 
 # How to Create YouTube Intros & End Cards - Free and Easy
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -44,8 +41,9 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
 [How To Make an End Card](#how-to)
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -72,10 +70,11 @@ This is another site with really professional looking intros for $5\. They only 
 
 You can create a simple intro card in **Filmora**.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
@@ -87,8 +86,9 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -122,12 +122,11 @@ Some creators will leave their end cards at that and play music overtop, but it 
 13. Repeat for any other thumbnails. For your subscribe button, change where it said ‘Video’ to ‘Subscribe’ and enter your channel URL.
 14. Click **Apply Changes**.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -135,14 +134,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -151,4 +147,26 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-expert-net-archives-downloading-personal-tones-for-2024/"><u>[New] Expert Net Archives Downloading Personal Tones for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/op-rated-hardware-review-essential-capture-cards-for-online-viewing-for-2024/"><u>[New] Top-Rated Hardware Review Essential Capture Cards for Online Viewing for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-zero-price-path-to-enhanced-youtube-video-analysis/"><u>[New] Zero-Price Path to Enhanced YouTube Video Analysis</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-dream-makers-the-online-marvel-experience/"><u>[Updated] 2024 Approved Dream Makers The Online Marvel Experience</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-statistical-sweep-illuminating-youtubes-data-diversity-2e17/"><u>[Updated] 2024 Approved Statistical Sweep! Illuminating YouTube's Data Diversity (2E17)</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-channel-milestone-hurdle-cross-the-10k-view-threshold-fast/"><u>[Updated] Channel Milestone Hurdle – Cross the 10K View Threshold Fast</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-detailed-guide-youtubes-end-screens-explained-for-2024/"><u>[Updated] Detailed Guide YouTube's End Screens Explained for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-decoding-the-mechanics-of-subscriber-tracking/"><u>[Updated] In 2024, Decoding the Mechanics of Subscriber Tracking</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-edu-topic-10-selective-learning-channels-online/"><u>2024 Approved Edu-Topic 10 Selective Learning Channels Online</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-visual-narrative-weaver/"><u>2024 Approved Visual Narrative Weaver</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/tial-steps-to-add-custom-imagery-in-youtube-videos/"><u>Essential Steps to Add Custom Imagery in YouTube Videos</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1722008208940-experience-advanced-hands-free-driving-assistance-mercedes-benzs-latest-chatgpt-voice-feature/"><u>Experience Advanced Hands-Free Driving Assistance: Mercedes-Benz's Latest ChatGPT Voice Feature</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/framefinder-top-picks-for-screen-capturing-for-2024/"><u>FrameFinder Top Picks for Screen Capturing for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-fix-iphone-12-mini-unavailable-issue-with-ease-by-drfone-ios/"><u>In 2024, How To Fix iPhone 12 mini Unavailable Issue With Ease</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-the-two-factor-authentication-from-iphone-12-pro-by-drfone-ios/"><u>In 2024, How To Remove the Two Factor Authentication From iPhone 12 Pro</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-chromecast-compatibility-hack-stream-any-video-format-with-ease/"><u>New 2024 Approved Chromecast Compatibility Hack Stream Any Video Format with Ease</u></a></li>
+<li><a href="https://fox-http.techidaily.com/premier-pros-pathway-to-perfect-sound-cutting-for-2024/"><u>Premier Pro's Pathway to Perfect Sound Cutting for 2024</u></a></li>
+<li><a href="https://techidaily.com/step-by-step-guide-removing-temp-files-on-windows-10-made-easy/"><u>Step-by-Step Guide: Removing Temp Files on Windows 10 Made Easy</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/standing-youtubes-privacy-options-for-viewers-for-2024/"><u>Understanding YouTube's Privacy Options for Viewers for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Elevate Video Performance  Following the Path of Stars\""
-date: 2025-01-15T17:25:27.613Z
-updated: 2025-01-19T16:57:47.525Z
+date: 2025-01-19T16:01:53.911Z
+updated: 2025-01-25T16:18:34.944Z
 tags:
   - ai video
   - ai youtube
@@ -35,6 +35,10 @@ When we watch the most popular YouTubers, the traits that make them successful a
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **1\. Be Authentic**
 
 People opt to watch vlogs because they want to see something real.
@@ -46,7 +50,7 @@ There will be an urge for you to mimic other vloggers, talking and acting the wa
 Don’t focus on your image, but instead focus on your voice. What makes you different? That is how you will build a proper reputation.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **2\. Tell A Story**
@@ -59,10 +63,6 @@ Once all the pieces of the story are captured — including your storytelling, b
 
 Take a look at this example from [Tiffany Alvord](https://www.youtube.com/user/TiffanyAlvord) and notice how there are jump cuts both to skip information that can be assumed by the audience and add the tension to the story she’s telling.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **3\. Surprise and Delight Your Audience**
 
 There is a saying that a great ending to a story is that it is [surprising, yet inevitable](https://www.huffingtonpost.com/david-kudler/writing-the-inevitable-bu%5Fb%5F1630419.html).
@@ -72,7 +72,7 @@ The ending needs to be justified even if there is a twist. Everything before tha
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **4\. Be Inviting**
@@ -82,6 +82,10 @@ A common trait of successful vloggers is that they are welcoming. They share the
 Unlike being invited to a party, there is no obligation when it comes to YouTube. Your viewers can continue to live vicariously through you or they may be inspired by your experience and dare to try it themselves.
 
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **5\. Compose the Shot**
 
@@ -115,10 +119,6 @@ Consider your audience: they are coming home from school or work, where there we
 
 Want to see a vlogger that is awesome at being expressive on camera? Check out [Emma Chamberlain](https://www.youtube.com/channel/UC78cxCAcp7JfQPgKxYdyGrg), if you haven’t already. Every word she says in her video is layered with emotion. We know exactly how she feels.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **8\. Stay Organized**
 
 The same way you should prepare before filming, it’s also important to be organized comes the editing phase. Editing is arguably the most time-consuming part of the vlogging process, so have a system for categorizing and finding your footages.
@@ -143,11 +143,11 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -170,20 +170,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-efficiently-log-your-overwatch-battles/"><u>[New] 2024 Approved Efficiently Log Your Overwatch Battles</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-unlocking-youtube-studios-power-for-professional-edits/"><u>[New] In 2024, Unlocking YouTube Studio's Power for Professional Edits</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/astering-video-content-for-youtube-success/"><u>[New] Mastering Video Content for YouTube Success</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-2024-approved-joke-jingles-top-online-ringtone-sources/"><u>[Updated] 2024 Approved Joke Jingles Top Online Ringtone Sources</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-premier-selection-of-windows-11s-high-quality-capture-software/"><u>[Updated] 2024 Approved Premier Selection of Windows 11'S High-Quality Capture Software</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-pro-selections-best-notebook-models-for-editing-professionals/"><u>[Updated] 2024 Approved Pro Selections Best Notebook Models for Editing Professionals</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-essential-techniques-for-designing-youtube-video-thumbnails-for-2024/"><u>[Updated] Essential Techniques for Designing YouTube Video Thumbnails for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-mastering-youtube-brand-partnerships-with-famebit-tools-for-2024/"><u>[Updated] Mastering YouTube Brand Partnerships with FameBit Tools for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-proven-picks-leading-capture-cards-for-enthusiast-streamers/"><u>2024 Approved Proven Picks Leading Capture Cards for Enthusiast Streamers</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/best-video-editing-tools-convert-dvr-files-to-avi-format-on-your-windows-pc/"><u>Best Video Editing Tools: Convert DVR Files to AVI Format on Your Windows PC</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/tial-imovie-techniques-to-upgrade-your-youtube-content/"><u>Essential iMovie Techniques to Upgrade Your YouTube Content</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-idea-to-execution-designing-dynamic-social-events-on-facebook/"><u>From Idea to Execution: Designing Dynamic Social Events on Facebook</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-samsung-galaxy-s23-drfone-by-drfone-virtual-android/"><u>In 2024, Apply These Techniques to Improve How to Detect Fake GPS Location On Samsung Galaxy S23 | Dr.fone</u></a></li>
-<li><a href="https://video-capture.techidaily.com/maximize-game-time-top-10-ps5-external-hddssd-for-2024/"><u>Maximize Game Time Top 10 PS5 External HDD/SSD for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/streamline-your-information-with-mematics-app/"><u>Streamline Your Information with Mematic's App</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-8-unique-workout-concepts-for-a-pulse-raising-video-channel/"><u>[New] 2024 Approved 8 Unique Workout Concepts for a Pulse-Raising Video Channel</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-magic-in-managing-photos-with-magix/"><u>[New] Magic in Managing Photos with MAGIX</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-professional-tips-for-enhancing-your-youtube-videos-with-captions/"><u>[Updated] In 2024, Professional Tips for Enhancing Your YouTube Videos with Captions</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-methodically-uncovering-hidden-video-wonders-on-youtube-for-2024/"><u>[Updated] Methodically Uncovering Hidden Video Wonders on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-professionalizing-your-youtube-income-with-universal-tech-tips/"><u>[Updated] Professionalizing Your YouTube Income with Universal Tech Tips</u></a></li>
+<li><a href="https://howto.techidaily.com/android-screen-stuck-general-honor-v-purse-partly-screen-unresponsive-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Screen Stuck General Honor V Purse Partly Screen Unresponsive | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/rical-insights-the-most-relevant-youtube-channels-for-learners-for-2024/"><u>Historical Insights - The Most Relevant YouTube Channels for Learners for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-from-buffer-to-broadcast-learn-how-to-convert-your-youtube-viewing-into-a-screenshot-for-free/"><u>In 2024, From Buffer to Broadcast Learn How to Convert Your YouTube Viewing Into a Screenshot for Free</u></a></li>
+<li><a href="https://win-answers.techidaily.com/in-depth-lenovo-legion-7i-16gb-ram-amd-ryzen-500-series-review-initial-thoughts-and-specs-unpacked/"><u>In-Depth Lenovo Legion 7I 16GB RAM, AMD Ryzen 500 Series Review: Initial Thoughts and Specs Unpacked.</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/leveraging-chatgpt-technology-for-easy-web-app-development/"><u>Leveraging ChatGPT Technology for Easy Web App Development</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/troubleshooting-iomap64sys-crashes-in-windows-systems/"><u>Troubleshooting IOMap64.sys Crashes in Windows Systems</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/unmasking-bingchatgpt-coin-schemes-strategies-to-identify-and-steer-clear-from-scams/"><u>Unmasking BingChatGPT Coin Schemes: Strategies to Identify and Steer Clear From Scams</u></a></li>
 </ul></div>
 

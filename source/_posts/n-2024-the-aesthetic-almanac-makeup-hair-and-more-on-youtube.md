@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, The Aesthetic Almanac  Makeup, Hair & More on YouTube\""
-date: 2025-01-18T18:19:28.819Z
-updated: 2025-01-19T17:08:57.513Z
+date: 2025-01-18T16:01:41.487Z
+updated: 2025-01-25T16:11:57.742Z
 tags:
   - ai video
   - ai youtube
@@ -47,7 +47,7 @@ We’ll walk you through deciding on a theme for your channel, setting up your e
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Best YouTube Video Editor- Wondershare Filmora
@@ -55,10 +55,6 @@ We’ll walk you through deciding on a theme for your channel, setting up your e
 Wondershare Filmora is specifically made keeping quality on priority and to make sure all the videos are edited well with the highest accuracy. You can trim, merge, crop, add background music, rotate videos as well as add motion elements, animated texts, overlays, and filters, etc. to your makeup video, and the video can also be uploaded to YouTube or burned to DVD directly.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Finding Your Niche in Beauty or Lifestyle**
 
@@ -108,6 +104,10 @@ Here are some common types of beauty and lifestyle videos:
 * Kid’s Makeup Challenge
 * No Mirror Makeup Challenge
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **How to Get Products to Review**
 
  You probably already know that a lot of the products popular beauty YouTubers review in their videos were sent to them for free. Brands want to get their products into the hands of creators who have ‘influence’ both in the hopes that their audiences will decide to buy them and as part of generating buzz – getting more people talking about their products so more people become interested.
@@ -128,10 +128,6 @@ Here are 4 tips for getting free products for review:
 4. Send an email with your pitch to the brand’s PR person. Your email should introduce yourself, describe your content, and talk about what type of audience you have (how many subscribers, where are they located, how old are they, etc. This information is all available in your Creator Studio analytics).  
 Make sure to link to your channel so they can verify what you say (do not hide your subscriber count).  
 Emphasize what value you could provide the brand with (i.e. ‘I’ve had a lot of success with videos on managing acne and I’m sure my subscribers would love to see a review of your cream’) and outline what kind of video you’d like to make (i.e. a five-minute review focusing on the product, or a short feature in a longer makeup tutorial).
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Simple Camera Setup for Beauty Vloggers**
 
@@ -158,10 +154,6 @@ You might want to experiment with sitting at different distances to see how the 
 
 ![tilt down your camera](https://images.wondershare.com/filmora/article-images/tilt-down-camera1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **_Step 3:_** Check your frame (this is easiest if your camera has a screen that flips out) to make sure there’s not too much empty space in your shot.
 
 **_Step 4:_** Adjust your camera’s focus so your picture is clear. You may need to set up a lamp, chair, or stuffed animal as a stand-in for yourself while you stand behind the camera adjusting the focus.
@@ -173,6 +165,10 @@ Turn off autofocus and adjust your focus manually by turning the focus ring on y
 An aperture of f/5.0 is good if you’re going to be moving around a lot, but if you’re not going to be moving much and want a blurry background you might want to go with f/2.8 or lower.
 
 ![set f stop](https://images.wondershare.com/filmora/article-images/set-f-stop2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 6:** Set your ISO (film speed). A lower ISO will give you a darker, but higher quality, image. A higher ISO will lower your quality and give you a brighter image.
 
@@ -237,7 +233,7 @@ This lightweight ring light is easy to transport, set up, and mount your phone o
 This light is dimmable, so you can turn it down if it’s too bright, and the Prismatic Light Stand will allow you to tilt your light to the perfect angle. This will be handy if you’re mounting your camera inside the ring but want to place it slightly above your face instead of having it look at you head on.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Build Your Own Diva Ring Light**
@@ -277,6 +273,10 @@ Before you start recording your makeup tutorial there are a few things you shoul
  4. **_Do a video test._** Before you start your video for real, start recording and shoot some test footage. Watch that back to make sure you like the look of your frame, your face is never blurry, and you’re happy with the overall look of things.
  5. **_Do an audio test._** If you’re going to be talking in your video instead of recording a voiceover after, do an audio test to make sure your audience will be able to hear you clearly.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **How to Make a Makeup Tutorial – Recording**
 
 Here are some things to keep in mind while you record your makeup tutorial:
@@ -285,10 +285,6 @@ Here are some things to keep in mind while you record your makeup tutorial:
 If you’re using autofocus, you can hold products up to the screen and wait for it to kick in. If you’re not using autofocus, just hold them up next to you for a moment. You can also shoot separate closeups of each product and cut them into your main tutorial video.
 2. **_Highlight small details._** Describe what you’re doing in a lot of detail and don’t gloss over anything. Assume the person watching your tutorial doesn’t know anything about putting on makeup.
 3. **_Take stills for your thumbnail._** Remember to take some still photos of your finished makeup to use in your YouTube thumbnail.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **How to Make a Makeup Tutorial – After Shooting**
 
@@ -305,6 +301,10 @@ Remember to include what type of video you made, i.e. ‘tutorial’, ‘review�
  Are you already making beauty videos? If so, let us know if you have any of your own tips!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -327,22 +327,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/nparalleled-selection-of-budget-stock-media-sites-for-2024/"><u>[New] Unparalleled Selection of Budget Stock Media Sites for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ogic-journey-discovering-top-online-practitioners/"><u>[New] Yogic Journey Discovering Top Online Practitioners</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-a-step-by-step-guide-for-creating-channel-trailers-that-convert-viewers-into-customers/"><u>[Updated] 2024 Approved A Step-by-Step Guide for Creating Channel Trailers that Convert Viewers Into Customers</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-discovering-your-youtube-unique-slot/"><u>[Updated] 2024 Approved Discovering Your YouTube Unique Slot</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-activate-or-deactivate-video-commenting-in-youtube/"><u>[Updated] How To Activate or Deactivate Video Commenting in YouTube</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-crafting-convincing-movie-markers/"><u>[Updated] In 2024, Crafting Convincing Movie Markers</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-unveiling-the-secrets-of-popularity-a-guide-to-15-best-opener-plans-for-2024/"><u>[Updated] Unveiling the Secrets of Popularity A Guide to 15 Best Opener Plans for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-a-stepwise-approach-to-successfully-posting-srt-files-in-new-media/"><u>2024 Approved A Stepwise Approach to Successfully Posting SRT Files in New Media</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-emotionally-enhanced-youtube-commentary/"><u>2024 Approved Emotionally-Enhanced YouTube Commentary</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-youtube-shortcuts-you-should-know/"><u>2024 Approved YouTube Shortcuts You Should Know</u></a></li>
-<li><a href="https://win-blog.techidaily.com/expert-tips-to-overcome-input-delay-in-valorant-on-your-pc-guide-updated/"><u>Expert Tips to Overcome Input Delay in Valorant on Your PC (Guide Updated )</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-detect-and-remove-spyware-on-infinix-hot-40-pro-drfone-by-drfone-virtual-android/"><u>How to Detect and Remove Spyware on Infinix Hot 40 Pro? | Dr.fone</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/install-the-most-recent-brother-hl-l2350dw-driver-with-simple-steps/"><u>Install the Most Recent Brother HL-L2350DW Driver with Simple Steps</u></a></li>
-<li><a href="https://win-blog.techidaily.com/overcoming-the-endless-launch-loop-effective-ways-to-unstick-your-roblox-game/"><u>Overcoming the Endless Launch Loop: Effective Ways to Unstick Your Roblox Game</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/top-10-memetic-artistry-codes/"><u>Top 10 Memetic Artistry Codes</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/plicated-youtube-success-compile-your-10-basic-yet-effective-projects/"><u>Uncomplicated YouTube Success Compile Your 10 Basic Yet Effective Projects</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/bes-celebrated-click-it-achievements/"><u>YouTube's Celebrated Click-It Achievements</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-unlock-the-power-of-referrals-how-to-build-effective-youtube-links/"><u>[New] In 2024, Unlock the Power of Referrals How to Build Effective YouTube Links</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ubscribers-on-a-shoestring-grow-your-channel-fast-for-2024/"><u>[New] Subscribers on a Shoestring Grow Your Channel Fast for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ailoring-thumbnail-lengths-for-youtube-audience-focus-for-2024/"><u>[New] Tailoring Thumbnail Lengths for YouTube Audience Focus for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/he-top-20-gags-and-laughter-on-youtube-for-downtime-delight/"><u>[New] The Top 20 Gags & Laughter on YouTube for Downtime Delight</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-streamlining-roblox-games-on-mac-for-recording/"><u>[Updated] 2024 Approved Streamlining Roblox Games on Mac for Recording</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-the-ultimate-setup-for-championship-streaming/"><u>[Updated] 2024 Approved The Ultimate Setup for Championship Streaming</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-the-ultimate-guide-undoing-your-yt-playback-sequence/"><u>[Updated] In 2024, The Ultimate Guide Undoing Your YT Playback Sequence</u></a></li>
+<li><a href="https://win-able.techidaily.com/enhancing-your-gameplay-experience-solving-fps-drops-and-stutters-in-naraka-bladepoint/"><u>Enhancing Your Gameplay Experience: Solving FPS Drops and Stutters in Naraka: Bladepoint</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-activate-and-use-life360-ghost-mode-on-xiaomi-redmi-12-5g-drfone-by-drfone-virtual-android/"><u>How To Activate and Use Life360 Ghost Mode On Xiaomi Redmi 12 5G | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-frp-from-samsung-galaxy-a54-5g-by-drfone-android/"><u>How to Bypass FRP from Samsung Galaxy A54 5G?</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-essential-thumbnail-strategies-for-amplifying-viewership-on-youtube/"><u>In 2024, Essential Thumbnail Strategies for Amplifying Viewership on YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-rethink-your-favorite-films-top-7-replacements/"><u>In 2024, Rethink Your Favorite Films - Top 7 Replacements</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-sizzling-shots-capturing-culinary-magic/"><u>In 2024, Sizzling Shots Capturing Culinary Magic</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-maximizing-your-m4a-experience-android-audio-file-handling-guide/"><u>New Maximizing Your M4A Experience Android Audio File Handling Guide</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/premium-tools-for-6-undetectable-viewings-for-2024/"><u>Premium Tools for 6 Undetectable Viewings for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/windows-10-screen-recording-tools-the-ultimate-selection-for-2024/"><u>Windows 10 Screen Recording Tools - The Ultimate Selection for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/winx-deluxe-video-editor-hd-transformar-ajustar-tamano-y-personalizar-videos-rapidamente-con-gpu-inteligente/"><u>WinX Deluxe Video Editor HD: Transformar, Ajustar Tamaño Y Personalizar Videos Rápidamente Con GPU Inteligente</u></a></li>
 </ul></div>
 

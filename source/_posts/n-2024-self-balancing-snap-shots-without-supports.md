@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Self-Balancing  Snap Shots Without Supports\""
-date: 2024-08-08T16:52:23.875Z
-updated: 2024-08-09T16:52:23.875Z
+date: 2025-01-23T16:10:40.031Z
+updated: 2025-01-25T16:07:50.478Z
 tags:
   - ai video
   - ai youtube
@@ -28,19 +28,21 @@ thumbnail: https://thmb.techidaily.com/37be59bd79492103146c553d037e355365677b206
 
 When you’re trying to grow a channel on YouTube it can feel like equipment is a barrier, but it shouldn’t be. If you can’t afford a high-end tripod, for example, there are loads of ways to get by without one.
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ### DIY Your Video with Wondershare Filmora
 
 Wondershare Filmora has the best video stabilization tool is your videos have a bad frame or were recorded in dim lights. If a video is shot in bad weather or unfriendly situation where you don’t have all the equipment required for a quality recording, Wondershare Filmora can help you in the background to edit your videos like a pro. And it has all the relevant tools like effects, transitions, background removal, overlays, and background music that could turn your normal video to a professional one.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Here are 3 of our favorite DIY tripods.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **DIY smartphone tripod using binder clips or hair clips**
 
@@ -54,22 +56,28 @@ Hold your phone in landscape mode (horizontally, so it’s long rather than tall
 
 Here it is with binder clips:
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **DIY adjustable tripod using books and a towel**
 
 You’ve probably heard a million times that you can stabilize your camera by sitting it down on any stable surface – on your desk, on a stack of books, up in a tree, etc. This is very true!
@@ -87,9 +95,6 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
-<!-- affiliate ads end -->
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -118,9 +123,6 @@ _**Step 2:**_ After all the legs are attached, wrap some more tape around all 3 
 
 _Note: make sure the bolt is a fit for your camera before you get too far into this process._
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -129,14 +131,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -145,4 +144,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/caling-youtube-influence-a-comprerancial-guide-to-creator-studios-potential-for-2024/"><u>[New] Scaling YouTube Influence A Comprerancial Guide to Creator Studio's Potential for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/tep-by-step-creation-of-gamers-channel-graphics-for-2024/"><u>[New] Step-By-Step Creation of Gamers' Channel Graphics for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/humbnail-tailoring-for-youtube-a-practical-guide-to-image-resizing-and-customization/"><u>[New] Thumbnail Tailoring for YouTube A Practical Guide to Image Resizing and Customization.</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-metaverse-giggles-galore-ingenious-ways-to-craft-memes/"><u>[Updated] 2024 Approved Metaverse Giggles Galore Ingenious Ways to Craft Memes</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-practical-ways-to-archive-online-discussions/"><u>[Updated] 2024 Approved Practical Ways to Archive Online Discussions</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-visual-virtuosity-expertly-adding-motion-blur-to-facial-images-via-picsart/"><u>[Updated] 2024 Approved Visual Virtuosity Expertly Adding Motion Blur to Facial Images via Picsart</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-youtube-banners-makers-10-online-tools-to-create-channel-art/"><u>[Updated] 2024 Approved YouTube Banners Makers 10 Online Tools to Create Channel Art</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-assessing-instagrams-limits-on-posted-videos-for-2024/"><u>[Updated] Assessing Instagram's Limits on Posted Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-engage-and-inspire-audiences-professional-level-tips-for-youtube-edits-for-2024/"><u>[Updated] Engage and Inspire Audiences Professional-Level Tips for YouTube Edits for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-reigning-supreme-top-techniques-for-innovative-youtube-end-screens/"><u>[Updated] In 2024, Reigning Supreme Top Techniques for Innovative YouTube End Screens</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/te-video-decks-smart-description-templates/"><u>Elevate Video Decks Smart Description Templates</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nto-the-game-starting-an-apple-powered-sports-network/"><u>Get Into the Game Starting an Apple-Powered Sports Network</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-depth-guide-to-streaming-and-recording-webcasts-professionally-for-2024/"><u>In-Depth Guide to Streaming and Recording Webcasts Professionally for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ating-through-youtubes-adsense-revenue-understanding-payments-per-thousand-views-for-2024/"><u>Navigating Through Youtube’s AdSense Revenue Understanding Payments per Thousand Views for 2024</u></a></li>
+<li><a href="https://driver-error.techidaily.com/step-by-step-fixes-to-address-bsod-error-0x0000007e-in-your-windows-7-pc/"><u>Step-by-Step Fixes to Address BSOD Error 0X0000007E in Your Windows 7 PC</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/top-9-fixes-for-the-recurring-freeze-frame-issue-in-ark-survival-ascended-on-pc/"><u>Top 9 Fixes for the Recurring Freeze-Frame Issue in ARK: Survival Ascended on PC!</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/transforming-productivity-a-detailed-look-at-hp-omnibook-xs-revolutionary-16-hour-endurance-powered-by-xpower-processor/"><u>Transforming Productivity: A Detailed Look at HP OmniBook X's Revolutionary 16-Hour Endurance Powered by XPower Processor</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Thrifty Approaches to YouTube Video Card Production"
-date: 2024-08-08T16:57:22.065Z
-updated: 2024-08-09T16:57:22.065Z
+date: 2025-01-20T16:06:46.878Z
+updated: 2025-01-25T16:04:32.408Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/200bad50912773155a76642b85b00bc52b52d7ab3
 
 # How to Create YouTube Intros & End Cards - Free and Easy
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -44,8 +41,9 @@ thumbnail: https://thmb.techidaily.com/200bad50912773155a76642b85b00bc52b52d7ab3
 [How To Make an End Card](#how-to)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -72,10 +70,11 @@ This is another site with really professional looking intros for $5\. They only 
 
 You can create a simple intro card in **Filmora**.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
@@ -87,8 +86,9 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -122,10 +122,11 @@ Some creators will leave their end cards at that and play music overtop, but it 
 13. Repeat for any other thumbnails. For your subscribe button, change where it said ‘Video’ to ‘Subscribe’ and enter your channel URL.
 14. Click **Apply Changes**.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -133,14 +134,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -149,4 +147,21 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/new-adapting-spotify-playlists-into-a-youtube-music-format/"><u>[New] Adapting Spotify Playlists Into a YouTube Music Format</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-amplify-videographic-excellence-choose-from-these-7-audios/"><u>[Updated] 2024 Approved Amplify Videographic Excellence - Choose From These 7 Audios</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-how-to-effortlessly-convert-youtube-videos-online/"><u>[Updated] 2024 Approved How to Effortlessly Convert YouTube Videos Online</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-easy-guide-to-entering-google-meet-on-devices/"><u>[Updated] Easy Guide to Entering Google Meet on Devices</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-navigating-the-basics-of-zoom-meeting-setup-for-2024/"><u>[Updated] Navigating the Basics of Zoom Meeting Setup for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-ace-your-content-game-on-instagram-with-these-6-powerful-apps/"><u>2024 Approved Ace Your Content Game on Instagram with These 6 Powerful Apps</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-how-to-preserve-your-favorite-tracks-from-youtube-safely-and-for-free/"><u>2024 Approved How to Preserve Your Favorite Tracks From YouTube Safely & for Free</u></a></li>
+<li><a href="https://solve-help.techidaily.com/easy-system-image-backup-creation-on-windows-server-2012-two-methods-demonstrated/"><u>Easy System Image Backup Creation on Windows Server 2012: Two Methods Demonstrated</u></a></li>
+<li><a href="https://discover-bits.techidaily.com/how-to-fix-graphics-card-unrecognized-error-in-windows-advice-from-expert-yl-software-team/"><u>How To Fix 'Graphics Card Unrecognized' Error in Windows, Advice From Expert YL Software Team</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/immediate-remedies-when-itunes-fails-to-show-iphones-apple-music-playlist/"><u>Immediate Remedies When iTunes Fails to Show iPhone's Apple Music Playlist</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-device-based-digital-recording-pcmac-plus-phone-edition/"><u>In 2024, Device-Based Digital Recording PC/Mac + Phone Edition</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/top-10-airplay-apps-in-realme-narzo-n53-for-streaming-drfone-by-drfone-android/"><u>Top 10 AirPlay Apps in Realme Narzo N53 for Streaming | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-video-ventures-selecting-an-mcn/"><u>Unified Video Ventures Selecting an MCN</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nary-composer-dual-elements-conjoined-for-2024/"><u>Visionary Composer Dual Elements Conjoined for 2024</u></a></li>
+</ul></div>
 

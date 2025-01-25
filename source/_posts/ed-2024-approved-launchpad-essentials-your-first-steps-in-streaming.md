@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Launchpad Essentials  Your First Steps in Streaming\""
-date: 2024-08-08T16:57:18.826Z
-updated: 2024-08-09T16:57:18.826Z
+date: 2025-01-18T16:01:40.475Z
+updated: 2025-01-25T16:02:38.343Z
 tags:
   - ai video
   - ai youtube
@@ -38,9 +38,6 @@ Here are examples of some of the best YouTube equipment. Watch for the 'Free Opt
 
 **Tripod:** A tripod is what most people think of when they think of stabilizing their cameras. Tripods come in different weights and sizes, and there are even tripods specifically for smartphones. There is a wide range of pricing for tripods. Mid-range is about $50.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
 ![youtube equipment](https://images.wondershare.com/filmora/article-images/youtube-equipment02.JPG)
 
 **Free Option! Any Available Surface:** Kitchen tables. Desks. Park benches. Trees. Your friend's shoulder, if you ask nicely. Anything you can rest your camera on top of can be used to record a steady video.
@@ -49,9 +46,6 @@ Here are examples of some of the best YouTube equipment. Watch for the 'Free Opt
 
 **Softbox Lights:** These are the kinds of lights that were probably used to take your school photos. They create soft, diffused, light and can be fairly affordable. The LimoStudio 700W Photography Softbox Lighting Kit is $167, and that is about the average.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![youtube equipment](https://images.wondershare.com/filmora/article-images/youtube-equipment03.jpg)
 
 **LED Panel Light:** LED panels produce high quality light. Prices vary. The Aputure Amaran AL-528S LED Video Light costs $358 (with stand). There are also LED panel lights which can be mounted onto your camera, like the Julius Studio NEW 160 LED 160 Dimmable Ultra High Power Panel Light which costs $111.
@@ -64,16 +58,10 @@ Here are examples of some of the best YouTube equipment. Watch for the 'Free Opt
 
 **Snoball:** A Blue Snoball USB mic is an extremely affordable option at $60, although it does not have good range. You have to stay close to your computer if you use a Snoball.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ![youtube equipment](https://images.wondershare.com/filmora/article-images/youtube-equipment05.JPG)
 
 **Shotgun:** You can get a shotgun mic to attach to your camera at a fairly decent price. The RØDE Video Shotgun Mic is only $140\. You will not be able to stray far from your camera as it works best when you are close to it.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![youtube equipment](https://images.wondershare.com/filmora/article-images/youtube-equipment06.JPG)
 
 **MP3 Recorder:** A very high quality voice recorder is one way to record great audio and still be able to move freely. The Roland R-05 WAVE/MP3 Recorder is a great choice at $200.
@@ -82,9 +70,6 @@ Here are examples of some of the best YouTube equipment. Watch for the 'Free Opt
 
  **LAV System:** A lavalier, or lapel, mic system is a lot of vloggers' favorite way to record dialogue because the mics are small and clip right on to your clothing. This is a more expensive option. The Sony LAV Wireless Mic System is $600.
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![youtube equipment](https://images.wondershare.com/filmora/article-images/youtube-equipment08.JPG)
 
  **Free Option! Audacity:**  Audacity is free audio recording/editing software that is popular with vloggers. If you do not have access to an external mic then you might be able to increase the quality of your sound recording using Audacity. You can download the latest version of Audacity for free from Audacityteam.org
@@ -99,9 +84,6 @@ Here are examples of some of the best YouTube equipment. Watch for the 'Free Opt
 
 **Free Option! [Filmora:](https://tools.techidaily.com/wondershare/filmora/download/)** Filmora's mobile app, Filmora, is available for free for a limited time for both Android and iPhone. It has a ton of features, and a really intuitive interface designed specifically for the mobile format.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -110,14 +92,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -126,4 +105,27 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-diy-dynamics-unlock-creative-animation-potential/"><u>[New] In 2024, DIY Dynamics Unlock Creative Animation Potential</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/outube-link-building-101-a-content-marketers-guide-for-2024/"><u>[New] YouTube Link-Building 101 A Content Marketer's Guide for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-deciphering-digital-dominance-a-detailed-examination-of-youtube-engagement-metrics/"><u>[Updated] 2024 Approved Deciphering Digital Dominance A Detailed Examination of YouTube Engagement Metrics</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-demystifying-srt-file-creation-post-export-in-premiere-for-2024/"><u>[Updated] Demystifying SRT File Creation Post-Export in Premiere for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-navigating-the-maze-of-igtv-video-downloads/"><u>[Updated] In 2024, Navigating the Maze of IGTV Video Downloads</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-integrating-youtube-effective-strategies-for-modern-teachers-for-2024/"><u>[Updated] Integrating YouTube Effective Strategies for Modern Teachers for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-lullaby-labyrinths-best-vocalists-for-sleep-aid/"><u>[Updated] Lullaby Labyrinths Best Vocalists For Sleep Aid</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/bright-ideas-effective-lighting-in-vlogging-for-2024/"><u>Bright Ideas Effective Lighting in Vlogging for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ifying-the-top-12-easiest-to-use-flip-screen-cams/"><u>Identifying the Top 12 Easiest to Use Flip Screen Cams</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-boost-video-velocity-top-android-helpers/"><u>In 2024, Boost Video Velocity - Top Android Helpers</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-boosting-connections-on-snapchat-master-the-art-of-sharing-gifs/"><u>In 2024, Boosting Connections on Snapchat Master the Art of Sharing GIFs</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-stable-shootings-top-brands-for-online-filmmaking/"><u>In 2024, Stable Shootings - Top Brands for Online Filmmaking</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/mastering-macs-preview-app-an-in-depth-tutorial-for-users/"><u>Mastering Mac's Preview App An In-Depth Tutorial for Users</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/izing-production-value-choosing-top-tier-youtube-tools/"><u>Maximizing Production Value Choosing Top-Tier YouTube Tools</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ing-light-on-videography-excellence/"><u>Shedding Light on Videography Excellence</u></a></li>
+<li><a href="https://some-tips.techidaily.com/six-key-agile-strategies-for-boosting-success-in-software-development-insights-from-zdnet/"><u>Six Key Agile Strategies for Boosting Success in Software Development - Insights From ZDNet</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

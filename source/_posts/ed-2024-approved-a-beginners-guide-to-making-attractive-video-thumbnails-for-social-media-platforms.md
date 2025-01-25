@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  A Beginner's Guide to Making Attractive Video Thumbnails for Social Media Platforms\""
-date: 2025-01-13T17:46:23.477Z
-updated: 2025-01-19T17:00:20.172Z
+date: 2025-01-18T16:12:15.919Z
+updated: 2025-01-25T16:17:20.508Z
 tags:
   - ai video
   - ai youtube
@@ -43,16 +43,16 @@ Here are 5 easy tips for creating thumbnails that get views.
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Edit Your Videos Before Creating Video Thumbnails
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. Have a Consistent Layout
@@ -63,15 +63,15 @@ An example of a standard layout could be you in the middle of the screen wearing
 
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **2\. Use Your Face**
 
 People feel automatically connected and drawn into images that make eye contact. This makes thumbnails which feature faces more click-able than thumbnails which don’t, in most genres (i.e. if you make food videos then this may not apply – featuring the food might be more important than featuring your face). [Check out more tips like this here](https://tools.techidaily.com/wondershare/filmora/download/).
 
 Also, if somebody recognizes you in your thumbnail from a previous video of yours, that will go a long way towards making them click.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 3\. Use Graphics/Emojis that are On Topic
 
@@ -79,15 +79,15 @@ Anybody can take a screenshot of themselves in their video and use it as a thumb
 
 Make sure the images you choose are relevant to the topic of your video.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. Make Your Text Huge
 
 If you use text in your thumbnail (you don’t have to) then it should be to add context. For example, if the main image is just you smiling then you might need some text to let viewers know the video is a makeup tutorial.
 
 Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 5\. Keep it Clutter-Free
 
@@ -102,7 +102,7 @@ Use these tips to make video thumbnails for YouTube, and tell us what kind of re
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -126,19 +126,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-direct-capture-screen-record-on-pcmac-plus-youtube-upload/"><u>[New] In 2024, Direct Capture Screen Record on PC/Mac + YouTube Upload</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-mastering-aiseesofts-capture-tech-screen-recording-basics/"><u>[New] In 2024, Mastering Aiseesoft's Capture Tech Screen Recording Basics</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-quick-ascent-to-youtube-affiliates-with-10k-vistas/"><u>[New] In 2024, Quick Ascent to YouTube Affiliates with 10K Vistas</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/astering-sound-clarity-for-youtube-audiences/"><u>[New] Mastering Sound Clarity for YouTube Audiences</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-unlinking-from-youtube-shorts-easy-and-permanent/"><u>[Updated] 2024 Approved Unlinking From YouTube Shorts - Easy and Permanent</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-ignite-imagination-crafting-engaging-content-for-channels-for-2024/"><u>[Updated] Ignite Imagination Crafting Engaging Content for Channels for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-journey-to-optimal-health-the-top-10-online-yoga-masters/"><u>[Updated] Journey to Optimal Health - The Top 10 Online Yoga Masters</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-leading-eight-safe-video-meeting-systems-for-smbs/"><u>[Updated] Leading Eight Safe Video Meeting Systems for SMBs</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-a-comprerans-guide-to-capturing-spectacular-slow-motion-on-hero-10/"><u>2024 Approved A Compreran's Guide to Capturing Spectacular Slow Motion on Hero 10</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/enhance-your-livestreams-discover-the-power-of-manycam-for-virtual-cameras/"><u>Enhance Your Livestreams: Discover the Power of ManyCam for Virtual Cameras!</u></a></li>
-<li><a href="https://fox-access.techidaily.com/in-2024-top-open-source-video-tools-for-every-desktop-environment/"><u>In 2024, Top Open Source Video Tools for Every Desktop Environment</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-unblock-your-youtube-experience-easy-solutions-for-chromefirefox/"><u>In 2024, Unblock Your YouTube Experience Easy Solutions for Chrome/Firefox</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/verkonvert-pcx-naar-gif-machtbaar-en-gratis-via-internet-de-expertise-van-movavi/"><u>Verkonvert PCX Naar GIF Machtbaar en Gratis via Internet - De Expertise Van Movavi</u></a></li>
-<li><a href="https://win-cheats.techidaily.com/1728463509153-windows-11usb/"><u>Windows 11に最適なデルのリカバリーUSB作り詳しい手引き</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-prime-8-transformative-lenses-for-virtual-conferencing/"><u>[Updated] 2024 Approved Prime 8 Transformative Lenses for Virtual Conferencing</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-decoding-youtubes-clandestine-content-with-orderliness-for-2024/"><u>[Updated] Decoding YouTube's Clandestine Content with Orderliness for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-cutting-edge-chapter-tactics-to-complement-your-youtube-presentations/"><u>[Updated] In 2024, Cutting-Edge Chapter Tactics to Complement Your YouTube Presentations</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-the-ultimate-guide-to-antique-themed-cinematography/"><u>[Updated] In 2024, The Ultimate Guide to Antique-Themed Cinematography</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-turn-youtube-clips-into-animated-gifs-step-by-step-guide/"><u>[Updated] In 2024, Turn Youtube Clips Into Animated GIFs Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-ultimate-ranking-the-leading-15-affordable-online-image-editors-for-2024/"><u>[Updated] Ultimate Ranking The Leading 15 Affordable Online Image Editors for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-leading-virtual-reality-enhancements-for-gamers/"><u>2024 Approved Leading Virtual Reality Enhancements for Gamers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-relentless-joy-in-9-full-length-holiday-spectacles-free-online/"><u>2024 Approved Relentless Joy in 9 Full-Length Holiday Spectacles, Free Online</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-ultimate-manual-the-art-of-digital-sound-note-taking/"><u>2024 Approved Ultimate Manual The Art of Digital Sound Note-Taking</u></a></li>
+<li><a href="https://some-tips.techidaily.com/boost-traffic-with-our-cookiebot-enabled-optimization-tools/"><u>Boost Traffic with Our Cookiebot-Enabled Optimization Tools!</u></a></li>
+<li><a href="https://discover-bytes.techidaily.com/complete-guide-how-to-remove-a-virtual-private-network-on-your-ipad/"><u>Complete Guide: How to Remove a Virtual Private Network on Your iPad</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/1723807999754-effortless-fixes-for-unstable-pc-icons-master-your-desktop-stability-today/"><u>Effortless Fixes for Unstable PC Icons - Master Your Desktop Stability Today!</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-vivo-y100-5g-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Vivo Y100 5G</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-master-visual-effects-discover-youtubes-green-screen-treasure/"><u>In 2024, Master Visual Effects Discover YouTube’s Green Screen Treasure</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/egic-media-mapping-charting-your-course-against-competitors-videos-for-2024/"><u>Strategic Media Mapping Charting Your Course Against Competitors' Videos for 2024</u></a></li>
 </ul></div>
 

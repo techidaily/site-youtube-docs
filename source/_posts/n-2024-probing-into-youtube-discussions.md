@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Probing Into YouTube Discussions"
-date: 2024-08-08T16:58:18.052Z
-updated: 2024-08-09T16:58:18.052Z
+date: 2025-01-24T16:05:57.605Z
+updated: 2025-01-25T16:03:15.974Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/8b86753cae048297a750321083f2087f1622c0cfc
 
 # How to Search Comments on YouTube Quickly?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -33,6 +30,10 @@ Are you trying to search for something on a document or a web page? You know how
 2. Managing and analyzing the vast number of comments can be difficult for as busy a platform as YouTube.
 
 So, if you want to search YouTube comments quickly, what can you do? We will show you in this blog.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: Using the Built-in YouTube Studio Feature to Search Comments
 
@@ -60,10 +61,11 @@ Besides the comment search feature, the YouTube Studio also has some in-built se
 
 **Response status:** Filter the comments to which you have responded or haven’t responded to.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![  YouTube Studio comment filter](https://images.wondershare.com/filmora/article-images/youtube-studio-comment-filter-search.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You can combine these additional filters to narrow your comments search for YouTube.
 
@@ -79,10 +81,6 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 
 ![ YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ## Part 3: Using Comments Search for YouTube Extension
 
 If you are looking for an easy method to search YouTube comments, you can use the Comments Search for YouTube extension. Google Chrome supports this extension that allows you to search comments on YouTube without leaving the website.
@@ -109,9 +107,6 @@ This mode allows you to enter special commands to carry out an advanced search. 
 2. ‘:all’ to see all comments
 3. ‘:creator’ to get comments made by the creator
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 4: How Do You Search Comments You Have Posted on YouTube?
 
 Did you post a comment on your favorite celebrity’s video? Do you think it may be embarrassing and want to delete it now but cannot find it now amidst so many comments? It is where you can make use of YouTube’s Comment History feature.
@@ -119,8 +114,9 @@ Did you post a comment on your favorite celebrity’s video? Do you think it may
 YouTube has now added this feature which you can see all the comments you ever posted on YouTube in one place.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to Use the Comment History feature to Search Comments?
 
 You can see all the comments you have posted in the Comment History in a few quick steps.
@@ -129,10 +125,11 @@ You can see all the comments you have posted in the Comment History in a few qui
 2. Once you sign in, click on the three horizontal lines at the top left corner of your YouTube page.
 3. Click on the History option and then you will find the option called Comments on the right side of your YouTube History page. Click on it to see all your YouTube comments.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
-<!-- affiliate ads end -->
 ![ YouTube History Comment](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 
@@ -159,20 +156,21 @@ Find feedback or questions. Report offensive comments. If you are a regular YouT
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -181,4 +179,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/est-hashtags-for-youtube-to-get-your-views-to-6-figures/"><u>[New] Best Hashtags for YouTube To Get Your Views to 6 Figures</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ringing-your-video-games-to-life-customizable-channel-headers-for-2024/"><u>[New] Bringing Your Video Games to Life Customizable Channel Headers for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-mastering-the-art-of-podcast-name-creation-and-50plus-dynamic-example-titles/"><u>[New] Mastering the Art of Podcast Name Creation & 50+ Dynamic Example Titles</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-elevating-your-content-6-steps-to-higher-youtube-visibility/"><u>[Updated] 2024 Approved Elevating Your Content 6 Steps to Higher YouTube Visibility</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-unleashing-creativity-how-to-convert-your-favorite-youtube-videos-to-gifs/"><u>[Updated] 2024 Approved Unleashing Creativity How to Convert Your Favorite Youtube Videos To Gifs</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-instant-aspect-ratio-tuning-for-youtube-on-mac/"><u>[Updated] In 2024, Instant Aspect Ratio Tuning for Youtube on Mac</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-save-money-save-time-the-best-22-audio-crackers-for-youtube-downloads/"><u>[Updated] In 2024, Save Money, Save Time The Best 22 Audio Crackers for YouTube Downloads</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-prime-propeller-picks-unveiling-top-5-motors-for-drones/"><u>[Updated] Prime Propeller Picks Unveiling Top 5 Motors for Drones</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/6-proven-ways-to-unlock-tecno-camon-30-pro-5g-phone-when-you-forget-the-password-by-drfone-android/"><u>6 Proven Ways to Unlock Tecno Camon 30 Pro 5G Phone When You Forget the Password</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/p-by-step-guide-to-youtube-image-branding-for-2024/"><u>A Step-by-Step Guide to YouTube Image Branding for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/comprehensive-guide-how-to-incorporate-text-annotations-in-instagram-posts/"><u>Comprehensive Guide: How to Incorporate Text Annotations in Instagram Posts</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/how-to-easily-download-instagram-reels-without-external-software/"><u>How to Easily Download Instagram Reels Without External Software</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-is-greyed-out-on-apple-iphone-se-how-to-bypass-by-drfone-ios/"><u>In 2024, Apple ID is Greyed Out On Apple iPhone SE How to Bypass?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-oppo-a58-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Oppo A58 4G | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/scent-of-jake-paul-in-online-video-fame/"><u>The Ascent of Jake Paul in Online Video Fame</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ey-to-connecting-your-youtube-channel-with-a-facebook-page/"><u>The Key to Connecting Your YouTube Channel with a Facebook Page</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/unveiling-dells-innovative-luna-concept-the-next-gen-modular-laptop-are-we-witnessing-a-revolutionary-shift-in-pc-design-zdnet/"><u>Unveiling Dell's Innovative Luna Concept: The Next Gen Modular Laptop - Are We Witnessing a Revolutionary Shift in PC Design? [ZDNet]</u></a></li>
+</ul></div>
 

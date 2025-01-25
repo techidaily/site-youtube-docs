@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Influencers' Utopia Summit"
-date: 2025-01-15T17:39:24.382Z
-updated: 2025-01-19T17:16:39.885Z
+date: 2025-01-23T16:11:59.700Z
+updated: 2025-01-25T16:13:49.083Z
 tags:
   - ai video
   - ai youtube
@@ -64,12 +64,16 @@ _Tess takes you to some of her favorite places in Dumbo._
 
 Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Post Cards
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. S’well bottle
@@ -83,13 +87,13 @@ To help them relax after long days at the summit, YouTube provided creators with
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _thinknoodles wearing his YouTube slippers._
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. Pins, pins, pins
@@ -102,10 +106,6 @@ A denim jacket with a play button on it was also in the box. The idea was that c
 
 _![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
 
 Most creators here on Filmora are still trying to grow their channels, but one day I hope you’ll be able to attend an event like the YouTube Creator Summit and tell us all about it!
@@ -117,7 +117,7 @@ Want to join the YouTube Creator Summit in the future? We all know that there is
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -141,17 +141,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-channel-profits-soar-the-secrets-to-successful-youtube-monetization/"><u>[New] In 2024, Channel Profits Soar The Secrets to Successful YouTube Monetization</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-prime-7-free-screen-recorders-for-old-computers/"><u>[New] In 2024, Prime 7 Free Screen Recorders for Old Computers</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/nveiling-the-quintessential-five-strategic-moves-for-youtube-marketing-success-for-2024/"><u>[New] Unveiling the Quintessential Five Strategic Moves for YouTube Marketing Success for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-origami-like-folded-havens-in-mc/"><u>[Updated] Origami-Like Folded Havens in MC</u></a></li>
-<li><a href="https://win-hacks.techidaily.com/1-effective-strategies-for-resolving-common-printer-problems-insights-from-yl-computing/"><u>1. Effective Strategies for Resolving Common Printer Problems - Insights From YL Computing</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-convenient-method-to-design-original-shorts-thumbnails/"><u>2024 Approved Convenient Method to Design Original Shorts Thumbnails</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-embrace-9-festive-feasts-watch-holiday-epics-at-zero-cost-online/"><u>2024 Approved Embrace 9 Festive Feasts Watch Holiday Epics at Zero Cost Online</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-mastering-multi-image-instagram-stories-a-step-by-step-tutorial/"><u>2024 Approved Mastering Multi-Image Instagram Stories A Step-by-Step Tutorial</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/led-look-into-youtubes-featured-community-dialogue/"><u>Detailed Look Into YouTube's Featured Community Dialogue</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/in-depth-amazon-fire-hd-8-gen-3-analysis-a-value-pick-for-budget-friendly-tablets/"><u>In-Depth Amazon Fire HD 8 Gen 3 Analysis - A Value Pick for Budget-Friendly Tablets</u></a></li>
-<li><a href="https://blog-min.techidaily.com/step-by-step-tutorial-on-converting-mp4-audio-files-to-midi-format-at-no-cost/"><u>Step-by-Step Tutorial on Converting MP4 Audio Files to MIDI Format at No Cost</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/updated-2024-approved-mp4-to-mp3-converter-the-ultimate-guide-to-audio-conversion/"><u>Updated 2024 Approved MP4 to MP3 Converter The Ultimate Guide to Audio Conversion</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/rafting-quality-videos-a-guide-to-apple-device-screen-recording-for-2024/"><u>[New] Crafting Quality Videos A Guide to Apple Device Screen Recording for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-grasping-the-greener-side-of-valheim-top-seeds-list-for-2024/"><u>[New] Grasping the Greener Side of Valheim Top Seeds List for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-double-down-on-youtube-visibility-2-quick-methods/"><u>[New] In 2024, Double Down on YouTube Visibility (2 Quick Methods)</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-speedy-workshop-converting-your-visuals-into-stellar-youtube-pics-for-2024/"><u>[Updated] Speedy Workshop Converting Your Visuals Into Stellar YouTube Pics for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-crafting-immersive-experiences-with-audio-in-canva/"><u>2024 Approved Crafting Immersive Experiences with Audio in Canva</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-rewind-the-recordings-streamlined-playlist-reversal/"><u>2024 Approved Rewind the Recordings Streamlined Playlist Reversal</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/3-solutions-to-find-your-apple-iphone-se-2020-current-location-of-a-mobile-number-drfone-by-drfone-virtual-ios/"><u>3 Solutions to Find Your Apple iPhone SE (2020) Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/expiry-date-for-my-mailcom-email-when-should-i-be-concerned/"><u>Expiry Date for My Mail.com Email – When Should I Be Concerned?</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/hide-and-stream-avoiding-the-spotlight-on-instagram-for-2024/"><u>Hide and Stream Avoiding the Spotlight on Instagram for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/mastering-error-code-117-in-livekernelevents-a-diy-repair-tutorial/"><u>Mastering Error Code 117 in LiveKernelEvents: A DIY Repair Tutorial</u></a></li>
 </ul></div>
 

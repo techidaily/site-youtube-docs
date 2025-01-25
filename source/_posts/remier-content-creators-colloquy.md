@@ -1,7 +1,7 @@
 ---
 title: "[New] Premier Content Creators Colloquy"
-date: 2024-08-08T16:53:49.734Z
-updated: 2024-08-09T16:53:49.734Z
+date: 2025-01-20T16:00:00.420Z
+updated: 2025-01-25T16:01:15.787Z
 tags:
   - ai video
   - ai youtube
@@ -41,9 +41,6 @@ _Lilly’s Creator Summit adventures._
 
 The Creator Summit is invite-only, and only 120 YouTubers attended including Grace Helbig, Lilly Singh, Matthew Santoro, Eva Gutowski, Jon Cozart, and Hannah Hart. We can really only imagine what went on based on what some YouTubers chose to share with us over social media. That’s how we know there were appearances from off-YouTube celebrities too, like Will Smith and Riz Ahmed.
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![YouTube Creator Summit Group Photo](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-2017.jpg)
 
 _Will Smith was one of the speakers at the summit. Turns out_ [_he’s a big fan of Lilly Singh_](https://www.youtube.com/watch?v=AGlcsogbAQY)_._
@@ -55,9 +52,9 @@ _Nick talks about arriving in New York and goes through the swag box waiting in 
 There were some clues as to what the rest of the summit was like hiding amongst the swag too. Here’s what was in the box:
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 1\. A map of Dumbo
 
 The hotel YouTube put the creators up in was in Dumbo, Brooklyn. ‘Dumbo’ is an acronym for Down Under the Manhattan Bridge Overpass. While it used to be primarily an industrial area, Dumbo is now the most expensive neighborhood in Brooklyn with many of the old industrial spaces now serving as luxury residential lofts. Dumbo is also a hub for tech startups.
@@ -65,6 +62,10 @@ The hotel YouTube put the creators up in was in Dumbo, Brooklyn. ‘Dumbo’ is 
 _Tess takes you to some of her favorite places in Dumbo._
 
 Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. Post Cards
 
@@ -75,8 +76,9 @@ One of the major benefits of attending this summit would have been networking wi
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
 
 <!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4\. Branded slippers
 
 To help them relax after long days at the summit, YouTube provided creators with YouTube-branded slippers. They look pretty comfy. Plus, now every time these YouTubers look down at their feet they’ll be reminded to go make some videos.
@@ -85,20 +87,18 @@ To help them relax after long days at the summit, YouTube provided creators with
 
 _thinknoodles wearing his YouTube slippers._
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ## 5\. Pins, pins, pins
 
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 6\. Denim jacket
 
 A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
-<!-- affiliate ads end -->
 _![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
 
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
@@ -110,8 +110,9 @@ Want to join the YouTube Creator Summit in the future? We all know that there is
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -120,14 +121,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -136,4 +134,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/hannel-transformation-via-musical-additions-for-2024/"><u>[New] Channel Transformation via Musical Additions for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-from-shared-laughter-to-your-storage-twitters-gif-guide-for-2024/"><u>[New] From Shared Laughter to Your Storage Twitter's GIF Guide for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-delving-into-popular-discussion-threads-on-youtube/"><u>[New] In 2024, Delving Into Popular Discussion Threads on YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/aximize-youtube-income-insights-and-techniques-for-2024/"><u>[New] Maximize Youtube Income Insights and Techniques for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/he-ultimate-handbook-for-optimal-youtube-banners-and-art-sizes/"><u>[New] The Ultimate Handbook for Optimal YouTube Banners & Art Sizes</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ltimate-watchlist-youtubes-greatest-hits-for-2024/"><u>[New] Ultimate Watchlist YouTube's Greatest Hits for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-cultivating-a-sustainable-advertising-ecosystem-famebits-strategies/"><u>[Updated] Cultivating a Sustainable Advertising Ecosystem FameBit’s Strategies</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-learn-to-add-youtube-videos-for-richer-google-slate-decks-for-2024/"><u>[Updated] Learn to Add YouTube Videos for Richer Google Slate Decks for 2024</u></a></li>
+<li><a href="https://win-forum.techidaily.com/comprehensive-guide-to-leading-social-media-giants-facebook-twitter-instagram-and-youtube/"><u>Comprehensive Guide to Leading Social Media Giants: Facebook, Twitter, Instagram and YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ce-editing-unlimited-free-audio-samples-for-2024/"><u>Enhance Editing Unlimited Free Audio Samples for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-stop-google-chrome-from-tracking-your-location-on-gionee-f3-pro-drfone-by-drfone-virtual-android/"><u>How to Stop Google Chrome from Tracking Your Location On Gionee F3 Pro? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Apple iPhone 8 | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-how-to-add-narration-and-voiceovers-to-your-video/"><u>In 2024, How to Add Narration and Voiceovers to Your Video</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-snapchat-to-subscribers-how-jake-crafted-youtube-magic/"><u>In 2024, Snapchat to Subscribers How Jake Crafted YouTube Magic</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/in-depth-analysis-of-computing-equipment-by-tomtech-expertise/"><u>In-Depth Analysis of Computing Equipment by TomTech Expertise</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209962705-9781734464641-so-how-do-i-know-this-is-real/"><u>So, How Do I Know This is Real? | Free Book</u></a></li>
+<li><a href="https://win-great.techidaily.com/solve-the-issue-of-black-myth-wukong-game-saving-glitch-on-pc-and-ps5/"><u>Solve the Issue of Black Myth Wukong Game Saving Glitch on PC and PS5</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/mlining-your-youtube-presence-with-best-video-formats/"><u>Streamlining Your YouTube Presence with Best Video Formats</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/top-6-aheads-ki-video-aufbugelpinsel-programme-fur-die-perfekte-bildqualitat/"><u>Top 6 AHEADS KI Video Aufbügelpinsel Programme Für Die Perfekte Bildqualität</u></a></li>
+</ul></div>
 

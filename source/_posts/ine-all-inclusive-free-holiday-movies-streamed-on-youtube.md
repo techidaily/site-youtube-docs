@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Nine All-Inclusive Free Holiday Movies Streamed on YouTube\""
-date: 2024-12-19T18:08:50.261Z
-updated: 2024-12-22T17:53:46.613Z
+date: 2025-01-23T16:09:23.269Z
+updated: 2025-01-25T16:03:20.068Z
 tags:
   - ai video
   - ai youtube
@@ -31,41 +31,41 @@ If you are looking for Christmas entertainment this season you may be quick to l
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1. The nutcracker 1990
 
 The Nutcracker is a holiday classic that many people seek out every year on the stage. This family ballet classic was filmed by the Pacific Northwest ballet in a huge and lavish version of the production in 1986\. This still stands as one of the best versions of the Nutcracker ever captured on film and you can watch it for free on YouTube. You can find the Nutcracker at :
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2. A smoky mountain Christmas
 
 A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and starring Lee Majors and Dolly Parton. The full musical fairy tale can be found online on YouTube and it's about a country singer who is trying to spend a quiet Christmas holiday at home. She suddenly becomes involved with a mysterious mountain man, an evil witch and is forced to protect seven orphans over the holidays. This film can be found at:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3. Ernest saves Christmas
 
 This film from 1989 features Jim Varney and his most famous character Ernest in a holiday Christmas movie that is an instant classic. This film is very funny and a favorite amongst some of the Ernest films for many. This Christmas movie from 1989 can be found at:
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 4. A Christmas story
 
 A Christmas story has long been one of the favorite Christmas movies for many families. In this film from 1983 we travel back in time to a traditional 1940s Christmas. In this film we follow the nine-year-old Ralphie who is looking for the famous red Ryder BB gun for Christmas and will stop at absolutely nothing to get it. A Christmas story can be found at:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 5. Richie Rich's Christmas wish
 
 In this film from 1998 we hear the story of the richest kid in the world on Christmas. In this film we see the richest in the world wishing that he had never been born with the wish coming true. Richie needs to find himself a new wishing machine and a way out of the parallel universe he gets stuck in to get back to his family. You can find this film at:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 6. On the second day of Christmas
 
@@ -76,7 +76,7 @@ This film stars the hulk Mark Ruffalo in one of his earlier roles as a store emp
 Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday classic Santa suffers a severe case of amnesia on Christmas Eve and needs to recover for Christmas day in order to make it through and deliver presents to all of the good children of the world. See if Santa gets his Christmas memories back by watching Santa Who here:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 8. A Christmas Carol
@@ -110,20 +110,15 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-the-basics-of-youtube-compliance-guidelines/"><u>[New] In 2024, The Basics of YouTube Compliance Guidelines</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-key-techniques-for-capturing-youtube-streaming-content-for-2024/"><u>[New] Key Techniques for Capturing YouTube Streaming Content for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ight-up-the-screen-techniques-for-stunning-youtube-visuals-for-2024/"><u>[New] Light Up the Screen Techniques for Stunning YouTube Visuals for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ocial-sites-showdown-youtubers-choice/"><u>[New] Social Sites Showdown YouTubers' Choice</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/hat-every-independent-youtuber-should-know-about-mcns/"><u>[New] What Every Independent YouTuber Should Know About MCNs</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-effective-engagement-incorporating-youtube-videos-into-slides/"><u>[Updated] 2024 Approved Effective Engagement Incorporating YouTube Videos Into Slides</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-from-sound-to-sight-choosing-between-audio-and-video-media/"><u>[Updated] From Sound to Sight Choosing Between Audio and Video Media</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-easy-way-to-edit-youtube-videos-in-imovie/"><u>[Updated] In 2024, Easy Way to Edit YouTube Videos in iMovie</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-smoothly-stitching-images-together/"><u>[Updated] Smoothly Stitching Images Together</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/augment-realities-mondly-redefining-language-learning/"><u>Augment Realities: Mondly Redefining Language Learning</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/focusing-on-the-best-our-countdown-of-camera-lenses-1-10/"><u>Focusing on the Best Our Countdown of Camera Lenses, #1-10</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/es-goldmine-a-simplified-three-step-blueprint-for-calculating-subscriber-earning-potential-for-2024/"><u>Google's Goldmine A Simplified Three-Step Blueprint for Calculating Subscriber Earning Potential for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-expert-picks-laptops-that-transform-raw-footage/"><u>In 2024, Expert Picks Laptops That Transform Raw Footage</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/infographic-premier-fifa-videos-popularity-spotlight/"><u>Infographic Premier FIFA Videos Popularity Spotlight</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/refreshing-windows-paperwork-handler/"><u>Refreshing Windows Paperwork Handler</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-yearly-insights-the-most-impactful-social-graphs/"><u>[New] Yearly Insights - The Most Impactful Social Graphs</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-how-to-convert-youtube-to-mp4-safely/"><u>[Updated] How to Convert YouTube to MP4 Safely?</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-navigating-through-youtubes-minis/"><u>[Updated] In 2024, Navigating Through YouTube's Minis</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-perfect-spectrum-balancer/"><u>[Updated] Perfect Spectrum Balancer</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-29-cost-free-youtube-sound-extractors-free-youtube-audio-downloads/"><u>2024 Approved 29 Cost-Free YouTube Sound Extractors Free YouTube Audio Downloads</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/best-ways-on-how-to-unlockbypassswiperemove-vivo-y78t-fingerprint-lock-by-drfone-android/"><u>Best Ways on How to Unlock/Bypass/Swipe/Remove Vivo Y78t Fingerprint Lock</u></a></li>
+<li><a href="https://win11.techidaily.com/clearing-up-headphone-connection-errors-in-windows/"><u>Clearing Up Headphone Connection Errors in Windows</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-android-app-not-installed-error-on-oppo-a1-5g-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android App Not Installed Error on Oppo A1 5G Quickly? | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-mastering-macs-green-screen-fix-for-youtube-videos/"><u>In 2024, Mastering Mac's Green Screen Fix for YouTube Videos</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/s-top-online-video-editing-platforms-for-chromebooks/"><u>S Top Online Video Editing Platforms for Chromebooks</u></a></li>
 </ul></div>
 

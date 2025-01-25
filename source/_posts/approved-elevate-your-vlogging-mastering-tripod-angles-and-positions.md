@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Elevate Your Vlogging  Mastering Tripod Angles and Positions\""
-date: 2024-08-08T16:51:48.376Z
-updated: 2024-08-09T16:51:48.376Z
+date: 2025-01-21T16:13:10.765Z
+updated: 2025-01-25T16:12:35.638Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/04b5de1b8632b8069ff9f587e17e0dbf1c9f260b0
 
 # How To Use a Tripod for Vlogging
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -31,9 +28,6 @@ thumbnail: https://thmb.techidaily.com/04b5de1b8632b8069ff9f587e17e0dbf1c9f260b0
 
  This article will explain how to use a tripod and then introduce you to four different types.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: How To Set a Tripod for Vlogging
 
 #### 1\. Setting Up Your Tripod
@@ -50,6 +44,10 @@ thumbnail: https://thmb.techidaily.com/04b5de1b8632b8069ff9f587e17e0dbf1c9f260b0
 
  Ball Heads and Pan/Tilt Heads are the two most common types of tripod heads. Ball Heads allow you to adjust your camera’s position quite a bit before you start shooting. They are not good for adding in camera movements while you are filming, however, because you need to lock them in place. Pan/Tilt heads are great for creating camera movement. Most Pan/Tilt heads have a handle which you can use to make a smooth panning motion.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Why Do You Need a Tripod: Benefits of Using Tripod
 
  Why can't you just hold a camera in your hand while shooting vlog entries for your YouTube channel? Honestly, you can, but the camera may shake a lot and your footage might end up being unusable. Putting a camera on a tripod reduces the probability of camera shake to the minimum and that is just the tip of the iceberg.
@@ -57,6 +55,10 @@ thumbnail: https://thmb.techidaily.com/04b5de1b8632b8069ff9f587e17e0dbf1c9f260b0
  A huge amount of vlogs can be described as sit down videos, in which the host of the video sits in front of a camera and talks to the audience. Holding a camera while talking or trying to present a product to the viewers is next to impossible, so in order to avoid having to deal with a camera, you can simply put it on a tripod, find the best angle, and push the record button.
 
  On the go videos, are recorded at exterior locations, and a lot of YouTubers choose to shoot these types of videos handheld, but this approach makes it difficult to maintain the same shot composition for long. A Monopod, Gorillapod or just a simple selfie stick can make your job much easier because they stabilize the camera. In addition, shooting smooth panning shots without a tripod is as difficult as it sounds.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: A Few Things You'll Need to Consider Before You Buy a Tripod
 
@@ -74,6 +76,10 @@ thumbnail: https://thmb.techidaily.com/04b5de1b8632b8069ff9f587e17e0dbf1c9f260b0
 
  **Mobility:** The heavier a tripod is, the more stability it can provide, but carrying a tripod that weighs over 10 pounds to shoot sports or adventure vlogs can be a tiring endeavor. Although portability is a factor, it shouldn't prevent you from buying a high-quality tripod that will ensure your footage is perfectly smooth and stable.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4: 4 Types of Tripods
 
 **Full-Sized Tripods:** are very sturdy, and as a result can be fairly heavy. Although you can take them a lot of places they are not convenient to carry for extended periods of time. They are the most reliable way to ensure you have absolutely no camera shake.
@@ -85,8 +91,9 @@ thumbnail: https://thmb.techidaily.com/04b5de1b8632b8069ff9f587e17e0dbf1c9f260b0
 **Table-Top Tripods:** are very small and easy to travel with. You can leave one in your camera bag or your glove box. Table-Top Tripods are meant to be set up on top of desks or other stable surfaces and may not be ideal for heavier cameras.
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 5: The 5 Best Tripods For YouTube Vlogging
 
  Even if you know everything there is to know about tripods, the selection process can be daunting. That's why we've shortlisted the top 5 tripods on the market, in an effort to make finding the right tripod for your vlog videos as quick an easy as it can possibly be. Let's have a look.
@@ -95,9 +102,6 @@ thumbnail: https://thmb.techidaily.com/04b5de1b8632b8069ff9f587e17e0dbf1c9f260b0
 
 **Price:** $24.99
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ![ YouTube Vlogger Tripod ](https://images.wondershare.com/filmora/article-images/camrah-smartphone-tripod.jpg)
 
  An increasing number of Smartphones features powerful cameras that can record videos at high resolutions. Unfortunately, most iPhones and Android devices are lightweight, which makes it difficult to hold them perfectly still while shooting a video. CamRah Smartphone Tripod offers a perfect solution to this problem because it is easy to pack and you can carry it wherever you go, without needing the extra space.
@@ -119,9 +123,6 @@ thumbnail: https://thmb.techidaily.com/04b5de1b8632b8069ff9f587e17e0dbf1c9f260b0
 
 **Price:** $34.99
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 ![ YouTube Vlogger Tripod ](https://images.wondershare.com/filmora/article-images/manfrotto-mini-tripod.jpg)
 
  Yet another great option for shooting vlogs with a Smartphone. The Manfrotto Mini Travel Tripod kit is also an excellent choice for all vloggers who shoot their videos with compact cameras. The tripod weighs just 0.51lbs and it is 5.31 inches tall, which makes it a perfect travel companion. However, it can't support cameras heavier than 2.2lbs, so you have to carefully choose the camera you want to put on this tripod.
@@ -198,10 +199,11 @@ thumbnail: https://thmb.techidaily.com/04b5de1b8632b8069ff9f587e17e0dbf1c9f260b0
 * Weighs 7.9lbs
 * Not the best choice for action and adventure vlogs
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -209,14 +211,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -225,4 +224,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-unleashing-full-potential-nikon-1j5-in-4k-videography/"><u>[New] 2024 Approved Unleashing Full Potential Nikon 1J5 in 4K Videography</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/vercoming-shadows-in-indoor-vlogging-environments-for-2024/"><u>[New] Overcoming Shadows in Indoor Vlogging Environments for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ids-for-cash-a-compreomed-analysis-of-monetization-plays/"><u>[New] Vids for Cash A Compreomed Analysis of Monetization Plays</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-navigating-vlogging-nuances-with-confidence-and-clarity/"><u>[Updated] 2024 Approved Navigating Vlogging Nuances with Confidence and Clarity</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-the-ins-and-outs-of-firefox-picture-in-picture/"><u>[Updated] 2024 Approved The Ins and Outs of Firefox Picture-in-Picture</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-decoding-the-youtube-view-number-for-profitability-for-2024/"><u>[Updated] Decoding the YouTube View Number for Profitability for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-seamless-integration-of-youtube-melodies-into-imovie/"><u>[Updated] Seamless Integration of YouTube Melodies Into iMovie</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-ultimate-list-the-best-vr-game-advancements/"><u>[Updated] Ultimate List The Best VR Game Advancements</u></a></li>
+<li><a href="https://driver-install.techidaily.com/enhanced-connectivity-with-hp-laserjet-and-windows-11-drivers/"><u>Enhanced Connectivity with HP Laserjet and Windows 11 Drivers</u></a></li>
+<li><a href="https://discover-excellent.techidaily.com/funf-effektive-losungen-zur-schnellen-behebung-des-fehlers-0xc19t0011-unter-windows-11/"><u>Fünf Effektive Lösungen Zur Schnellen Behebung Des Fehlers '0xC19t0011' Unter Windows 11</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-easy-access-luxury-free-access-to-your-dreamset-of-50-banners/"><u>In 2024, Easy-Access Luxury - Free Access to Your Dreamset of 50 Banners</u></a></li>
+<li><a href="https://fake-location.techidaily.com/methods-to-change-gps-location-on-samsung-galaxy-f04-drfone-by-drfone-virtual-android/"><u>Methods to Change GPS Location On Samsung Galaxy F04 | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/unveiling-intels-revolutionary-ai-chip-the-future-of-your-laptops-and-its-extraordinary-perks-zdnet/"><u>Unveiling Intels Revolutionary AI Chip: The Future of Your Laptops & Its Extraordinary Perks | ZDNET</u></a></li>
+</ul></div>
 
