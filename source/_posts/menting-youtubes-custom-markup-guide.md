@@ -1,7 +1,7 @@
 ---
 title: "Implementing YouTube's Custom Markup Guide"
-date: 2024-08-08T16:47:57.954Z
-updated: 2024-08-09T16:47:57.954Z
+date: 2025-02-04T10:42:02.177Z
+updated: 2025-02-06T19:51:15.464Z
 tags:
   - ai video
   - ai youtube
@@ -18,10 +18,6 @@ thumbnail: https://thmb.techidaily.com/a0a9154950aed42e7733b765877eaeb4a66b52b52
 
 # How to Use YouTube Cards and Annotations?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -102,14 +98,8 @@ Giving viewers more information and a thumbnail through a Card can help ensure t
 
 If you want to find a video editing solution that empowers your imagination and creativity yet takes less effort, please try this robust and user-friendly video editing software Filmora, which is equipped with its own footage stock **_[Wondershare Filmstock](https://www.filmstocks.com/?fs%5Fchannel=ws)_** and will definitely enhance your productivity and helps you to make money by making videos much easier.
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -118,14 +108,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -134,4 +121,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/-step-by-step-guide-to-youtube-stats-analysis-via-social-blade-platform-for-2024/"><u>[New] A Step-by-Step Guide to YouTube Stats Analysis via Social Blade Platform for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/arning-insights-average-adsense-earning-for-every-1000-youtube-views/"><u>[New] Earning Insights Average AdSense Earning for Every 1,000 YouTube Views</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-in-depth-training-on-googles-advanced-speech-to-text-feature/"><u>[New] In-Depth Training on Google's Advanced Speech to Text Feature</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/aximizing-video-visibility-on-youtube-through-lighting-for-2024/"><u>[New] Maximizing Video Visibility on YouTube Through Lighting for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-how-to-effortlessly-eradicate-unwanted-youtube-post-comments/"><u>[Updated] How to Effortlessly Eradicate Unwanted Youtube Post-Comments</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-how-to-make-your-youtube-animated-subscribe-button-easily-with-filmora/"><u>[Updated] How to Make Your YouTube Animated Subscribe Button Easily With Filmora</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-quick-start-to-clear-background-filming/"><u>[Updated] In 2024, Quick Start to Clear Background Filming</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-create-shareable-memes-with-adobe-photoshop/"><u>2024 Approved Create Shareable Memes with Adobe Photoshop</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/3-methods-to-mirror-infinix-hot-40-to-roku-drfone-by-drfone-android/"><u>3 Methods to Mirror Infinix Hot 40 to Roku | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/g-a-digital-clock-to-your-youtube-video-playback/"><u>Adding a Digital Clock to Your YouTube Video Playback</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/first-impressions-can-the-nokia-31-live-up-to-its-promise-as-a-starter-device/"><u>First Impressions: Can the Nokia 3.1 Live Up to Its Promise as a Starter Device?</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/free-online-archive-copyright-free-gaming-harmonies/"><u>Free Online Archive Copyright-Free Gaming Harmonies</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-wander-in-wealthy-web-words-worlds/"><u>In 2024, Wander in Wealthy Web Words Worlds</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/prioritizing-productivity-make-terminal-first/"><u>Prioritizing Productivity: Make Terminal First</u></a></li>
+<li><a href="https://games-able.techidaily.com/unveiling-virtual-dimensions-with-meta-quest-3/"><u>Unveiling Virtual Dimensions with Meta Quest 3</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

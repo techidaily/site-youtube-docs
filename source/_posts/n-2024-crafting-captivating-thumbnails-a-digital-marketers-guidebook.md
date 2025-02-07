@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Crafting Captivating Thumbnails  A Digital Marketer's Guidebook\""
-date: 2025-01-24T16:01:46.534Z
-updated: 2025-01-25T16:01:56.248Z
+date: 2025-02-05T01:22:08.111Z
+updated: 2025-02-07T05:29:26.773Z
 tags:
   - ai video
   - ai youtube
@@ -42,7 +42,7 @@ Viewers click on thumbnails that both standout and feel relevant to their search
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to Make a YouTube Thumbnail
@@ -52,6 +52,10 @@ In order to create a custom video thumbnail, you’ll need a program to put it t
 Here are some examples of popular thumbnail styles.
 
  ![Popular YouTube Thumbnail Layout](https://images.wondershare.com/filmora/article-images/popular-youtube-thumbnail-layout.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. The Classic Thumbnail (Photo or Screenshot)
 
@@ -109,10 +113,6 @@ In your thumbnail maker or a program like Photoshop, you’ll need to put your p
 
 If instead of an object you plan to fill the other side of your thumbnail with text, question marks, emojis, or some other graphic element then now is the time to add it.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: How to Upload a YouTube Thumbnail
 
 When you upload a new video to YouTube, you will see a **Custom thumbnail** option under **Video thumbnails** after your upload is complete.
@@ -129,6 +129,10 @@ Remember when you’re uploading custom thumbnails that you need to use a .JPG, 
 YouTube recommends that thumbnail images have a resolution of **1280x720px**, and you cannot upload an image with a width of less than 640 pixels.
 
 Make sure that all of your thumbnails adhere to YouTube’s Community guidelines. Anything sexually suggestive, violent, or otherwise graphic could result in your video being age-restricted.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: YouTube Thumbnail Makers
 
@@ -182,6 +186,10 @@ Type your video’s title or topic into the search engine on YouTube and look at
 
 Generally, if most of the thumbnails have the same layout, you’ll want to mimic that layout. Where you can break from the crowd is in the colors, fonts, and graphics you use.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 5: Animated YouTube Thumbnails
 
 Whether or not you upload a custom thumbnail to YouTube, YouTube’s A.I will choose what it thinks are the 3 juiciest seconds of your video (you cannot choose for yourself) and play them as a GIF-like animation when people mouseover your video thumbnails.
@@ -191,7 +199,7 @@ As of now, this only works in the Google Chrome desktop browser. Videos have to 
 Alright, now that you know everything about YouTube thumbnails, go make one! Tell us in the comments what you’re going to do to make your video thumbnails stand out.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Touch Up YouTube Videos with Effects & Elements in Filmora
@@ -200,15 +208,7 @@ As one of the most widely used video editing software in YouTube video editing, 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -231,20 +231,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-comparing-instagrams-latest-features-reels-vs-stories/"><u>[New] Comparing Instagram's Latest Features Reels Vs Stories</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-capture-clash-challenge-obs-meets-shadowgl/"><u>[New] In 2024, Capture Clash Challenge OBS Meets ShadowGL</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-ryans-wealth-wonders-a-kids-fortune-in-the-streaming-space/"><u>[Updated] 2024 Approved Ryan’s Wealth Wonders A Kid's Fortune in the Streaming Space</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-transform-your-games-into-a-live-stream-spectacle/"><u>[Updated] 2024 Approved Transform Your Games Into a Live Stream Spectacle</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-plug-free-pleasure-the-ultimate-guide-to-exquisite-offline-ios-gaming-for-2024/"><u>[Updated] Plug-Free Pleasure The Ultimate Guide to Exquisite Offline iOS Gaming for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-top-3ips-precision-audio-capture-solutions-for-2024/"><u>[Updated] Top 3iP's Precision Audio Capture Solutions for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/2024-approved-swiftly-resolve-freeze-and-crash-issues-with-tiktok-androidios/"><u>2024 Approved Swiftly Resolve Freeze and Crash Issues with TikTok (Android/iOS)</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/5-methods-to-verify-gpts-service-status/"><u>5 Methods to Verify GPT's Service Status</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/1721266465810-advanced-recovery-tech-for-apple-phones-claim-your-tool-today/"><u>Advanced Recovery Tech for Apple Phones - Claim Your Tool Today</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ing-captivating-visuals-with-diy-filming-methods-for-2024/"><u>Creating Captivating Visuals with DIY Filming Methods for 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/1723808145372-fixes-for-your-computer-starting-without-showing-anythe-on-monitor/"><u>Fixes for Your Computer Starting Without Showing Anythe on Monitor.</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-foundational-approach-to-gradual-volume-adjustment/"><u>In 2024, Foundational Approach to Gradual Volume Adjustment</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-no-expenses-the-ultimate-guide-to-16-top-tier-youtube-rippers-for-audios/"><u>In 2024, No Expenses The Ultimate Guide to 16 Top-Tier YouTube Rippers for Audios</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/the-hours-off-custom-youtube-shorts-image-creation/"><u>Trim The Hours Off Custom YouTube Shorts Image Creation</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/king-a-world-of-talent-with-the-top-10-low-cost-youtube-creators-for-2024/"><u>Unlocking a World of Talent with the Top 10 Low-Cost YouTube Creators for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-a-step-by-step-guide-for-earning-with-youtube-shorts/"><u>[New] 2024 Approved A Step-by-Step Guide for Earning with YouTube Shorts</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-conquer-your-screen-top-10-simple-youtube-projects-for-all-creators/"><u>[New] 2024 Approved Conquer Your Screen Top 10 Simple YouTube Projects for All Creators</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-from-device-footage-to-youtube-shorts-your-streamlined-approach/"><u>[New] 2024 Approved From Device Footage to YouTube Shorts - Your Streamlined Approach</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-how-to-prevent-thumbnail-absence-in-shorts-uploads/"><u>[New] 2024 Approved How to Prevent Thumbnail Absence in Shorts Uploads</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-star-clusters-in-social-media-landscape/"><u>[New] 2024 Approved Star Clusters in Social Media Landscape</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/-tips-to-get-more-views-with-youtube-optimization-free-checklist-for-2024/"><u>[New] 5 Tips to Get More Views with YouTube Optimization [Free Checklist] for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-broadcast-like-a-ghost-anonymous-instagram-strategies-for-2024/"><u>[New] Broadcast Like a Ghost Anonymous Instagram Strategies for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-pivoting-to-passive-income-the-youtube-expedition-without-ads/"><u>[New] In 2024, Pivoting to Passive Income The YouTube Expedition Without Ads</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unlocking-secrets-for-superior-asmr-viewing/"><u>[New] Unlocking Secrets for Superior ASMR Viewing</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-best-offline-android-games-dive-into-the-fun-without-a-network/"><u>[Updated] Best Offline Android Games - Dive Into the Fun Without a Network</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-discover-the-triple-champion-phones-for-high-res-video/"><u>2024 Approved Discover the Triple Champion Phones for High-Res Video</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/easy-tutorial-on-quickly-upgrading-to-the-latest-surface-dock-driver/"><u>Easy Tutorial on Quickly Upgrading to the Latest Surface Dock Driver</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/-cuts-big-impact-top-editors-for-youtube-short-videos-on-mobile-for-2024/"><u>Short Cuts, Big Impact Top Editors for YouTube Short Videos on Mobile for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/0-funniest-youtube-shorts-video-ideas/"><u>The 10 Funniest YouTube Shorts Video Ideas</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-premier-8-video-transformers-for-your-mac-and-phone/"><u>The Premier 8 Video Transformers for Your Mac & Phone</u></a></li>
+<li><a href="https://games-able.techidaily.com/workstation-vs-gaming-pc-whats-the-difference/"><u>Workstation Vs. Gaming PC: What’s the Difference?</u></a></li>
+<li><a href="https://article-helps.techidaily.com/xsplit-collection-direct-download-guide-and-review/"><u>XSplit Collection Direct Download Guide & Review</u></a></li>
 </ul></div>
 

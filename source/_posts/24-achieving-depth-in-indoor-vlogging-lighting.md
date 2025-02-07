@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Achieving Depth in Indoor Vlogging Lighting"
-date: 2024-07-29T16:42:00.279Z
-updated: 2024-07-30T16:42:00.279Z
+date: 2025-02-03T05:13:51.979Z
+updated: 2025-02-07T08:02:06.132Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/abdb55c9eafa10fcd1e5b6b8bcacd5ae781a152c8
 
 # Lighting Tips for Vlogging: How to Light
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -31,13 +28,17 @@ One of the best things you can do for your video quality is to ensure you have g
 
 Going outside and using natural light is the cheapest way to get a lot of light for your videos. If your vlog is not suited to the great outdoors then you need to get more strategic. You can turn on all the lights in your living room and still end up with a dark, grainy, video.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Video Lighting Basics: Three Point Lighting
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
-<!-- affiliate ads end -->
 ![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
@@ -52,13 +53,11 @@ The **fill light** is less bright than the primary source of light and it is pla
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Watch Video! Top Lighting Tips for Vlogging
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Lightning Tips for Aspiring YouTube Videographers
 
 Becoming the master of light will take some time and practice, so it is crucial to remain curious and anxious to learn new tricks throughout that process if you want to continually become better. These tips will help you make the first steps on that journey.
@@ -83,10 +82,11 @@ This is by far the best option if you want to be in complete control of the ligh
 
 Sets of reflectors are often under $50, so they are fairly affordable. However, some vloggers choose to forgo purchasing reflectors and make their own out of tinfoil.
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
 
@@ -94,13 +94,14 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
 
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -109,14 +110,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -125,4 +123,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-how-to-record-video-calls-on-facebook-4-methods/"><u>[New] 2024 Approved How to Record Video Calls on Facebook [4 Methods]</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-laughters-playground-top-15-youtube-hits-for-fun/"><u>[New] 2024 Approved Laughter's Playground Top 15 YouTube Hits for Fun</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/rafted-by-professionals-best-free-mobile-editors-for-android-for-2024/"><u>[New] Crafted by Professionals Best Free Mobile Editors for Android for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-megadron-mastery-industrys-top-heavy-loaders/"><u>[New] Megadron Mastery Industry's Top Heavy Loaders</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-the-vloggers-guide-to-choosing-camgear-the-top-9-innovations/"><u>[Updated] 2024 Approved The Vlogger's Guide To Choosing CamGear - The Top 9 Innovations</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-exploring-earning-potential-an-uncomplicated-triad-technique-for-youtube-profit-analysis-for-2024/"><u>[Updated] Exploring Earning Potential An Uncomplicated Triad Technique for YouTube Profit Analysis for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-gateways-to-googles-advertising-on-youtube-platforms/"><u>[Updated] In 2024, Gateways to Google's Advertising on YouTube Platforms</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-tastemakers-playbook-recipes-for-attractive-channel-names/"><u>[Updated] In 2024, Tastemakers' Playbook Recipes for Attractive Channel Names</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-navigating-youtube-markets-the-quest-for-a-targeted-niche/"><u>[Updated] Navigating YouTube Markets The Quest for a Targeted Niche</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-from-filer-to-fanfare-transmitting-videos-across-services/"><u>2024 Approved From Filer to Fanfare Transmitting Videos Across Services</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-the-learners-guide-to-best-rated-history-yt-channels-1-10/"><u>2024 Approved The Learner's Guide to Best-Rated History YT Channels #1-10</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/choosing-between-the-macbook-pro-and-macbook-air-a-comprehensive-guide-on-selecting-your-ideal-apple-laptop-techradar/"><u>Choosing Between the MacBook Pro and MacBook Air: A Comprehensive Guide on Selecting Your Ideal Apple Laptop | TechRadar</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/getting-your-nvme-drive-up-and-running-in-windows-environments/"><u>Getting Your NVMe Drive Up and Running in Windows Environments</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/guide-to-restoring-receiving-capabilities-for-texts-on-android-devices/"><u>Guide to Restoring Receiving Capabilities for Texts on Android Devices</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/o-fix-youtube-shorts-thumbnail-not-showing-problem-for-2024/"><u>How to Fix YouTube Shorts Thumbnail Not Showing Problem for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-fix-when-apple-account-locked-on-apple-iphone-11-pro-max-by-drfone-ios/"><u>In 2024, How to Fix when Apple Account Locked On Apple iPhone 11 Pro Max?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-honor-play-40c-drfone-by-drfone-virtual-android/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Honor Play 40C? | Dr.fone</u></a></li>
+<li><a href="https://win-cloud.techidaily.com/revamp-your-dj-online-presence-expert-advice-on-masterful-seo-techniques-for-pcdj-enthusiasts/"><u>Revamp Your DJ Online Presence: Expert Advice on Masterful SEO Techniques for PCDJ Enthusiasts</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/saving-instagram-content-easy-no-frill-methods-exposed/"><u>Saving Instagram Content Easy, No-Frill Methods Exposed</u></a></li>
+</ul></div>
 

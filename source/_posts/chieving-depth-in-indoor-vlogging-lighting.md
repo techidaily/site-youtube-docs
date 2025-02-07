@@ -1,7 +1,7 @@
 ---
 title: "[New] Achieving Depth in Indoor Vlogging Lighting"
-date: 2025-01-24T16:12:40.058Z
-updated: 2025-01-25T16:13:28.011Z
+date: 2025-01-31T23:07:53.395Z
+updated: 2025-02-07T05:39:29.860Z
 tags:
   - ai video
   - ai youtube
@@ -34,16 +34,12 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Video Lighting Basics: Three Point Lighting
 
 ![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
@@ -60,7 +56,7 @@ The final step to creating three point lighting is to set up another light behin
 ### Watch Video! Top Lighting Tips for Vlogging
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
@@ -90,7 +86,7 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
@@ -99,6 +95,10 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
 
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
@@ -106,7 +106,7 @@ If you are stuck shooting in **low light conditions** it is best to use a lens w
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -130,19 +130,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-pro-gamers-manual-learn-xbox-one-screen-recording/"><u>[New] 2024 Approved Pro Gamer's Manual Learn Xbox One Screen Recording</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/augh-lines-best-comedy-video-concepts-for-the-social-media-sphere/"><u>[New] Laugh Lines Best Comedy Video Concepts for the Social Media Sphere</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-whatsapp-integration-for-facebook-video-posts/"><u>[Updated] 2024 Approved WhatsApp Integration for Facebook Video Posts</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-conquer-youtubes-copy-paste-loop-mastery-essentials/"><u>[Updated] In 2024, Conquer YouTube's Copy-Paste Loop Mastery Essentials</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-creating-engaging-and-memorable-youtube-channel-graphics/"><u>2024 Approved Creating Engaging and Memorable YouTube Channel Graphics</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-streamlined-steps-capturing-your-dell-screen-in-a-minute/"><u>2024 Approved Streamlined Steps Capturing Your Dell Screen in a Minute</u></a></li>
-<li><a href="https://win-blog.techidaily.com/dying-light-2-on-pc-solving-the-common-lag-and-frame-rate-problems/"><u>Dying Light 2 on PC: Solving the Common Lag and Frame Rate Problems</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-do-i-sim-unlock-my-apple-iphone-7-plus-by-drfone-ios/"><u>How Do I SIM Unlock My Apple iPhone 7 Plus?</u></a></li>
-<li><a href="https://win-blog.techidaily.com/how-to-stop-metro-exodus-enhanced-edition-from-crashing-on-your-computer/"><u>How to Stop Metro Exodus: Enhanced Edition From Crashing on Your Computer</u></a></li>
-<li><a href="https://fox-access.techidaily.com/in-2024-top-3-strategies-converting-pinner-visuals-to-audio/"><u>In 2024, Top 3 Strategies Converting Pinner Visuals to Audio</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-transforming-views-uncover-the-best-video-hacks-for-success/"><u>In 2024, Transforming Views Uncover the Best Video Hacks for Success</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-unveiling-the-must-have-gear-for-new-youtubers/"><u>In 2024, Unveiling the Must-Have Gear for New YouTubers</u></a></li>
-<li><a href="https://network-issues.techidaily.com/reviving-atheros-wi-fi-on-win11-via-qualcomm-updates/"><u>Reviving Atheros Wi-Fi on Win11 via Qualcomm Updates</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/top-7-icloud-activation-bypass-tools-for-your-iphone-13-pro-by-drfone-ios/"><u>Top 7 iCloud Activation Bypass Tools For your iPhone 13 Pro</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ecoming-a-youtube-star-utilizing-the-power-of-featured-channels-for-2024/"><u>[New] Becoming a Youtube Star Utilizing the Power of Featured Channels for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/oost-youtube-video-performance-with-rapid-rendering-methods/"><u>[New] Boost YouTube Video Performance with Rapid Rendering Methods</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ontent-spotlight-platform-perks-compared/"><u>[New] Content Spotlight Platform Perks Compared</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-digital-content-arena-competing-titans-vimeo-youtube-dailymotion/"><u>2024 Approved Digital Content Arena Competing Titans - Vimeo, YouTube, DailyMotion</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-poco-x6-pro-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Poco X6 Pro | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/how-to-eliminate-frame-drops-and-visual-hitches-in-warzone/"><u>How to Eliminate Frame Drops and Visual Hitches in Warzone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/immersive-brain-teasers-for-apple-devices-akin-to-the-room-and-myst/"><u>Immersive Brain-Teasers for Apple Devices Akin to 'The Room' And 'Myst'</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-6-figure-views-prime-hashtag-strategies-for-success/"><u>In 2024, 6-Figure Views Prime Hashtag Strategies for Success</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-did-your-iphone-11-pro-max-passcode-change-itself-unlock-it-now-drfone-by-drfone-ios/"><u>In 2024, Did Your iPhone 11 Pro Max Passcode Change Itself? Unlock It Now | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Apple iPhone 11 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/mline-your-video-watching-experience-with-easy-timestamp-addition/"><u>Streamline Your Video Watching Experience with Easy Timestamp Addition</u></a></li>
+<li><a href="https://win-blog.techidaily.com/wsappx-overview-identifying-the-reasons-behind-heavy-system-resource-usage-and-remedies/"><u>WSAPPX Overview – Identifying the Reasons Behind Heavy System Resource Usage & Remedies</u></a></li>
 </ul></div>
 

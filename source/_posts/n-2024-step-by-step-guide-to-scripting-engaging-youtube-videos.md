@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Step-by-Step Guide to Scripting Engaging YouTube Videos\""
-date: 2024-08-08T16:50:38.794Z
-updated: 2024-08-09T16:50:38.794Z
+date: 2025-02-04T00:43:35.301Z
+updated: 2025-02-06T22:18:40.855Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/450ec1b84e72a24dc748a4aee1ff3d014e9229d42
 
 # How to Write a Script for a YouTube Video
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -38,6 +35,10 @@ You have a great idea for a video, but you’re just not sure how to express it 
 3. [After Writing Your YouTube Video Script](#after)
 4. [Bonus Tip- Add Subtitles to Your YouTube Video with Wondershare Filmora](#bonus)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Before You Write Your YouTube Script
 
 Here are some things to do before you start writing your script for YouTube:
@@ -47,18 +48,20 @@ Here are some things to do before you start writing your script for YouTube:
 Before you write the script, it’s a good idea to gather ideas. If you think of something, or if something funny happens, write it down right away. Keep a pen and notebook handy that way you will not forget about it.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2\. Find an area that is not distracting
 
 Once you have gathered enough ideas for the YouTube video, the next step is to find a place where you can write in peace and be inspired. Avoid any distractions to ensure that you will be able to put all your thoughts and ideas onto paper.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 ## Writing a Script for a YouTube Video
 
 Now that you're ready to sit down and write, here's what you do:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Create an outline for your story
 
@@ -69,8 +72,9 @@ The first step in writing a script is to develop an outline for the story. You m
 The tone you pick for the video will depend on your audience. It’s safe to assume that viewers want something that’s unique, informative, and engaging. In some cases, they look for a video that’s personal, and they can relate to it. Humor is also something that you should consider when writing a script.
 
 <!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 3\. Just keep writing
 
 When you start writing it is important that you keep on doing it no matter what happens. Just write down everything that comes into your mind. After that, read what you’ve written. If you think that something needs to be replaced, then replace it. If you get more inspiration and think that the script is lacking, then add to it.
@@ -98,17 +102,15 @@ While you are scripting and focusing on the information you want to deliver, it�
 Remember to refer to your audience as ‘you’, not ‘you guys’ (you are speaking to individual viewers, not a collective) and to include moments of engagement throughout your videos. Ask your viewers questions to keep their minds active, this also encourages them to leave comments.
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## After Writing your YouTube Video Script
 
 After writing the script, the next step is to invite a trusted friend or family member to look at the script. Ask them for their feedback and if they have any ideas to add. And don’t forget, be open-minded to feedback
 
 These are the tips to keep in mind when considering how to write a script for a YouTube video.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Add Subtitles to Your YouTube Video with Wondershare Filmora
 
 Creating subtitles with Wondershare Filmora is very easy and a newbie can easily add relevant texts to the video they are trying to edit with Filmora. You just simply need to launch Wondershare Filmora and import the video that you want to edit. Now, go to the Titles tab and select the template that you want to pick and drag it on the timeline and click Apply. This way you can easily start adding texts and titles to your videos and let the alphabets narrate your story.
@@ -123,14 +125,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -139,4 +138,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/uilding-confidence-against-youtube-critiques-for-2024/"><u>[New] Building Confidence Against YouTube Critiques for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-crafting-perfect-youtube-music-playlists-via-web-and-mobile-platforms/"><u>[New] In 2024, Crafting Perfect YouTube Music Playlists via Web & Mobile Platforms</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-shaking-it-off-analyzing-the-efficacy-of-photostability/"><u>[New] Shaking It Off Analyzing the Efficacy of PhotoStability</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-top-8-proven-techniques-to-amplify-content/"><u>[Updated] 2024 Approved Top 8 Proven Techniques to Amplify Content</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-add-a-professional-touch-youtube-video-image-crafting-for-2024/"><u>[Updated] Add a Professional Touch YouTube Video Image Crafting for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-cut-the-chatter-capture-game-moments-easily-for-2024/"><u>[Updated] Cut the Chatter Capture Game Moments Easily for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-essential-thumbnail-strategies-for-amplifying-viewership-on-youtube-for-2024/"><u>[Updated] Essential Thumbnail Strategies for Amplifying Viewership on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-top-10-screen-recording-devices-for-enterprise-use/"><u>[Updated] In 2024, Top 10 Screen Recording Devices for Enterprise Use</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-youtube-outros-that-grow-your-channel-faster/"><u>[Updated] In 2024, YouTube Outros that Grow Your Channel Faster</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-method-for-onoff-windows-11-hdr-feature/"><u>[Updated] Method for On/Off Windows 11 HDR Feature</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-exploring-mobile-youtube-usage-on-different-oses/"><u>2024 Approved Exploring Mobile YouTube Usage on Different OSes</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-the-smart-way-to-extract-specific-segments-from-youtube/"><u>2024 Approved The Smart Way to Extract Specific Segments From YouTube</u></a></li>
+<li><a href="https://location-social.techidaily.com/4-most-known-ways-to-find-someone-on-tinder-for-infinix-smart-8-hd-by-name-drfone-by-drfone-virtual-android/"><u>4 Most-Known Ways to Find Someone on Tinder For Infinix Smart 8 HD by Name | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/deciphering-and-crafting-accurate-slug-line-annotations/"><u>Deciphering and Crafting Accurate Slug Line Annotations</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/1721268226249-discover-how-cookiebot-enhances-user-experience-and-conversion-rates/"><u>Discover How Cookiebot Enhances User Experience & Conversion Rates.</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-6-proven-ways-to-unlock-lava-yuva-3-phone-when-you-forget-the-password-by-drfone-android/"><u>In 2024, 6 Proven Ways to Unlock Lava Yuva 3 Phone When You Forget the Password</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-mastering-the-alphabet-soup-of-online-stream-titles/"><u>In 2024, Mastering the Alphabet Soup of Online Stream Titles</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-unlock-your-boost-mobile-apple-iphone-8-before-the-plan-expires-by-drfone-ios/"><u>In 2024, Unlock Your Boost Mobile Apple iPhone 8 Before the Plan Expires</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ize-video-performance-elite-youtube-ranks-tools-for-2024/"><u>Optimize Video Performance Elite YouTube Ranks Tools for 2024</u></a></li>
+</ul></div>
 

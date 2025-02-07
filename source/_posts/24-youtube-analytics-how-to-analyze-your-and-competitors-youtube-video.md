@@ -1,7 +1,7 @@
 ---
 title: "In 2024, YouTube Analytics – How to Analyze Your and Competitor's YouTube Video"
-date: 2025-01-19T16:00:38.123Z
-updated: 2025-01-25T16:03:19.991Z
+date: 2025-01-30T23:07:15.494Z
+updated: 2025-02-07T10:17:04.219Z
 tags:
   - ai video
   - ai youtube
@@ -46,7 +46,7 @@ thumbnail: https://thmb.techidaily.com/6ea42b82e55f6c668ff7a393a7539803912a1c23e
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-views.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 2\.  Playback Location
@@ -54,6 +54,10 @@ thumbnail: https://thmb.techidaily.com/6ea42b82e55f6c668ff7a393a7539803912a1c23e
  As 'Playback locations' of YouTube videos can reveal where does all the traffic come from, it would help your channel figure out for which location the video has fared well. It will guide you to reach the backlinks locations/sites. Knowing the popular locations for your YouTube video being played, you can know whether YouTube is the search engine or they have been diverted from somewhere else. Depending on the video playing locations, the views will be segregated in to embedded video, YouTube watch page, mobile devices, and YouTube channel page. Understanding location specific views would help you decide where should you focus to enhance the performance of your video.
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-playback-location.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 3\.  Demographics
 
@@ -67,6 +71,10 @@ thumbnail: https://thmb.techidaily.com/6ea42b82e55f6c668ff7a393a7539803912a1c23e
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-traffic-source.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 5\.  Audience Retention
 
  This data explains how far your video has engaged your audience. Along with views, the duration that a viewer is on your video weighs too. From the audience retention page, you can find out the specific time that a viewer has exited your video and see what made them do so. There are 2 types of audience retention features – absolute audience retention and relative audience retention.
@@ -74,7 +82,7 @@ thumbnail: https://thmb.techidaily.com/6ea42b82e55f6c668ff7a393a7539803912a1c23e
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-audience-retention.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 6\.  Devices
@@ -83,15 +91,15 @@ thumbnail: https://thmb.techidaily.com/6ea42b82e55f6c668ff7a393a7539803912a1c23e
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-devices.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 7\.  Likes and dislikes
 
  YouTube insights gauge the audience acceptance for your video by the number of likes and dislikes. Videos with a huge number of like implies that it is loved by people, though, the quality of video can't exactly be defined by the number of likes or dislikes. Even the best quality video created for asking opinions about a certain situation/issue might be good enough but still get dislikes.
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-likes-and-dislikes.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 8\.  Subscribers
 
@@ -134,11 +142,7 @@ thumbnail: https://thmb.techidaily.com/6ea42b82e55f6c668ff7a393a7539803912a1c23e
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-playlists.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to analyze your competitors
@@ -167,10 +171,6 @@ thumbnail: https://thmb.techidaily.com/6ea42b82e55f6c668ff7a393a7539803912a1c23e
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -192,20 +192,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-mastering-twitter-setup-in-5-steps/"><u>[New] In 2024, Mastering Twitter Setup in 5 Steps</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/asterclass-in-visual-storytelling-for-youtube-live-videos-for-2024/"><u>[New] Masterclass in Visual Storytelling for YouTube Live Videos for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/astering-the-art-of-adding-youtube-playlists-to-your-website-seamlessly-for-2024/"><u>[New] Mastering the Art of Adding YouTube Playlists to Your Website Seamlessly for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-the-essential-manual-for-srt-conversion-techniques/"><u>[New] The Essential Manual for SRT Conversion Techniques</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ransforming-views-uncover-the-best-video-hacks-for-success/"><u>[New] Transforming Views Uncover the Best Video Hacks for Success</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-your-guide-to-50-creative-free-youtube-advertising-options/"><u>[Updated] Your Guide to 50 Creative, Free YouTube Advertising Options</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-tecno-spark-20-proplus-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Tecno Spark 20 Pro+ | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-artisans-shaping-virtual-marvel-universes/"><u>2024 Approved Artisans Shaping Virtual Marvel Universes</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-understanding-user-psychology-in-youtube-shorts-template-design/"><u>2024 Approved Understanding User Psychology in YouTube Shorts Template Design</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/boosting-social-reach-top-facebook-video-engagement-techniques/"><u>Boosting Social Reach Top Facebook Video Engagement Techniques</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-3-easy-ways-to-factory-reset-a-locked-iphone-8-without-itunes-by-drfone-ios/"><u>In 2024, 3 Easy Ways to Factory Reset a Locked iPhone 8 Without iTunes</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-cutting-edge-chips-excellent-editing-made-easy-and-fast/"><u>In 2024, Cutting Edge Chips Excellent Editing Made Easy and Fast</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ful-conversion-of-youtube-videos-to-interactive-gif-artistry-for-2024/"><u>Skillful Conversion of YouTube Videos to Interactive GIF Artistry for 2024</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/troubleshooting-steps-when-your-csgo-mic-fails-to-function/"><u>Troubleshooting Steps When Your CS:GO Mic Fails to Function</u></a></li>
-<li><a href="https://fake-location.techidaily.com/which-is-the-best-fake-gps-joystick-app-on-tecno-phantom-v-flip-drfone-by-drfone-virtual-android/"><u>Which is the Best Fake GPS Joystick App On Tecno Phantom V Flip? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-average-revenue-what-every-view-contributes-to-creators/"><u>[New] 2024 Approved Average Revenue What Every View Contributes to Creators</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-how-to-enhance-your-photos-with-titled-content-win-11/"><u>[New] 2024 Approved How to Enhance Your Photos with Titled Content (Win 11)</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-decoding-authenticity-in-your-digital-instagram-family/"><u>[New] Decoding Authenticity in Your Digital Instagram Family</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ioneering-methods-to-develop-a-memorable-youtube-introduction-for-2024/"><u>[New] Pioneering Methods to Develop a Memorable YouTube Introduction for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-10-youtube-havens-for-entrepreneurs-and-business-gurus/"><u>[Updated] 10 YouTube Havens for Entrepreneurs & Business Gurus</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-maximizing-video-longevity-saving-snaps-on-android-and-mac/"><u>[Updated] 2024 Approved Maximizing Video Longevity Saving Snaps on Android & Mac</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-unveil-the-best-free-backdrop-and-footage-sources-top-8-online-lists/"><u>[Updated] 2024 Approved Unveil the Best Free Backdrop & Footage Sources Top 8 Online Lists</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-audio-extraction-made-easy-youtube-music-on-your-mac/"><u>2024 Approved Audio Extraction Made Easy YouTube Music on Your Mac</u></a></li>
+<li><a href="https://extra-information.techidaily.com/best-5-vr-headsets-for-drones/"><u>Best 5 VR Headsets for Drones</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/how-to-transfer-photos-from-apple-iphone-14-pro-max-to-other-iphone-without-icloud-drfone-by-drfone-transfer-from-ios/"><u>How to Transfer Photos from Apple iPhone 14 Pro Max to other iPhone without iCloud | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/izing-views-optimal-youtube-thumbnails-for-2024/"><u>Maximizing Views Optimal YouTube Thumbnails for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-samsung-galaxy-a23-5g-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Samsung Galaxy A23 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-tecno-spark-10-4g-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Tecno Spark 10 4G | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/unleash-hdr-potential-the-comprehensive-sdr-to-hdr-conversion-guide/"><u>Unleash HDR Potential The Comprehensive SDR-to-HDR Conversion Guide</u></a></li>
 </ul></div>
 

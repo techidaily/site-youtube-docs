@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Transforming From Obscure to Popular on Youtube\""
-date: 2024-07-29T16:41:34.207Z
-updated: 2024-07-30T16:41:34.207Z
+date: 2025-02-06T05:37:10.954Z
+updated: 2025-02-06T19:21:36.903Z
 tags:
   - ai video
   - ai youtube
@@ -34,16 +34,10 @@ However, don’t accept defeat just yet if you’re not quite getting the number
 
 ## Part 1: How to Get More Subscribers on YouTube for Beginners
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1. Be Real and Approachable
 
 You should always be yourself when you vlog. People will subscribe when they feel invested in you as a person, and that happens when they feel like you are being sincere. You do not need to share all of your innermost secrets on your vlog, but you should let your viewers feel like they know you.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 2. Don’t forget to add a call to action
 
 Some people need to be prompted to subscribe to your channel, no matter how much they enjoy your content. At the end of all your videos, ask your viewers to subscribe to your channel and like your social media page.
@@ -52,9 +46,6 @@ Don’t forget to explain the benefits of subscribing to them, such as to benefi
 
 ![call to action](https://images.wondershare.com/filmora/article-images/call-to-action-video.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 ### 3. Listen To Your Subscribers
 
 It feels nice to get positive comments on your videos. If people feel comfortable enough to leave you suggestions and requests then that is even better. It means that you have succeeded in making them feel like they are part of your community.
@@ -63,46 +54,43 @@ If you get a video request, try to do it. People like to feel that you are open 
 
 ![get subscriber](https://images.wondershare.com/filmora/article-images/subscriber02.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4. Optimize your title
 
 Try not to underestimate the importance of a great eye-catching title. Include relevant words and phrases that you think people will search for and don’t just hastily add the first title that comes into your head. The better your title is, the more viewers and subscribers you are likely to amass.
 
 ![title](https://images.wondershare.com/filmora/article-images/optimize-title.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 5. Be Patient
 
 Almost all vlogs grow slowly at first; the first 1000 subscribers take the longest to get. It takes a lot of patience to keep producing content on a regular schedule when it seems like not many people are watching, but you need to stick with it in order to grow.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 2: How to Get more Subscribers on YouTube for Pros
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 1. Set goals
 
 You can gain extra drive and momentum by setting yourself attainable goals and encouraging your followers to help you achieve them. These goals can include milestones such as reaching 500 followers, 1,000 followers and so on. Don’t hesitate to tell your viewers about these goals – if they think your content is of real value, chances are they will be only too happy to assist you.
 
 ![goals](https://images.wondershare.com/filmora/article-images/set-goals.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 2. Contests can be funny – why not enter one?
 
 One way to increase subscribers is to take part in a contest. A site called Gleam can oversee a contest for you. It’s up to you to choose how you want the contest to work, and you can gain an edge over your competitors by getting people to leave comments, follow you on Instagram, subscribe to your channel and more.
 
 You will be provided with a landing page for promoting your channel, and you can share this in a variety of places, including on your Facebook, Twitter and blog. The best way to heighten your chances of success is to have a clear goal in mind.
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 ![video0 contest](https://images.wondershare.com/filmora/article-images/video-contest.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3. Make a trailer
 
@@ -110,10 +98,11 @@ YouTube’s channel interface allows you to add a [trailer](https://www.fastcomp
 
 Don’t waffle on – try to get your clip down to 90 seconds maximum. Include clips from your videos and don’t forget to add a strong call to action at the end. The more effort you put into your videos, the bigger the rewards are likely to become. And here are some of the [best trailer makers that you can use on both Windows and Mac](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ![trailer](https://images.wondershare.com/filmora/article-images/create-killer-youtube-channel-trailer.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4. Make a Schedule and Stick To It
 
@@ -121,13 +110,6 @@ You want to vlog at least once a week, and making a schedule will help you keep 
 
 Sticking to your schedule is a good wait to build up credibility with your audience, but late or skipped updates will cause you to lose that credibility. If you do not post for a month then people who already subscribed to you might still ignore your update because it has been too long and they forgot about you.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
 ### 5. Collaborate With Other Vloggers
 
 Collaboration videos are always big hits. When you collaborate with another vlogger you are essentially introducing each other to your subscribers. This is a great way to grow your community quickly: by connecting it to another community.
@@ -152,6 +134,10 @@ Of the channels you found in Step 1, choose the ones you genuinely like and subs
 
 It goes without saying that everyone enjoys support, especially if you are not asking for anything in return. By subscribing to YouTube channels in your genre you appreciate, you will make yourself known to the channel's owner, and there is a chance they will check out and subscribe to your channel.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3. Spend time watching videos each day
 
 Knowledge is power and, if you want to attract real people to your channel, you should learn how to use your knowledge to your advantage. By paying attention to other new videos in your genre you’ll gain insight into what is going over well with audiences like yours, and what isn’t.
@@ -159,17 +145,15 @@ Knowledge is power and, if you want to attract real people to your channel, you 
 Also, be especially sure to watch videos from those channels you found in Step 1 and subscribed to in Step 2\. Try to watch at least two minutes of content from those channels whenever they upload.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 4. Comment thoughtfully. Don’t ask for anything in return
 
 Most YouTubers are delighted to hear someone else's positive opinion or constructive criticism regarding their work. The reason you are watching 2 minutes of content per video in Step 3 is so that you will really have something to say in this step.
 
 If you do make a thoughtful comment, and especially if you use the time stamp of the part of the video you’re referring to, the video creator will know you have watched the video and that you are not just another spammer. Avoid the sub-4-sub strategy, and don't be the person who's always saying 'Subscribe to my channel'. You will be ignored by both the creator and other viewers, and the creator will find you annoying. However, if you comment regularly without asking for anything, the creator and some of their viewers will naturally decide to check out your channel.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
 ### 5. Reach out on social media
 
 YouTube is just one out of many channels through which you can reach like-minded people. Facebook, Instagram, Pinterest or any other social network can help you network with other creators and potential subscribers. Create accounts on social networks you find the most suitable for your video category and share links to your videos on these accounts as often as you can. Furthermore, if you try to foster real discussions about topics that are relevant, people who get to know you through these other platforms will probably decide to check out your YouTube channel.
@@ -177,8 +161,9 @@ YouTube is just one out of many channels through which you can reach like-minded
 Social media is also a great place to reach out to other creators, whether it’s for collabs or just to chat about doing YouTube.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 6. Do it all again. And again. And again
 
 You aren’t going to see great results overnight. You have to spend time almost every day repeating the steps we just described. This might seem intimidating, but as time passes it will become routine.
@@ -189,12 +174,17 @@ When you build your presence on YouTube in this way, other creators and their su
 
 Some people might need to watch multiple videos by you before they decide they want to subscribe. If you stop making videos because you did not get any subscribers or comments on your first few then chances are there were people who were paying attention who may have subscribed if you had kept at it.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -202,14 +192,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -218,4 +205,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-enhancing-visual-aesthetics-adding-black-bar-and-box-to-videos/"><u>[New] 2024 Approved Enhancing Visual Aesthetics Adding Black Bar & Box to Videos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/eceptions-toll-consequences-of-fake-supporters-in-video-markets-for-2024/"><u>[New] Deception's Toll Consequences of Fake Supporters in Video Markets for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/he-ultimate-guide-to-sharing-audio-with-youtube-for-2024/"><u>[New] The Ultimate Guide to Sharing Audio with YouTube for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-effortless-webcam-recordings-on-hp-systems/"><u>[Updated] Effortless Webcam Recordings on HP Systems</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-seamless-live-recording-on-fb-uncover-4-critical-steps/"><u>[Updated] In 2024, Seamless Live Recording on FB Uncover 4 Critical Steps</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-six-offbeat-sources-for-customized-video-theme-elements/"><u>[Updated] In 2024, Six Offbeat Sources for Customized Video Theme Elements</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-who-rules-the-realm-of-youtube/"><u>[Updated] In 2024, Who Rules the Realm of YouTube?</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-your-ultimate-guide-to-capturing-underwater-wonders/"><u>[Updated] In 2024, Your Ultimate Guide to Capturing Underwater Wonders</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ng-through-youtube-partnerships/"><u>Earning Through YouTube Partnerships</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-advanced-techniques-in-post-uploaded-youtube-content-enhancement/"><u>In 2024, Advanced Techniques in Post-Uploaded YouTube Content Enhancement</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-circle-everything-you-need-to-know-on-vivo-y200e-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Circle Everything You Need to Know On Vivo Y200e 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ate-with-ease-best-7-android-browsers-without-pop-ups-for-2024/"><u>Navigate With Ease Best 7 Android Browsers Without Pop-Ups for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ating-the-digital-realm-uploading-with-premiere-and-youtube-for-2024/"><u>Navigating the Digital Realm Uploading with Premiere & YouTube for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/1722993013472-resolving-rainbow-six-sieges-error-code-3-0x0001000b-a-comprehensive-guide/"><u>Resolving Rainbow Six Siege's Error Code 3-0X0001000B: A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/k-the-secrets-capturing-apple-devices-for-engaging-videos/"><u>Unlock the Secrets Capturing Apple Devices for Engaging Videos</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/upturnmonitorimage-advice/"><u>UpturnMonitorImage Advice</u></a></li>
+<li><a href="https://techidaily.com/what-you-need-to-know-to-improve-your-xiaomi-redmi-a2plus-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>What You Need To Know To Improve Your Xiaomi Redmi A2+ Hard Reset | Dr.fone</u></a></li>
+</ul></div>
 

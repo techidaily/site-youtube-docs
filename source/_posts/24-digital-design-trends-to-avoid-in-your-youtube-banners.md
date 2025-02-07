@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Digital Design Trends to Avoid in Your YouTube Banners"
-date: 2024-07-29T16:41:42.689Z
-updated: 2024-07-30T16:41:42.689Z
+date: 2025-02-06T08:01:59.397Z
+updated: 2025-02-07T02:57:39.257Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/3a8d29dc752129bc6cecd890184a07ba60927370b
 
 # How To Make Good YouTube Banner - Dos and Don’ts
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -42,6 +39,10 @@ Here are the Dos and Don’ts of YouTube Channel Art.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: What Kind of Background Should I Use?
 
 #### _DO: High-Quality Photos_
@@ -54,14 +55,12 @@ When choosing great photos for your background, pick ones that are high quality 
 
 Using patterns for the background of your channel banner can help your channel look super creative and stand out from others. However, if you use a pattern that is chaotic and hard on the eyes, you may not attract many subscribers. When using patterns, choose patterns that are not heavy in color and have too many lines or shapes. There should be an evenness to the shapes and negative space within the pattern itself. Try to stay away from patterns that are 3D which can conflict with the viewer’s eyesight and make them dizzy.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ YouTube Channel Banner Background](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-background.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: Should I Use My Face?
 
 Whether you should use your face on your channel banner depends on what your channel is about. If you have a channel focused on beauty, fashion, fitness, or family vlogs then it’s a good idea to include your face. It comes off personable and helps viewers relate to you. If you have a channel that is about something like gaming, tech reviews, or book reviews then it isn’t necessary to include your face because the focus of your content isn’t you as a personality.
@@ -77,6 +76,10 @@ That doesn’t mean you have to hire a photographer to take pictures for your ch
 #### _Don’t: Use Outdated Pictures_
 
 It is always best to use a current photo of yourself. Many times viewers will go and follow you on social media as well. If they see that you have current photos on your social media but not on your channel, they are become confused and perhaps lose interest.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: What Should I Write on My Banner?
 
@@ -114,9 +117,6 @@ YouTubers that use tag lines are using their channel as a platform to carry out 
 
 Whether you decide to use descriptive words or a tag line, they will help your channel tremendously by setting expectations for your viewers.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 4: How Can I Make My Channel Art Look Good?
 
 #### _Do: Create Consistent Branding_
@@ -137,19 +137,21 @@ _Joshelle is a YouTuber from Atlanta, GA. She has a YouTube channel called [Elle
 
 Now that you know how to make a good YouTube banner, what will you do next?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Touch Up YouTube Videos with Filmora
 
 [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)features lots of utilities for both video and audio editing. You can change the video speed or change the aspect ratio easily. Besides, there are plentiful filters, elements, effects and overlays built, so you can use them without costing any extra fee.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -157,14 +159,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -173,4 +172,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-hasty-methods-for-mixed-up-youtube-playback-sequence/"><u>[New] 2024 Approved Hasty Methods for Mixed-Up YouTube Playback Sequence</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-the-ultimate-guide-to-using-youtube-on-iosandroid-devices/"><u>[New] 2024 Approved The Ultimate Guide to Using YouTube on iOS/Android Devices</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-enhance-content-reach-and-impact-social-blades-role-in-youtube-analytics/"><u>[Updated] 2024 Approved Enhance Content Reach and Impact - Social Blade's Role in YouTube Analytics</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-pioneering-the-next-level-of-streaming-setups/"><u>[Updated] 2024 Approved Pioneering the Next Level of Streaming Setups</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-directly-uploading-youtube-vids-to-multiple-social-sites-focusing-on-fb-for-2024/"><u>[Updated] Directly Uploading YouTube Vids to Multiple Social Sites, Focusing on FB for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-sleepy-story-vids-assessment-and-overview/"><u>[Updated] Sleepy Story Vids Assessment & Overview</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-ultimate-non-popular-films-viewing-list/"><u>[Updated] Ultimate Non-Popular Films Viewing List</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-structuring-engaging-online-vignettes/"><u>2024 Approved Structuring Engaging Online Vignettes</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/1722970216470-easy-to-download-csr-bluetooth-driver-software-now-online/"><u>Easy-to-Download CSR Bluetooth Driver Software Now Online</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/exploring-potential-security-risks-in-using-chatgpt-services/"><u>Exploring Potential Security Risks in Using ChatGPT Services</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ring-youtubes-payment-mechanisms-for-content-makers-for-2024/"><u>Exploring YouTube's Payment Mechanisms for Content Makers for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/e-tips-creating-engaging-youtube-video-intros-for-2024/"><u>IMovie Tips Creating Engaging YouTube Video Intros for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-8-best-apps-for-screen-mirroring-google-pixel-fold-pc-drfone-by-drfone-android/"><u>In 2024, 8 Best Apps for Screen Mirroring Google Pixel Fold PC | Dr.fone</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-portable-balancing-system-for-video-capture/"><u>In 2024, Portable Balancing System for Video Capture</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/instavideo-magic-crafting-a-plan-to-capture-your-audiences-attention-for-2024/"><u>InstaVideo Magic Crafting a Plan to Capture Your Audience's Attention for 2024</u></a></li>
+<li><a href="https://network-issues.techidaily.com/mysterious-network-signal-failures/"><u>Mysterious Network Signal Failures</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/upcoming-google-pixel-2023-unveiling-potential-features-anticipated-costs-and-launch-timeline/"><u>Upcoming Google Pixel 2023: Unveiling Potential Features, Anticipated Costs & Launch Timeline</u></a></li>
+</ul></div>
 

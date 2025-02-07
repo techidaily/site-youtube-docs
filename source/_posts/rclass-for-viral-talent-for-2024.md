@@ -1,7 +1,7 @@
 ---
 title: "Masterclass for Viral Talent for 2024"
-date: 2025-01-23T16:10:57.612Z
-updated: 2025-01-25T16:05:27.791Z
+date: 2025-02-06T01:47:33.639Z
+updated: 2025-02-07T06:37:26.379Z
 tags:
   - ai video
   - ai youtube
@@ -57,7 +57,7 @@ There were some clues as to what the rest of the summit was like hiding amongst 
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. A map of Dumbo
@@ -68,9 +68,17 @@ _Tess takes you to some of her favorite places in Dumbo._
 
 Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Post Cards
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 3\. S’well bottle
 
@@ -82,29 +90,21 @@ To help them relax after long days at the summit, YouTube provided creators with
 
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 _thinknoodles wearing his YouTube slippers._
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 5\. Pins, pins, pins
 
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 6\. Denim jacket
 
 A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
 
 _![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
 
@@ -115,7 +115,7 @@ Want to join the YouTube Creator Summit in the future? We all know that there is
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -141,21 +141,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-speedy-solutions-to-unsettle-and-reorder-youtube-songs/"><u>[New] In 2024, Speedy Solutions to Unsettle and Reorder YouTube Songs</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-sculpting-soundscapes-gradual-volume-reduction/"><u>[New] Sculpting Soundscapes Gradual Volume Reduction</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-from-device-capture-to-viral-content-youtubes-upload-guide/"><u>[Updated] 2024 Approved From Device Capture to Viral Content YouTube's Upload Guide</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-reinstate-fb-watch-video-tile/"><u>[Updated] 2024 Approved Reinstate FB Watch Video Tile</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-the-complete-blueprint-for-success-adding-channels-as-features-on-youtube/"><u>[Updated] 2024 Approved The Complete Blueprint for Success Adding Channels as Features on Youtube</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-youtube-to-instagram-posting-videos-effortlessly/"><u>[Updated] 2024 Approved YouTube to Instagram Posting Videos Effortlessly</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-advanced-io-screen-capturing-techniques/"><u>[Updated] Advanced IO Screen Capturing Techniques</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-subscribe-bonanza-thousands-acquired-for-just-5-for-2024/"><u>[Updated] Subscribe Bonanza Thousands Acquired for Just $5 for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-turboupload-the-ultimate-guide-to-fast-youtube-video-rendering/"><u>2024 Approved TurboUpload The Ultimate Guide to Fast YouTube Video Rendering</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-viewers-to-earners-journey-calculating-necessary-counts/"><u>2024 Approved Viewers to Earner's Journey Calculating Necessary Counts</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/fixing-the-amazon-echo-online-connection-problems-a-comprehensive-guide/"><u>Fixing the Amazon Echo Online Connection Problems - A Comprehensive Guide</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-fix-it-motorola-edge-40-neo-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix It Motorola Edge 40 Neo Wont Turn On | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-quick-fixes-to-enhance-your-youtube-reach/"><u>In 2024, Quick-Fixes to Enhance Your YouTube Reach</u></a></li>
-<li><a href="https://techtrends.techidaily.com/ogg-mp4/"><u>OGG 영상을 MP4로 쉽게 대화형 변환하는 오토바이오 – 제네릭</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/hoices-excellent-youtubers-screen-recording-tools-for-2024/"><u>Top Choices Excellent YouTubers' Screen Recording Tools for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/1727792261031-top-rated-tablet-computers-comprehensive-reviews-by-tech-experts/"><u>Top Rated Tablet Computers - Comprehensive Reviews by Tech Experts</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-building-a-billion-view-empire-your-step-by-step-youtube-strategy/"><u>[New] 2024 Approved Building a Billion-View Empire Your Step-by-Step Youtube Strategy</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-creating-engaging-stream-content-shorts/"><u>[New] 2024 Approved Creating Engaging Stream Content Shorts</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-from-novice-to-vlogger-the-top-10-editing-techniques/"><u>[New] 2024 Approved From Novice to Vlogger The Top 10 Editing Techniques</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-identifying-high-growth-youtube-channels-for-personal-development/"><u>[New] 2024 Approved Identifying High-Growth YouTube Channels for Personal Development</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-how-to-capture-picture-perfection-without-paying/"><u>[New] How To Capture Picture Perfection Without Paying</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-mastering-screen-sharing-on-skype-for-remote-collaboration/"><u>[Updated] Mastering Screen Sharing on Skype for Remote Collaboration</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/-youtube-music-anytime-with-these-23-essential-no-cost-audio-extractors-for-2024/"><u>Enjoy YouTube Music Anytime with These 23 Essential, No-Cost Audio Extractors for 2024</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/evaluating-the-power-of-choice-comparing-samsung-and-apple-ecosystem-strengths-and-benefits/"><u>Evaluating the Power of Choice: Comparing Samsung and Apple Ecosystem Strengths & Benefits</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prevent-cross-site-tracking-on-xiaomi-14-pro-and-browser-drfone-by-drfone-virtual-android/"><u>Prevent Cross-Site Tracking on Xiaomi 14 Pro and Browser | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/trustworthy-lenovo-thinkpad-drivers-and-firmware-update-guide-100-risk-free-download/"><u>Trustworthy Lenovo ThinkPad Drivers & Firmware Update Guide - 100% Risk-Free Download.</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-transform-your-footage-into-a-blockbuster-mac-video-editing-essentials-for-2024/"><u>Updated Transform Your Footage Into a Blockbuster Mac Video Editing Essentials for 2024</u></a></li>
 </ul></div>
 

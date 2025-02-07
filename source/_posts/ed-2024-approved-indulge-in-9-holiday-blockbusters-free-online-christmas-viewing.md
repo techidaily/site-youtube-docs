@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Indulge in 9 Holiday Blockbusters  Free Online Christmas Viewing\""
-date: 2025-01-21T16:11:35.920Z
-updated: 2025-01-25T16:01:25.655Z
+date: 2025-02-05T16:16:20.219Z
+updated: 2025-02-06T19:48:16.647Z
 tags:
   - ai video
   - ai youtube
@@ -32,7 +32,7 @@ If you are looking for Christmas entertainment this season you may be quick to l
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1. The nutcracker 1990
@@ -40,7 +40,7 @@ If you are looking for Christmas entertainment this season you may be quick to l
 The Nutcracker is a holiday classic that many people seek out every year on the stage. This family ballet classic was filmed by the Pacific Northwest ballet in a huge and lavish version of the production in 1986\. This still stands as one of the best versions of the Nutcracker ever captured on film and you can watch it for free on YouTube. You can find the Nutcracker at :
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2. A smoky mountain Christmas
@@ -48,7 +48,7 @@ The Nutcracker is a holiday classic that many people seek out every year on the 
 A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and starring Lee Majors and Dolly Parton. The full musical fairy tale can be found online on YouTube and it's about a country singer who is trying to spend a quiet Christmas holiday at home. She suddenly becomes involved with a mysterious mountain man, an evil witch and is forced to protect seven orphans over the holidays. This film can be found at:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3. Ernest saves Christmas
@@ -68,12 +68,16 @@ In this film from 1998 we hear the story of the richest kid in the world on Chri
 This film stars the hulk Mark Ruffalo in one of his earlier roles as a store employee who catches a con woman trying to steal from a department store on Christmas. His character agrees to be responsible for the con woman and her niece over the holidays to prevent them from staying with social services. A romance develops! This 1997 film can be found at:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 7. Santa Who?
 
 Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday classic Santa suffers a severe case of amnesia on Christmas Eve and needs to recover for Christmas day in order to make it through and deliver presents to all of the good children of the world. See if Santa gets his Christmas memories back by watching Santa Who here:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 8. A Christmas Carol
 
@@ -84,10 +88,6 @@ In this film from 1984 George C Scott brings to life the role of Ebenezer Scroog
 In this recreation of the original film from 1947 this shortened full-length version from 1955 per trade is the classic story of santa on trial. A department store Santa suggests that he's the real santa and goes on trial to prove it. In this version of miracle on 34th Street starring Thomas Mitchell and Macdonald Carey we learn who really believes in Santa Claus. You can find this classic film here:
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -110,19 +110,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-in-2024-eye-candy-roundup-the-best-and-worst-of-8k-tv-tech/"><u>[New] In 2024, Eye Candy Roundup The Best and Worst of 8K TV Tech</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-navigating-the-process-of-making-youtube-trail-videos/"><u>[New] In 2024, Navigating the Process of Making YouTube Trail Videos</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-savvy-buyers-guide-to-cloud-savings-2024/"><u>[New] Savvy Buyer's Guide to Cloud Savings 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-ultimate-buyers-guide-top-gpus-for-youtube-streamers/"><u>[Updated] 2024 Approved Ultimate Buyer's Guide Top GPUs for YouTube Streamers</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-strategic-thinking-keywords-that-lead-to-online-victory-for-2024/"><u>[Updated] Strategic Thinking Keywords that Lead to Online Victory for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-ultimate-affordable-asmr-recording-setup-excellence/"><u>2024 Approved Ultimate Affordable ASMR Recording Setup Excellence</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/tial-video-stock-investment-guides/"><u>Essential Video Stock Investment Guides</u></a></li>
-<li><a href="https://techtrends.techidaily.com/guide-to-fix-d3dx933dll-is-missing-error-on-your-pc/"><u>Guide to Fix 'd3dx9_33.dll Is Missing Error' On Your PC</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-huawei-nova-y71-location-by-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Huawei Nova Y71 Location by Number | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-mastery-in-youtube-ads-thumbnails-and-banners/"><u>In 2024, Mastery in YouTube Ads Thumbnails & Banners</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-uncovering-the-truth-behind-4-second-youtube-subscriptions/"><u>In 2024, Uncovering the Truth Behind 4-Second YouTube Subscriptions</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-unlocking-the-power-of-smart-lock-a-beginners-guide-for-xiaomi-redmi-13c-5g-users-by-drfone-android/"><u>In 2024, Unlocking the Power of Smart Lock A Beginners Guide for Xiaomi Redmi 13C 5G Users</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/mastering-lock-screen-settings-how-to-enable-and-disable-on-xiaomi-14-by-drfone-android/"><u>Mastering Lock Screen Settings How to Enable and Disable on Xiaomi 14</u></a></li>
-<li><a href="https://some-skills.techidaily.com/ultimate-playlist-of-film-scores-and-tracks-for-2024/"><u>Ultimate Playlist of Film Scores & Tracks for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/deal-7-digital-photography-devices-for-high-quality-video-streams-for-2024/"><u>[New] Ideal 7 Digital Photography Devices for High-Quality Video Streams for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-ultimate-story-blueprints-across-8-movie-sectors/"><u>[New] Ultimate Story Blueprints Across 8 Movie Sectors</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-unleash-creativity-youtube-studio-editor-secrets-revealed/"><u>[Updated] In 2024, Unleash Creativity YouTube Studio Editor Secrets Revealed</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-wrap-up-wisdom-for-media-masters/"><u>[Updated] Wrap-Up Wisdom for Media Masters</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-mastering-proportional-adjustments-online/"><u>2024 Approved Mastering Proportional Adjustments Online</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-understanding-snapchats-high-value-content/"><u>2024 Approved Understanding Snapchat's High-Value Content</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-techniques-to-transfer-data-from-samsung-galaxy-s24plus-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Techniques to Transfer Data from Samsung Galaxy S24+ to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/efficiently-managing-fb-links-with-shortcuts/"><u>Efficiently Managing FB Links with Shortcuts</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-lava-yuva-3-pro-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Lava Yuva 3 Pro to Any iOS Devices | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-mastering-time-management-for-youtubers-with-day-jobs/"><u>In 2024, Mastering Time Management for YouTubers with Day Jobs</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-youtube-visual-identity-made-easy/"><u>In 2024, YouTube Visual Identity Made Easy</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ate-your-journey-into-asmr-filming-essential-insights-revealed-for-2024/"><u>Initiate Your Journey Into ASMR Filming – Essential Insights Revealed for 2024</u></a></li>
+<li><a href="https://driver-error.techidaily.com/overcoming-windows-11s-elan-pad-hurdles-for-smooth-use/"><u>Overcoming Windows 11'S Elan Pad Hurdles for Smooth Use</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prevent-cross-site-tracking-on-xiaomi-redmi-note-12t-pro-and-browser-drfone-by-drfone-virtual-android/"><u>Prevent Cross-Site Tracking on Xiaomi Redmi Note 12T Pro and Browser | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/stuck-at-android-system-recovery-of-tecno-spark-10-5g-fix-it-easily-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Stuck at Android System Recovery Of Tecno Spark 10 5G ? Fix It Easily | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nail-theories-selecting-the-most-effective-youtube-fonts/"><u>Thumbnail Theories Selecting the Most Effective YouTube Fonts</u></a></li>
 </ul></div>
 

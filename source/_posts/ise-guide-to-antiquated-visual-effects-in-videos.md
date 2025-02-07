@@ -1,7 +1,7 @@
 ---
 title: "Stepwise Guide to Antiquated Visual Effects in Videos"
-date: 2024-08-08T16:48:08.521Z
-updated: 2024-08-09T16:48:08.521Z
+date: 2025-02-05T05:06:01.694Z
+updated: 2025-02-06T16:02:11.554Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/5396014f071443efd9e1f13ed6c2f299f41c76737
 
 # How to Create Vintage Videos: A Comprehensive Tutorial
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -64,17 +61,9 @@ Lots of black points in the video are not ideal for a vintage effect. The suitab
 Bringing down the saturation levels is another tip to create a vintage effect. The old videos are also absent in bright colors. Don't go too crazy about reduction as 20%-30% saturation level is more than enough.
 
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Create a Stunning Vintage Video?
 
 What you need to get started as both beginner and professional is Wondershare Filmora Video Editor. It is a highly recommended software to create vintage videos. The intuitive user interface and lots of editing functions are helpful for a video editor. It has both primary as well as advanced editing programs to check. It has various advanced color tuning tools to promote the making of original videos. It features tint, temperature, Vignette, 3D Luts, Lights, and so on.
@@ -87,6 +76,10 @@ What you need to get started as both beginner and professional is Wondershare Fi
 
 ![Vintage Videos](https://images.wondershare.com/filmora/article-images/vintage-videos-1.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The very step is to add the video by clicking the + icon. We have added the three **sample videos** from the library of Wondershare Filmora itself. Adjust them in the timeline as per your requirements.
 
 After doing all the essential editing functions, click on the **Effects tab** given at the upper-left corner. Simply type the word Old in the Search tab.
@@ -97,17 +90,22 @@ The Old Video filter will immediately appear in the list of filters. Tap the **"
 
 ![Vintage Videos](https://images.wondershare.com/filmora/article-images/vintage-videos-2.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The second step is to apply the Black & White filters. Go to the **Effects** tab and explore five Black & White filters available. Each of these filters is quite different and must be applied accordingly. Check the aesthetic of your video clip before any filter application to retro videos.
 
 **Step 3:** Add the Sun Kissed or Sepia Tone Rise Filters to the video clip
 
 ![Vintage Videos](https://images.wondershare.com/filmora/article-images/vintage-videos-3.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 There are various other categories of filters you can apply, such as Retro, Sun Kissed, and Sepia Tone, etc. The features of Filmora also present several subcategories such as Faux Film or Shake.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Vintage Videos](https://images.wondershare.com/filmora/article-images/vintage-videos-4.png)
 
 On the other hand, the subcategory of Sepia Tone features Sun-Kissed & Rise Filters to stimulate sepia-tinted texture and recreate the old visual style. The Sun Kissed filter presents brown and red colors to give that warm image atmosphere.
@@ -118,10 +116,11 @@ On the other hand, the subcategory of Sepia Tone features Sun-Kissed & Rise Filt
 
 Now, you need to desaturate the video clip with Ash & Willow filters. We have typed Ash in the Search bar, and you can see the filter below. These filters are essential to desaturate the video with preset contrast, brightness, or exposure values.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ![Vintage Videos](https://images.wondershare.com/filmora/article-images/vintage-videos-6.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Then, we have combined the black & white filter with an overlay of Film Reel Horizontal. It will help you sell the effect and make the video look more authentic. However, the only application of Black & White or Ash & Willow filters is not going to make any creative thing in terms of vintage videos. You have to mix overlays with features such as Random Dust or Film Reel Horizontal.
 
@@ -129,15 +128,8 @@ Then, we have combined the black & white filter with an overlay of Film Reel Hor
 
 You can also access the Advanced color correction Tab of Filmora from the Color button. It also features Preset and Adjusts Tabs to desaturate footage. The Preset presents a variety of options, including Black & White and Old Film. You just need to right-click the particular preset and select the Apply option.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![Vintage Videos](https://images.wondershare.com/filmora/article-images/filmora9-advance-color-correction.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ## Tips to Make Your Vintage Videos Stand Out
 
 Following the helpful tips would assist you in creating awesome retro videos.
@@ -155,9 +147,6 @@ So, this is an ultimate tutorial on the creation of vintage videos. We Hope you 
 
 Surely give a read and thank us later!
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -166,14 +155,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -182,4 +168,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-step-by-step-voice-customization-in-free-fire-guide-included-no-cost/"><u>[New] 2024 Approved Step-by-Step Voice Customization in Free Fire (Guide Included - No Cost)</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/mplify-your-videos-impact-7-royalty-free-sounds/"><u>[New] Amplify Your Video's Impact 7 Royalty-Free Sounds</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-step-by-step-guide-to-screencasting-youtube-content-for-free/"><u>[New] In 2024, Step-by-Step Guide to Screencasting YouTube Content For Free</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/tep-by-step-guide-for-earning-from-every-youtube-short-for-2024/"><u>[New] Step-by-Step Guide for Earning From Every YouTube Short for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-unleash-potential-precision-zooming-for-professional-videoleap-footage/"><u>[New] Unleash Potential Precision Zooming for Professional VideoLeap Footage</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-achieving-a-noiseless-presence-on-social-video-platforms/"><u>[Updated] 2024 Approved Achieving a Noiseless Presence on Social Video Platforms</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-unleash-high-definition-content-with-youtubes-av1-feature/"><u>[Updated] 2024 Approved Unleash High-Definition Content with YouTube’s AV1 Feature</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-audible-savings-the-essential-guide-to-using-these-24-no-cost-splitters-on-youtube/"><u>[Updated] Audible Savings The Essential Guide to Using These 24 No-Cost Splitters on YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-decoding-ad-revenue-distribution-in-youtubes-economic-model/"><u>[Updated] Decoding Ad Revenue Distribution in YouTube's Economic Model</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-finding-clarity-in-photos-the-ultimate-iphone-and-android-editors/"><u>[Updated] Finding Clarity in Photos The Ultimate iPhone & Android Editors</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-social-laughter-downloaded-iphoneandroid-tutorial-for-gifs-for-2024/"><u>[Updated] Social Laughter Downloaded IPhone/Android Tutorial for GIFS for 2024</u></a></li>
+<li><a href="https://win-hacks.techidaily.com/come-ripristinare-la-partizione-uefi-cancellata-su-un-computer-con-windows-10/"><u>Come Ripristinare La Partizione UEFI Cancellata Su Un Computer Con Windows 10</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/delving-into-imos-capabilities-in-depth-messaging-software-analysis/"><u>Delving Into Imo's Capabilities: In-Depth Messaging Software Analysis</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ting-your-videos-visual-impact-youtubthumbnail-design-on-macos-for-2024/"><u>Elevating Your Video's Visual Impact YoutubThumbnail Design on macOS for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-full-guide-to-bypass-nubia-z50s-pro-frp-by-drfone-android/"><u>In 2024, Full Guide to Bypass Nubia Z50S Pro FRP</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-unleashing-potential-mastering-advertising-partnerships-with-famebit/"><u>In 2024, Unleashing Potential Mastering Advertising Partnerships with FameBit</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/tech-face-off-examining-performance-and-capabilities-of-ipad-pro-102-m4-vs-macbook-air-m3/"><u>Tech Face-Off: Examining Performance & Capabilities of iPad Pro 10.2 M4 Vs. MacBook Air (M3)</u></a></li>
+<li><a href="https://win-able.techidaily.com/1723005627200-unveiling-the-mystery-football-manager-2022-release-held-up-now-fixed/"><u>Unveiling the Mystery: Football Manager 2022 Release Held Up, Now Fixed</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-chill-out-playlists-for-non-profit-video-arrangements/"><u>Updated Chill-Out Playlists for Non-Profit Video Arrangements</u></a></li>
+</ul></div>
 

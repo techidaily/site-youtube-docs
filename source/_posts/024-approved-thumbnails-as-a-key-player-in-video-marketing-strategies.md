@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Thumbnails as a Key Player in Video Marketing Strategies\""
-date: 2024-07-29T16:42:08.333Z
-updated: 2024-07-30T16:42:08.333Z
+date: 2025-02-06T10:45:38.184Z
+updated: 2025-02-07T11:34:03.004Z
 tags:
   - ai video
   - ai youtube
@@ -42,9 +42,6 @@ In order to create a custom video thumbnail, you’ll need a program to put it t
 
 Here are some examples of popular thumbnail styles.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
  ![Popular YouTube Thumbnail Layout](https://images.wondershare.com/filmora/article-images/popular-youtube-thumbnail-layout.jpg)
 
 ### 1\. The Classic Thumbnail (Photo or Screenshot)
@@ -73,16 +70,21 @@ You should also avoid fonts that are harder to read. Fonts with a lot of curves 
 
 Another tactic used in successful thumbnails is to add small graphics, like emojis or small images (i.e. pumpkins for a Halloween video), which are related to your video’s content. As with text, you don’t want to overload your thumbnail with images, but they’re a great way to add something eye-catching that’s a bit different from competing thumbnails.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. The Emotional Laser (Background + Face Reacting)
 
 One increasingly popular style of YouTube thumbnail is what we’re going to call the ‘Emotional Laser’. It’s bright (like, blindingly bright), it communicates a clear feeling, and it creates high expectations for how exciting the video’s content is going to be.
 
 The three main elements of the Emotional Laser thumbnail are a background (usually bright), your face on the right wearing an over-pronounced expression, and either the thing your expression is in reaction to (i.e. food, a product, the topic of your video in text) or reinforcement of your emotion (i.e an emoji or question marks) on the left.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### #1. Ham It Up (Take Your Reaction Photo)
 
@@ -106,9 +108,6 @@ In your thumbnail maker or a program like Photoshop, you’ll need to put your p
 
 If instead of an object you plan to fill the other side of your thumbnail with text, question marks, emojis, or some other graphic element then now is the time to add it.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2: How to Upload a YouTube Thumbnail
 
 When you upload a new video to YouTube, you will see a **Custom thumbnail** option under **Video thumbnails** after your upload is complete.
@@ -126,9 +125,6 @@ YouTube recommends that thumbnail images have a resolution of **1280x720px**, an
 
 Make sure that all of your thumbnails adhere to YouTube’s Community guidelines. Anything sexually suggestive, violent, or otherwise graphic could result in your video being age-restricted.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 3: YouTube Thumbnail Makers
 
 You don’t have to go out and buy a photo editor like Photoshop to make custom video thumbnails (although it’s a good thing to use if you already have it). Here are two free online programs you can use instead:
@@ -189,19 +185,25 @@ As of now, this only works in the Google Chrome desktop browser. Videos have to 
 
 Alright, now that you know everything about YouTube thumbnails, go make one! Tell us in the comments what you’re going to do to make your video thumbnails stand out.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Touch Up YouTube Videos with Effects & Elements in Filmora
 
 As one of the most widely used video editing software in YouTube video editing, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) provides lots of templates and effects with an intuitive interface. Download the free trial version and get started now.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -209,14 +211,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -225,4 +224,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-maximizing-youtube-income-lessons-from-sourav-joshi/"><u>[New] 2024 Approved Maximizing YouTube Income Lessons From Sourav Joshi</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/rafting-your-youtube-legacy-a-deep-dive-into-creator-studio-mastery-for-2024/"><u>[New] Crafting Your YouTube Legacy A Deep Dive Into Creator Studio Mastery for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-perfect-your-posts-instagram-video-edits-with-borders-for-2024/"><u>[New] Perfect Your Posts Instagram Video Edits with Borders for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ero-cost-youtube-meetings-easy-to-host/"><u>[New] Zero Cost Youtube Meetings Easy to Host</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-direct-mp3-to-youtube-3-steps-for-seamless-video-posting-for-2024/"><u>[Updated] Direct MP3 to YouTube 3 Steps for Seamless Video Posting for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-pushing-boundaries-with-enhanced-exposure-controls/"><u>[Updated] In 2024, Pushing Boundaries with Enhanced Exposure Controls</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-simplified-guide-to-using-virtual-whiteboards-in-zoom-platforms/"><u>[Updated] In 2024, Simplified Guide to Using Virtual Whiteboards in Zoom Platforms</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/20plus-cool-metaverse-memes-a-deep-dive-guide/"><u>20+ Cool Metaverse Memes A Deep Dive Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-digital-cinematographer-hub/"><u>2024 Approved Digital Cinematographer Hub</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-precision-in-performance-utilizing-social-blade-for-youtube-data/"><u>2024 Approved Precision in Performance Utilizing Social Blade for YouTube Data</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-into-dialogue-dive-into-culture-in-mondly-vr/"><u>Dive Into Dialogue, Dive Into Culture in Mondly VR</u></a></li>
+<li><a href="https://fox-that.techidaily.com/get-your-iphones-auto-brightness-back-to-normal-with-our-top-er-7-advice/"><u>Get Your iPhone's Auto-Brightness Back to Normal with Our Top Er 7 Advice</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-reset-your-oneplus-ace-2-pro-lock-screen-password-by-drfone-android/"><u>How to Reset your OnePlus Ace 2 Pro Lock Screen Password</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-7-ways-to-unlock-a-locked-oppo-reno-9a-phone-by-drfone-android/"><u>In 2024, 7 Ways to Unlock a Locked Oppo Reno 9A Phone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-smart-growth-metropolis-balancing-development-and-nature/"><u>In 2024, Smart Growth Metropolis Balancing Development and Nature</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-top-10-must-watch-global-journey-vids-on-youtube/"><u>In 2024, Top 10 Must-Watch Global Journey Vids on YouTube</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/os-15-melhores-modos-para-criar-capturas-de-tela-descubra-a-essencia-do-captura-de-ecra/"><u>Os 15 Melhores Modos Para Criar Capturas De Tela - Descubra a Essência Do Captura De Ecrã!</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ssence-of-elegance-in-video-color-balancing-for-2024/"><u>The Essence of Elegance in Video Color Balancing for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/ultimate-tutorial-getting-the-right-driver-for-your-samsung-960-evo-m2-in-windows-environments/"><u>Ultimate Tutorial: Getting the Right Driver for Your Samsung 960 EVO M.2 In Windows Environments</u></a></li>
+</ul></div>
 

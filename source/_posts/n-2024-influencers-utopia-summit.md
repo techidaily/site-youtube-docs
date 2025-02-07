@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Influencers' Utopia Summit"
-date: 2025-01-23T16:11:59.700Z
-updated: 2025-01-25T16:13:49.083Z
+date: 2025-02-04T02:34:25.604Z
+updated: 2025-02-07T11:22:37.711Z
 tags:
   - ai video
   - ai youtube
@@ -65,7 +65,7 @@ _Tess takes you to some of her favorite places in Dumbo._
 Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Post Cards
@@ -73,7 +73,7 @@ Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. S’well bottle
@@ -87,14 +87,10 @@ To help them relax after long days at the summit, YouTube provided creators with
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _thinknoodles wearing his YouTube slippers._
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 5\. Pins, pins, pins
 
@@ -106,6 +102,10 @@ A denim jacket with a play button on it was also in the box. The idea was that c
 
 _![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
 
 Most creators here on Filmora are still trying to grow their channels, but one day I hope you’ll be able to attend an event like the YouTube Creator Summit and tell us all about it!
@@ -114,11 +114,11 @@ Want to join the YouTube Creator Summit in the future? We all know that there is
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -141,15 +141,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/rafting-quality-videos-a-guide-to-apple-device-screen-recording-for-2024/"><u>[New] Crafting Quality Videos A Guide to Apple Device Screen Recording for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-grasping-the-greener-side-of-valheim-top-seeds-list-for-2024/"><u>[New] Grasping the Greener Side of Valheim Top Seeds List for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-double-down-on-youtube-visibility-2-quick-methods/"><u>[New] In 2024, Double Down on YouTube Visibility (2 Quick Methods)</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-speedy-workshop-converting-your-visuals-into-stellar-youtube-pics-for-2024/"><u>[Updated] Speedy Workshop Converting Your Visuals Into Stellar YouTube Pics for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-crafting-immersive-experiences-with-audio-in-canva/"><u>2024 Approved Crafting Immersive Experiences with Audio in Canva</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-rewind-the-recordings-streamlined-playlist-reversal/"><u>2024 Approved Rewind the Recordings Streamlined Playlist Reversal</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/3-solutions-to-find-your-apple-iphone-se-2020-current-location-of-a-mobile-number-drfone-by-drfone-virtual-ios/"><u>3 Solutions to Find Your Apple iPhone SE (2020) Current Location of a Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/expiry-date-for-my-mailcom-email-when-should-i-be-concerned/"><u>Expiry Date for My Mail.com Email – When Should I Be Concerned?</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/hide-and-stream-avoiding-the-spotlight-on-instagram-for-2024/"><u>Hide and Stream Avoiding the Spotlight on Instagram for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/mastering-error-code-117-in-livekernelevents-a-diy-repair-tutorial/"><u>Mastering Error Code 117 in LiveKernelEvents: A DIY Repair Tutorial</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-achieve-profitability-on-youtube-embracing-any-device-approach/"><u>[New] 2024 Approved Achieve Profitability on Youtube Embracing Any Device Approach</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-charting-a-course-youtubes-best-brands/"><u>[New] 2024 Approved Charting a Course YouTube's Best Brands</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-frame-it-right-essential-composition-rules-for-youtube-filmmaking/"><u>[New] 2024 Approved Frame It Right Essential Composition Rules for YouTube Filmmaking</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-from-zero-to-hero-creating-an-online-gaming-empire/"><u>[New] 2024 Approved From Zero to Hero Creating an Online Gaming Empire</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-gain-currency-with-500-youtube-followers/"><u>[New] 2024 Approved Gain Currency with 500 YouTube Followers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-how-to-pinpoint-premium-video-keywords-on-youtube/"><u>[New] 2024 Approved How to Pinpoint Premium Video Keywords on YouTube</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-discovering-the-power-of-fraps-in-video-capture/"><u>[New] Discovering the Power of Fraps in Video Capture</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-technological-testing-and-tracking-the-vll-method/"><u>[New] Technological Testing and Tracking The VLL Method</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-engaging-readers-with-strategic-reddit-sharing-techniques/"><u>[Updated] In 2024, Engaging Readers with Strategic Reddit Sharing Techniques</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-lava-storm-5g-pin-codepattern-lockpassword-by-drfone-android/"><u>In 2024, How to Unlock Lava Storm 5G PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://driver-download.techidaily.com/latest-logitech-webcam-c930e-drivers-free-download-for-windows-10-or-11-users/"><u>Latest Logitech Webcam C930e Drivers Free Download for Windows 10 or 11 Users</u></a></li>
+<li><a href="https://techtrends.techidaily.com/maximizing-convenience-utilize-a-single-contact-number-for-all-your-phones-and-tablets/"><u>Maximizing Convenience: Utilize a Single Contact Number for All Your Phones and Tablets</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/-grab-your-complete-guide-to-effortless-video-capture-for-2024/"><u>Quick-Grab Your Complete Guide to Effortless Video Capture for 2024</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/simple-guide-to-intel-hd-graphics-driver-update/"><u>Simple Guide to Intel HD Graphics Driver Update</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/zdnet-unlocks-ultimate-tips-enhance-apple-watch-lifespan-with-these-8-essential-tweaks/"><u>ZDNet Unlocks Ultimate Tips: Enhance Apple Watch Lifespan with These 8 Essential Tweaks!</u></a></li>
 </ul></div>
 

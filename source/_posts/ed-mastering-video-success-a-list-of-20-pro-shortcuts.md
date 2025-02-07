@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Mastering Video Success  A List of 20 Pro Shortcuts\""
-date: 2025-01-23T16:14:09.290Z
-updated: 2025-01-25T16:08:16.284Z
+date: 2025-02-05T21:39:38.919Z
+updated: 2025-02-06T18:51:21.033Z
 tags:
   - ai video
   - ai youtube
@@ -37,10 +37,6 @@ With that said, the following two-columned tables give you detailed information 
 
 To make things convenient for you, the shortcut keys are placed under their corresponding categories, where each category is in the form of a two-columned table.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Category 1: YouTube Playback Hotkeys
 
 While watching a YouTube video, there might be instances when you want to pause and resume the playback. This category teaches how this can be done using the keyboard:
@@ -68,6 +64,10 @@ This section talks about the shortcut keys to skim the video forward and backwar
 If you’re watching videos on YouTube mobile app, you can use double-tap on the right side of the video player to skip 10 seconds forward, and double-tap on the left side of the video player to skip the video 10 seconds backward. Every double-tap forwards/rewinds the video in 10-seconds increments. E.g., Tapping 6 times on the right skips the video 30 seconds forward. Tapping 6 times on the left skips the video 30 seconds backward.
 
 Long press the Video Player and swipe right will navigate the video forward; and long press the video player and wwipe left will navigate the video backward.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Category 3: Manage Playback Speed
 
@@ -101,7 +101,7 @@ This category shows the shortcut keys to manage audio for a YouTube video:
 | '↓'               | Decrease volume by 5% |
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Category 6: Switching Between Screen Modes
@@ -118,6 +118,10 @@ Double press F/T/I on the keyboard will exit the full-screen/theater model/indep
 
 If you are watching video on YouTube mobile app, you can swipe up the video slightly to enter the full screen mode, and swipe down the video slightly to exit the full screen.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Category 7: Viewing 360o/VR Videos
 
 In this category, the navigation and management of shortcut keys for 360o and Virtual Reality (VR) view are discussed:
@@ -131,7 +135,7 @@ In this category, the navigation and management of shortcut keys for 360o and Vi
 | '+' (Plus Key on Keyboard)  | Increase font size                                    |
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Bonus: How to Get the YouTube Shortcut List with One-Click
@@ -146,6 +150,10 @@ So, when you press the Shift+? on YouTube, you will see a full list of shortcuts
 
 ![YouTube Shortcut List](https://images.wondershare.com/filmora/article-images/youtube-keyboard-shortcuts-list.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Conclusion**
 
 Watching videos on YouTube is fun, and you can enjoy the clips, movies, tutorials, etc. more if you are well-aware of the important shortcut keys. This not only helps you navigate through the videos faster but also gives you relief from the additional efforts that you would otherwise have to make while grabbing the mouse, and then looking for and using the correct option.
@@ -154,15 +162,7 @@ As one of the most popular video editing software among YouTubers, Filmora provi
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -185,18 +185,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-streaming-with-flair-xbox-one-edition/"><u>[New] 2024 Approved Streaming with Flair Xbox One Edition</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-streamlining-your-verification-process-on-yt/"><u>[Updated] 2024 Approved Streamlining Your Verification Process on YT</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-understanding-the-importance-of-professional-images-as-thumbnails/"><u>[Updated] 2024 Approved Understanding the Importance of Professional Images as Thumbnails</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-a-step-by-step-approach-to-youtube-gold-music-reaction-magic/"><u>[Updated] A Step-by-Step Approach to YouTube Gold Music Reaction Magic</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-the-ultimate-guide-to-cinematography-on-youtube/"><u>[Updated] In 2024, The Ultimate Guide to Cinematography on YouTube</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-direct-youtube-file-access-tips/"><u>2024 Approved Direct YouTube File Access Tips</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-youtubing-green-magic-ideas-that-come-to-life/"><u>2024 Approved Youtubing Green Magic – Ideas That Come to Life</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/audio-assimilation-for-inshot-projects/"><u>Audio Assimilation for InShot Projects</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/avoiding-add-ons-for-disk-image-duality-on-pc/"><u>Avoiding Add-Ons for Disk Image Duality on PC</u></a></li>
-<li><a href="https://games-able.techidaily.com/how-to-join-a-minecraft-java-server-from-bedrock-using-geysermc/"><u>How to Join a Minecraft Java Server From Bedrock Using GeyserMC</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-reset-a-oppo-k11-5g-phone-that-is-locked-by-drfone-android/"><u>How to Reset a Oppo K11 5G Phone that is Locked?</u></a></li>
-<li><a href="https://review-topics.techidaily.com/remove-frp-lock-on-ace-2-pro-by-drfone-android-unlock-remove-google-frp/"><u>Remove FRP Lock on Ace 2 Pro</u></a></li>
-<li><a href="https://win-comparisons.techidaily.com/top-no-cost-substitutes-for-mackeeper-effective-data-restoration-tools-for-both-mac-and-pc/"><u>Top No-Cost Substitutes for Mackeeper: Effective Data Restoration Tools for Both Mac & PC</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-crafting-cross-social-media-content-strategy-with-youtube-and-fb/"><u>[New] 2024 Approved Crafting Cross-Social Media Content Strategy with YouTube & FB</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-elevating-your-artistry-in-lyric-videos-through-lyric-video-maker-mastery/"><u>[New] 2024 Approved Elevating Your Artistry in Lyric Videos Through Lyric Video Maker Mastery</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-kickstarting-your-digital-voice-the-complete-process-of-starting-a-youtube-chanel/"><u>[New] 2024 Approved Kickstarting Your Digital Voice The Complete Process of Starting a YouTube Chanel</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/-best-webspots-free-eco-backdrops-and-footage-collection/"><u>[New] 8 Best Webspots FREE Eco-Backdrops and Footage Collection</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-pushing-boundaries-a-roundup-of-the-best-nft-generators-available/"><u>[Updated] In 2024, Pushing Boundaries A Roundup of the Best NFT Generators Available</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-instagram-insights-identifying-your-posts-audience/"><u>[Updated] Instagram Insights Identifying Your Post's Audience</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-from-video-to-animation-easy-youtube-gif-creation-tips/"><u>In 2024, From Video to Animation Easy YouTube GIF Creation Tips</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-seamless-online-media-dissemination-on-vimeo/"><u>In 2024, Seamless Online Media Dissemination on Vimeo</u></a></li>
+<li><a href="https://games-able.techidaily.com/master-mobile-gaming-performance-explore-two-fps-assessment-methods/"><u>Master Mobile Gaming Performance: Explore Two FPS Assessment Methods</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/1715701110135-odins-revenge-ragnarok-coming-soon/"><u>Odin's Revenge Ragnarök - Coming Soon!</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/solving-windows-package-unopenable-error-a-step-by-step-guide/"><u>Solving Windows' Package Unopenable Error: A Step-by-Step Guide</u></a></li>
+<li><a href="https://some-tips.techidaily.com/upcoming-apple-ipads-expected-to-hit-shelves-by-march-or-april-2ebynds-sources-report-zdnet-insights/"><u>Upcoming Apple iPads Expected to Hit Shelves by March or April 2Ebynds, Sources Report | ZDNet Insights</u></a></li>
 </ul></div>
 
