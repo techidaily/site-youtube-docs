@@ -1,7 +1,7 @@
 ---
 title: "[New] Achieving Depth in Indoor Vlogging Lighting"
-date: 2025-01-31T23:07:53.395Z
-updated: 2025-02-07T05:39:29.860Z
+date: 2025-02-09T17:18:36.890Z
+updated: 2025-02-16T17:49:16.795Z
 tags:
   - ai video
   - ai youtube
@@ -34,12 +34,16 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Video Lighting Basics: Three Point Lighting
 
 ![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
@@ -54,10 +58,6 @@ The **fill light** is less bright than the primary source of light and it is pla
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
 ### Watch Video! Top Lighting Tips for Vlogging
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
 
@@ -86,7 +86,7 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
@@ -96,7 +96,7 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
@@ -106,7 +106,7 @@ If you are stuck shooting in **low light conditions** it is best to use a lens w
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -130,17 +130,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/ecoming-a-youtube-star-utilizing-the-power-of-featured-channels-for-2024/"><u>[New] Becoming a Youtube Star Utilizing the Power of Featured Channels for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/oost-youtube-video-performance-with-rapid-rendering-methods/"><u>[New] Boost YouTube Video Performance with Rapid Rendering Methods</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ontent-spotlight-platform-perks-compared/"><u>[New] Content Spotlight Platform Perks Compared</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-digital-content-arena-competing-titans-vimeo-youtube-dailymotion/"><u>2024 Approved Digital Content Arena Competing Titans - Vimeo, YouTube, DailyMotion</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-poco-x6-pro-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Poco X6 Pro | Dr.fone</u></a></li>
-<li><a href="https://win-able.techidaily.com/how-to-eliminate-frame-drops-and-visual-hitches-in-warzone/"><u>How to Eliminate Frame Drops and Visual Hitches in Warzone</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/immersive-brain-teasers-for-apple-devices-akin-to-the-room-and-myst/"><u>Immersive Brain-Teasers for Apple Devices Akin to 'The Room' And 'Myst'</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-6-figure-views-prime-hashtag-strategies-for-success/"><u>In 2024, 6-Figure Views Prime Hashtag Strategies for Success</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-did-your-iphone-11-pro-max-passcode-change-itself-unlock-it-now-drfone-by-drfone-ios/"><u>In 2024, Did Your iPhone 11 Pro Max Passcode Change Itself? Unlock It Now | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Apple iPhone 11 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/mline-your-video-watching-experience-with-easy-timestamp-addition/"><u>Streamline Your Video Watching Experience with Easy Timestamp Addition</u></a></li>
-<li><a href="https://win-blog.techidaily.com/wsappx-overview-identifying-the-reasons-behind-heavy-system-resource-usage-and-remedies/"><u>WSAPPX Overview – Identifying the Reasons Behind Heavy System Resource Usage & Remedies</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-top-5-video-tweaking-apps-for-social-networking/"><u>[New] 2024 Approved Top 5 Video Tweaking Apps for Social Networking</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-drafting-dynamic-denouements/"><u>[New] In 2024, Drafting Dynamic Denouements</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-thorough-examination-of-gecata-recorder/"><u>[New] In 2024, Thorough Examination of Gecata Recorder</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-pioneers-leading-the-charge-in-virtual-experiences-for-2024/"><u>[New] Pioneers Leading the Charge in Virtual Experiences for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nlocking-youtubes-potential-a-detailed-guide-on-tracking-earnings-and-audiences-for-2024/"><u>[New] Unlocking YouTube's Potential A Detailed Guide on Tracking Earnings and Audiences for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-scrutinizing-youtubes-comment-clusters/"><u>[Updated] 2024 Approved Scrutinizing YouTubes' Comment Clusters</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-create-captivating-yt-thumbnails-fast-in-2024/"><u>[Updated] Create Captivating YT Thumbnails Fast, In 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-master-the-art-of-video-cuts-essential-tools-for-mac-users/"><u>[Updated] In 2024, Master the Art of Video Cuts Essential Tools for Mac Users</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-perfect-settings-for-live-broadcasts/"><u>[Updated] In 2024, Perfect Settings for Live Broadcasts</u></a></li>
+<li><a href="https://discover-dash.techidaily.com/1-capture-video-and-sound-seamlessly-utilize-winxvideo-ais-advanced-recording-features/"><u>1. Capture Video & Sound Seamlessly: Utilize WinxVideo AI's Advanced Recording Features</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/p-rated-digital-video-cutting-tools/"><u>10 Top-Rated Digital Video Cutting Tools</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-experience-the-new-unleash-a-set-of-50-designs-for-free/"><u>2024 Approved Experience the New Unleash a Set of 50 Designs for Free</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-starting-a-sports-network-with-your-mac/"><u>2024 Approved Starting a Sports Network with Your Mac</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/beyond-video-chats-webcam-alternatives-for-2024/"><u>Beyond Video Chats Webcam Alternatives for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-from-youtube-to-high-definition-prime-downloader-choices/"><u>In 2024, From YouTube to High Definition Prime Downloader Choices</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/premiere-changes-for-images-pictureshift-genius-for-2024/"><u>Premiere Changes for Images PictureShift Genius for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/top-8-essential-uses-of-auto-gpt-a-comprehensive-guide/"><u>Top 8 Essential Uses of Auto-GPT: A Comprehensive Guide</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Exciting Conversation Starter Ideas\""
-date: 2025-02-02T04:18:27.858Z
-updated: 2025-02-07T02:57:20.734Z
+date: 2025-02-11T16:29:06.045Z
+updated: 2025-02-16T17:45:00.884Z
 tags:
   - ai video
   - ai youtube
@@ -38,7 +38,7 @@ Before starting your daily vlogging, you have to figure out one important thing 
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Do you have a niche?
@@ -53,6 +53,10 @@ The other reason it’s good to have a niche is that you’ll be able to use key
 * [What did you learn today?](#learn)
 
 Here are 4 things to talk about in your daily vlog:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What are you watching/reading?
 
@@ -77,7 +81,7 @@ It does not matter what it is that is making you have this strong reaction (unle
 Alternatively: you could do a vlog about how happy you are to have gotten engaged or a vlog about how happy you are that it was sunny today, and your enthusiasm will carry your audience through either video with you.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What did you learn today?
@@ -97,16 +101,12 @@ The puya chilensis is a plant that ‘eats’ sheep (sheep get stuck to it, star
 Sea monkeys can survive in space.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## EVERYTHING
 
 You could also just flick the camera on and tell the full story of your day like you’d do in a traditional daily blog. What did you have for breakfast, how was school/work, did you talk to any friends, how was the weather – anything and everything. Generally, these videos can run a bit long and don’t have a lot of snappy editing. They’re faster to make, which is good if you’re doing them every day, but the unpolished nature of them won’t appeal to everyone. It will be exactly what appeals to some people, though.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Customize Your Vlog Stories with Powerful Video Editor
 
@@ -119,7 +119,7 @@ It’s got strategies that have worked for other YouTubers, boiled down to simpl
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -143,22 +143,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-innovative-editing-youtube-studio-edition-insights/"><u>[New] 2024 Approved Innovative Editing YouTube Studio Edition Insights</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-ideal-mac-tools-to-record-your-workscreen/"><u>[New] Ideal Mac Tools to Record Your Workscreen</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/tep-by-step-guide-to-incorporating-yt-clips-into-presentations/"><u>[New] Step-by-Step Guide to Incorporating YT Clips Into Presentations</u></a></li>
-<li><a href="https://some-tips.techidaily.com/new-the-ultimate-walkthrough-for-movie-making-on-windows-8/"><u>[New] The Ultimate Walkthrough for Movie Making on Windows 8</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-zippy-zenith-the-quickest-youtube-playlist-share/"><u>[New] Zippy Zenith The Quickest Youtube Playlist Share</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-streamlined-method-for-crafting-mobile-focused-youtube-channels/"><u>[Updated] Streamlined Method for Crafting Mobile-Focused YouTube Channels</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-boosting-views-mastering-hashtags-in-freefire-vids/"><u>2024 Approved Boosting Views Mastering Hashtags in FreeFire Vids</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-step-backward-in-time-reversing-youtube-media/"><u>2024 Approved Step Backward in Time Reversing YouTube Media</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/does-samsung-galaxy-f54-5g-support-mkv-video-files-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Does Samsung Galaxy F54 5G support MKV video files?</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/tial-video-marketing-strategies-top-8-verified-services/"><u>Essential Video Marketing Strategies Top 8 Verified Services</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/atching-thumbnails-the-top-20-youtube-fonts-unveiled-for-2024/"><u>Eye-Catching Thumbnails The Top 20 YouTube Fonts Unveiled for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-decoding-youtubes-thumbnail-impact-on-traffic/"><u>In 2024, Decoding YouTube's Thumbnail Impact on Traffic</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-free-video-editing-software-round-up-choose-from-7-options/"><u>In 2024, Free Video Editing Software Round-Up Choose From 7 Options</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-quick-guide-youtube-videos-turned-into-engaging-animation-gifs/"><u>In 2024, Quick Guide YouTube Videos Turned Into Engaging Animation Gifs</u></a></li>
-<li><a href="https://some-tips.techidaily.com/latest-gadgets-from-ces-202-available-immediately-exclusive-offers-on-zdnet/"><u>Latest Gadgets From CES 202# Available Immediately - Exclusive Offers on ZDNet</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/unlock-gaming-bliss-with-top-chatgpt-games-of-the-year/"><u>Unlock Gaming Bliss with Top ChatGPT Games of the Year</u></a></li>
-<li><a href="https://change-location.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-vivo-v27-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Vivo V27? | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-top-picks-for-superior-nintendo-switch-gaming/"><u>[New] In 2024, Top Picks for Superior Nintendo Switch Gaming</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-precise-portrayal-of-pixels-master-netflix-recordings-with-these-6-mac-tactics/"><u>[Updated] 2024 Approved Precise Portrayal of Pixels Master Netflix Recordings with These 6 Mac Tactics</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-brief-overview-of-the-quickest-chroma-key-tricks/"><u>[Updated] Brief Overview of the Quickest Chroma Key Tricks</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-streamlining-youtube-watch-order-masterclass/"><u>[Updated] Streamlining YouTube Watch Order Masterclass</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-cinematic-clips-reviewed-best-in-the-business/"><u>2024 Approved Cinematic Clips Reviewed Best in the Business</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/choosing-wisely-how-does-an-ipad-pro-stack-up-against-a-macbook-air/"><u>Choosing Wisely: How Does an iPad Pro Stack Up Against a MacBook Air?</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-redefines-connectivity-with-unique-subscription-link-solutions/"><u>Facebook Redefines Connectivity with Unique Subscription Link Solutions</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-oppo-a59-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Oppo A59 5G | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-unleashing-the-full-potential-of-your-phone-into-vr-realm/"><u>In 2024, Unleashing the Full Potential of Your Phone Into VR Realm</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-youtube-video-animation-tools-and-techniques-for-efficient-gif-making/"><u>In 2024, YouTube Video Animation Tools and Techniques for Efficient Gif Making</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/key-picks-the-best-6-online-communities-for-enterprise-expansion/"><u>Key Picks The Best 6 Online Communities for Enterprise Expansion</u></a></li>
+<li><a href="https://games-able.techidaily.com/top-ranked-switch-joypads-and-controllers/"><u>Top-Ranked Switch Joypads & Controllers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/king-superior-sound-recordings-minus-the-mic-for-2024/"><u>Unlocking Superior Sound Recordings Minus the Mic for 2024</u></a></li>
 </ul></div>
 

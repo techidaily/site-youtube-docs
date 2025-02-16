@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Charting the Course  From Scale to Submillions in Youtube\""
-date: 2024-07-29T16:37:10.293Z
-updated: 2024-07-30T16:37:10.293Z
+date: 2025-02-10T18:33:03.511Z
+updated: 2025-02-16T20:34:24.821Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/2d6e3d004fe41d35820dae54c2391ec61920df6e0
 
 # Case Study: How to Grow on YouTube to Have Millions of Subs
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -34,14 +31,16 @@ You’ve probably heard of stories about individuals who managed to find financi
 Jesse Ridgway is the owner of the vlog [McJuggerNuggets](https://www.youtube.com/user/McJuggerNuggets), which has grown to over 3.4 million subscribers. He makes enough money to live off of YouTube alone. Here is a case study of how he made his first $10,000 on YouTube:
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Case Study of McJuggerNuggets
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Case Study McJugger Nuggets](https://images.wondershare.com/filmora/article-images/case-study-mcjugger-nuggets.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Jesse was one of the earliest YouTubers. He started his channel on December 9, 2006\. Jesse never guessed that he would make enough money to live off of the videos he was creating. Here are some of the ways that he monetized his channel:
 
@@ -92,19 +91,22 @@ Regular research into your target market will help you to create the trendiest n
 Timing and luck are definitely two of the biggest factors in becoming a success on YouTube. If you are willing to keep working and don’t get discouraged you will eventually earn profits.
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Edit Your Videos with High-Quality Video Editor
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -112,14 +114,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -128,4 +127,24 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-from-vision-to-reality-taking-control-of-your-lyric-videos-with-lyric-video-maker/"><u>[New] 2024 Approved From Vision to Reality Taking Control of Your Lyric Videos with Lyric Video Maker</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ecoming-a-lyric-video-pro-a-lyric-video-makers-journey/"><u>[New] Becoming a Lyric Video Pro A Lyric Video Maker's Journey</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-enhancing-user-engagement-how-to-use-youtube-tags-effectively/"><u>[New] In 2024, Enhancing User Engagement How to Use YouTube Tags Effectively</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-securely-distributing-exclusive-youtube-videos-through-gmail/"><u>[New] In 2024, Securely Distributing Exclusive YouTube Videos Through Gmail</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/aughters-playground-top-15-youtube-hits-for-fun/"><u>[New] Laughter's Playground Top 15 YouTube Hits for Fun</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-heating-up-your-youtube-videos-with-top-winter-backdrops/"><u>[Updated] 2024 Approved Heating Up Your YouTube Videos with Top Winter Backdrops</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-ultimate-virtual-sound-devices/"><u>[Updated] 2024 Approved Ultimate Virtual Sound Devices</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-fifa-highlights-and-trends-charting-on-youtube-for-2024/"><u>[Updated] FIFA Highlights & Trends Charting on YouTube for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-sculpting-memorable-moments-in-your-shows-start/"><u>[Updated] Sculpting Memorable Moments in Your Show's Start</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-discover-the-secret-art-of-crafting-podcast-narratives/"><u>2024 Approved Discover the Secret Art of Crafting Podcast Narratives</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-unlocking-higher-view-counts-through-sustained-compliance-with-youtube-cc/"><u>2024 Approved Unlocking Higher View Counts Through Sustained Compliance with YouTube CC</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/easy-fixes-for-windows-11-pc-reset-errors-learn-how-to-resolve-them-today/"><u>Easy Fixes for Windows 11 PC Reset Errors - Learn How to Resolve Them Today</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/how-bmws-innovative-wireless-charger-could-damage-future-iphones/"><u>How BMW's Innovative Wireless Charger Could Damage Future iPhones</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-itel-a60-location-on-skout-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Itel A60 Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-probing-into-prominent-user-speeches/"><u>In 2024, Probing Into Prominent User Speeches</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-transforming-viewers-into-income-how-many-votes-yield-earnings/"><u>In 2024, Transforming Viewers Into Income How Many Votes Yield Earnings?</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ditors-journey-mastering-the-art-of-youtube-cuts-for-2024/"><u>The Editor's Journey Mastering the Art of Youtube Cuts for 2024</u></a></li>
+</ul></div>
 

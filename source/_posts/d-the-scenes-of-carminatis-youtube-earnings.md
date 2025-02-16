@@ -1,7 +1,7 @@
 ---
 title: "Behind the Scenes of Carminati’s YouTube Earnings"
-date: 2025-02-05T04:56:59.311Z
-updated: 2025-02-07T03:53:58.554Z
+date: 2025-02-13T18:43:41.888Z
+updated: 2025-02-16T18:35:07.731Z
 tags:
   - ai video
   - ai youtube
@@ -24,10 +24,6 @@ Getting excited, we too!!! So, in this article, we will learn all about who is A
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 1: Who is CarryMinati?
 
@@ -73,6 +69,10 @@ A major part of Ajay Nagar’s income comes from YouTube videos and in addition 
 
 The statistics related to the views and income about CarryMinati are quite interesting and this makes everyone curious about what makes the channel and this person so popular on YouTube. If you too have been curious about the same, head to our next section.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: Why is Carry Minati trending on YouTube?
 
 Just like the statistics, the facts related to CarryMinati’s popularity are equally interesting. Every YouTube channel or an influencer who is popular and trending have their own uniqueness and when it comes to CarrayMinati aka Ajay Nagar, there are several factors that makes him a sensation. Shortlisted some of them are as below.
@@ -105,6 +105,10 @@ The End (The video was uploaded on 8th May 2020 and had over 65 million views wi
 
 ![youtube vs tiktok the end](https://images.wondershare.com/filmora/article-images/2022/11/youtube-monetization-carryminati-youtube-income-2022-02.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 [Film the Flare](https://www.youtube.com/watch?v=GOFQN8otiYs)
 
 <https://youtu.be/GOFQN8otiYs>
@@ -118,7 +122,7 @@ This video is about the Indian Film Industry and the awards given to the stars. 
 It is an interesting video of around 17 minutes where Ajay Nagar has acted along with other people to create a fun plot based of PUBG game.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Bonus Tip: How to be a YouTuber and Make Videos like Carryminati
@@ -149,17 +153,21 @@ Step1 Launch the installed software on your system and add the media file to the
 
 ![wondershare filmora ai portrait 1](https://images.wondershare.com/filmora/article-images/2022/11/youtube-monetization-carryminati-youtube-income-2022-03.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step2 Next, go to Effects > Ai Portrait, and the options of the features can be checked here. Click on the thumbnail and the feature can be viewed in the preview window.
 
 ![wondershare filmora ai portrait 2](https://images.wondershare.com/filmora/article-images/2022/11/youtube-monetization-carryminati-youtube-income-2022-05.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step3 Drag the selected Portrait to the timeline and from the pop-up window choose to Purchase the additional module. You can check the result by playing the video. If needed multiple AI Portraits can be added to the video.
 
 ![wondershare filmora ai portrait 3](https://images.wondershare.com/filmora/article-images/2022/11/youtube-monetization-carryminati-youtube-income-2022-06.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step4 If further customization is needed, you can even adjust the AI Portrait settings.
 
@@ -169,13 +177,13 @@ Step5 When finally, all the settings are done, click on the Export button to sav
 
 ![wondershare filmora ai portrait 5](https://images.wondershare.com/filmora/article-images/2022/11/youtube-monetization-carryminati-youtube-income-2022-08.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Hot FAQs on CarryMinati
 
 Below we have answered some hot frequently asked questions about CarryMinati.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. Is Carry Minati married?
 
@@ -202,10 +210,6 @@ If you too have got inspired and looking forward to starting with some interesti
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 So, by now we know that CarryMinati aka Ajay Nagar is quite popular on YouTube. But, what does this popularity gets him in terms of money? Yes, this is an interesting question and the answer for this, you can check out in the next part of the topic.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: CarryMinati YouTube earning and stats
 
@@ -256,10 +260,6 @@ The End (The video was uploaded on 8th May 2020 and had over 65 million views wi
 
 ![youtube vs tiktok the end](https://images.wondershare.com/filmora/article-images/2022/11/youtube-monetization-carryminati-youtube-income-2022-02.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 [Film the Flare](https://www.youtube.com/watch?v=GOFQN8otiYs)
 
 <https://youtu.be/GOFQN8otiYs>
@@ -308,12 +308,16 @@ Step3 Drag the selected Portrait to the timeline and from the pop-up window choo
 
 ![wondershare filmora ai portrait 3](https://images.wondershare.com/filmora/article-images/2022/11/youtube-monetization-carryminati-youtube-income-2022-06.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step4 If further customization is needed, you can even adjust the AI Portrait settings.
 
 ![wondershare filmora ai portrait 4](https://images.wondershare.com/filmora/article-images/2022/11/youtube-monetization-carryminati-youtube-income-2022-07.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step5 When finally, all the settings are done, click on the Export button to save the file.
@@ -321,7 +325,7 @@ Step5 When finally, all the settings are done, click on the Export button to sav
 ![wondershare filmora ai portrait 5](https://images.wondershare.com/filmora/article-images/2022/11/youtube-monetization-carryminati-youtube-income-2022-08.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Hot FAQs on CarryMinati
@@ -336,10 +340,6 @@ No, till date, CarryMinati aka Ajay Nagar is not married.
 
 Calculating the income from a YouTube video can be a complicated task that depends on several factors like views, likes, ads in the video, and more.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. Which actors has Carry Minati interviewed?
 
 Carry Minati has interviewed popular actors like Tom Cruise, Tessa Thompson, Henry Cavil, and others celebrities.
@@ -347,7 +347,7 @@ Carry Minati has interviewed popular actors like Tom Cruise, Tessa Thompson, Hen
 ![carryminati with tom cruise](https://images.wondershare.com/filmora/article-images/2022/11/youtube-monetization-carryminati-youtube-income-2022-09.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Final Words
@@ -381,19 +381,21 @@ If you too have got inspired and looking forward to starting with some interesti
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-twitters-quick-fix-for-downloading-funny-images-on-pc/"><u>[New] In 2024, Twitter's Quick-Fix for Downloading Funny Images on PC</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/eading-software-lineup-8-linux-editing-sleuths/"><u>[New] Leading Software Lineup 8 Linux Editing Sleuths</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-soaring-sights-dissecting-the-gopro-karma-drones-features/"><u>[New] Soaring Sights Dissecting the GoPro Karma Drone's Features</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/outube-time-travel-how-to-flip-videos/"><u>[New] YouTube Time Travel How to Flip Videos</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-completely-erase-your-connection-with-youtube-shorts-for-2024/"><u>[Updated] Completely Erase Your Connection with YouTube Shorts for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-keeping-your-virtual-circle-true-not-tainted-by-tricks/"><u>[Updated] Keeping Your Virtual Circle True, Not Tainted by Tricks</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-maximize-iphone-screen-space-with-smaller-videos/"><u>2024 Approved Maximize iPhone Screen Space with Smaller Videos</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/dable-youtube-intro-designs-and-templates/"><u>Affordable YouTube Intro Designs and Templates</u></a></li>
-<li><a href="https://windows11.techidaily.com/guide-re-implementing-windows-11s-search-bar-as-an-icon/"><u>Guide: Re-Implementing Windows 11'S Search Bar as an Icon</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-asus-rog-phone-8-drfone-by-drfone-virtual-android/"><u>Preparation to Beat Giovani in Pokemon Go For Asus ROG Phone 8 | Dr.fone</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/resolving-iphone-syncing-issues-with-itunes-overcoming-the-error-code-54-on-windows-11/"><u>Resolving iPhone Syncing Issues with iTunes: Overcoming the Error Code -54 on Windows 11</u></a></li>
-<li><a href="https://article-files.techidaily.com/secrets-of-effortless-online-video-downloading-on-pinterest-for-2024/"><u>Secrets of Effortless Online Video Downloading on Pinterest for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/formative-techniques-to-mute-background-noise-for-2024/"><u>Transformative Techniques to Mute Background Noise for 2024</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/tutorial-to-change-honor-x50-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>Tutorial to Change Honor X50 IMEI without Root A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-affordable-cameras-for-effective-vloggers/"><u>[New] In 2024, Affordable Cameras for Effective Vloggers</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-mastering-fb-slideshows-for-content-sharing-for-2024/"><u>[New] Mastering FB Slideshows for Content Sharing for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-transforming-tweetstream-into-hd-visionary-content-for-2024/"><u>[New] Transforming Tweetstream Into HD Visionary Content for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-channel-trailers-that-convert-viewers-into-customers/"><u>[Updated] 2024 Approved Channel Trailers that Convert Viewers Into Customers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-precision-in-sound-cutting-out-unwanted-volume/"><u>[Updated] 2024 Approved Precision in Sound Cutting Out Unwanted Volume</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-decoding-youtubes-economic-strategy-the-rise-of-short-videos/"><u>[Updated] In 2024, Decoding YouTube’s Economic Strategy The Rise of Short Videos</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-into-the-fray-with-polaroid-cubeplus-action-recorder/"><u>[Updated] Into the Fray with Polaroid Cube+ Action Recorder</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-obs-101-youtube-live-stream-setup-tutorial-for-2024/"><u>[Updated] OBS 101 Youtube Live Stream Setup Tutorial for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>Best Pokemons for PVP Matches in Pokemon Go For Apple iPhone 7 | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-full-guide-to-unlock-your-sony-xperia-1-v-by-drfone-android/"><u>In 2024, Full Guide to Unlock Your Sony Xperia 1 V</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-sound-fidelity-at-home-mastering-quality-recordings/"><u>In 2024, Sound Fidelity at Home Mastering Quality Recordings</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-thrill-seekers-challenge-hero5b-vs-hero5-session-in-action/"><u>In 2024, Thrill Seekers Challenge Hero5B Vs Hero5 Session in Action</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/movavirafjpg/"><u>Movaviアプリを使ったお手軽なRAFファイルからJPGへのコストなし画像変換</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/reliable-petfeeding-solution-with-petsafes-automated-six-meal-dispenser/"><u>Reliable PetFeeding Solution with PetSafe's Automated Six-Meal Dispenser</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ate-list-hashtags-for-maximum-video-engagement-in-games/"><u>Ultimate List Hashtags for Maximum Video Engagement in Games</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/unpacking-apples-new-ai-features-at-wwdc-surprisingly-dull-yet-reassuring/"><u>Unpacking Apple’s New AI Features at WWDC: Surprisingly Dull Yet Reassuring</u></a></li>
 </ul></div>
 

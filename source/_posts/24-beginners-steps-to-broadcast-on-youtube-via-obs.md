@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Beginner's Steps to Broadcast on Youtube via OBS"
-date: 2024-07-29T16:37:15.314Z
-updated: 2024-07-30T16:37:15.314Z
+date: 2025-02-10T17:31:36.430Z
+updated: 2025-02-16T20:50:03.355Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/31e3ae8455d50c80842cdc2a354e8096f8d646d3d
 
 # Live stream to youtube with OBS step by step guide for beginners
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -40,30 +37,21 @@ Follow these steps to live stream your impressive videos to YouTube using Stream
 
 ![ creator studio](https://images.wondershare.com/filmora/article-images/creator-studio.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2:** Choose the Video Manager option from top most toolbar.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
-<!-- affiliate ads end -->
 ![video manager ](https://images.wondershare.com/filmora/article-images/video-manager.jpg)
 
 **Step 3:** From the drop down menu, simply select Live Streaming option to begin with.
 
 ![live streaming ](https://images.wondershare.com/filmora/article-images/live-streaming.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 4:** Now hot the steam now option on your screen.
 
@@ -73,11 +61,12 @@ Key features:
 
 ![thumbnail ](https://images.wondershare.com/filmora/article-images/thumbnail.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 6:** It is time to provide an eye catching title to your video, add description and finally choose category from the drop down menu.
 
-<!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![  category](https://images.wondershare.com/filmora/article-images/category.jpg)
 
 **Step 7:** While using stream option, never forget to click on ‘make archive unlisted when complete’ option so that you can save as well as watch your content on YouTube at later stage.
@@ -86,16 +75,10 @@ Key features:
 
 **Step 8:** You can monetize your ads as per need.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![Monetizae you ](https://images.wondershare.com/filmora/article-images/monetizae-you.jpg)
 
 **Step 9:** It also provides options to add cards.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![add your cards ](https://images.wondershare.com/filmora/article-images/add-your-cards.jpg)
 
 **Step 10:** Now move to encoder setup and then simply copy and paste these details to your streaming software.
@@ -104,25 +87,27 @@ Key features:
 
 **Step 11:** Now you can set your live chat option as per your requirement.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![ chat accordingly](https://images.wondershare.com/filmora/article-images/chat-accordingly.jpg)
 
 **Step 12:** The analysis window will help you to know about how many viewers are connected to your video as well as the message updates will be reflected.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![watching and messages ](https://images.wondershare.com/filmora/article-images/watching-and-messages.jpg)
 
 **Step 13:** Stream health can be monitored directly.
 
 ![stream health ](https://images.wondershare.com/filmora/article-images/stream-health.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 14:** One can also use the social media button for live shares.
 
 ![ share via](https://images.wondershare.com/filmora/article-images/share-via.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2.Set up Your Live Streaming Encoder
 
@@ -138,6 +123,10 @@ As soon as you have completed the above set up then next task is to adjust setti
 
 ![youtube to OBS ](https://images.wondershare.com/filmora/article-images/youtube-to-obs.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4:** Users can now add their sources and scenes.
 
 ![add you scenes ](https://images.wondershare.com/filmora/article-images/add-you-scenes.jpg)
@@ -147,8 +136,9 @@ As soon as you have completed the above set up then next task is to adjust setti
 ![ click start streaming](https://images.wondershare.com/filmora/article-images/click-start-streaming.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Youtube Events set up
 
 Live stream is little different from Stream Now platform as it allows users to schedule the streams as well as a connectivity to Google Hangouts is provided. These easy to follow steps will assist you to handle all settings for your events using Live Stream tool:
@@ -157,33 +147,24 @@ Live stream is little different from Stream Now platform as it allows users to s
 
 ![schedule ](https://images.wondershare.com/filmora/article-images/schedule.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2:** It is much easier to make settings for basic information as well as audience type. Make some desired changes to SNS platform. If you select the Quick type then it will directly select your webcam and you need not to make additional complicated settings whereas the custom type option provides easy set up options with OBS.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![set the basic ](https://images.wondershare.com/filmora/article-images/set-the-basic.jpg)
 
 **Step 3:** The advance settings option works same as that of stream now features and users can adjust most of these settings as per their streaming needs.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
-<!-- affiliate ads end -->
 ![ advance setting](https://images.wondershare.com/filmora/article-images/advance-setting.jpg)
 
 **Step 4:** Users can turn monetization On or Off as per their preferences.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
-<!-- affiliate ads end -->
 ![ monetization](https://images.wondershare.com/filmora/article-images/monetization.jpg)
 
 **Step 5:** As soon as you finish all above settings then simply click on the create event option.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ![click create event](https://images.wondershare.com/filmora/article-images/click-create-event.jpg)
 
 **Step 6:** One more window will appear on your screen and here you can make adjustment for preferred bit rate. Also put your dedicated stream key with encoder.
@@ -192,10 +173,11 @@ Live stream is little different from Stream Now platform as it allows users to s
 
 **Step 7:** When all above steps are completed then you need to hit the option for save changes so that your tool can act accordingly.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
-<!-- affiliate ads end -->
 ![save changes ](https://images.wondershare.com/filmora/article-images/save-changes.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 8:** Now click on events and here you will be able to find your event. Move to live control room if you want to access complete details about this event and you can easily delete it.
 
@@ -203,14 +185,12 @@ Live stream is little different from Stream Now platform as it allows users to s
 
 **Step 9:** Users can set privacy terms or simple delete the event that is currently in action.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ![set the privacy ](https://images.wondershare.com/filmora/article-images/set-the-privacy.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Video tutorial
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -221,14 +201,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -237,4 +214,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-saving-instagram-content-easy-no-frill-methods-exposed/"><u>[New] 2024 Approved Saving Instagram Content Easy, No-Frill Methods Exposed</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/emystifying-the-process-of-submitting-videos-on-youtube/"><u>[New] Demystifying the Process of Submitting Videos on YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-from-unconfident-to-impactful-embracing-youtube-blogging/"><u>[New] In 2024, From Unconfident to Impactful Embracing YouTube Blogging</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-probing-into-youtube-discussions/"><u>[New] In 2024, Probing Into YouTube Discussions</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-the-art-of-adding-emojis-to-youtube-comments/"><u>[New] In 2024, The Art of Adding Emojis to YouTube Comments</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-dynamic-expression-techniques-for-animated-text-in-ig-stories/"><u>[Updated] In 2024, Dynamic Expression Techniques for Animated Text in IG Stories</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-youtube-affiliate-marketing-how-to-make-money-with-it/"><u>[Updated] In 2024, YouTube Affiliate Marketing How to Make Money with It</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-iphone-expertise-continuous-video-play-for-2024/"><u>[Updated] IPhone Expertise Continuous Video Play for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/5-quick-methods-to-bypass-nokia-xr21-frp-by-drfone-android/"><u>5 Quick Methods to Bypass Nokia XR21 FRP</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/s-all-audio-extracted-top-free-youtube-to-mp3-converter-guide-for-2024/"><u>Access All Audio Extracted Top Free YouTube to MP3 Converter Guide for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ing-the-essentials-of-your-youtube-tv-experience/"><u>Decoding the Essentials of Your YouTube TV Experience</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-fix-the-your-pc-is-out-of-memory-error-in-windows-1-groovy/"><u>How to Fix the 'Your PC Is Out of Memory' Error in Windows 1 Groovy</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-5-ways-to-track-oppo-find-x7-without-app-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Ways to Track Oppo Find X7 without App | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-essential-picks-discover-the-top-12-easy-to-use-flipscreen-cams/"><u>In 2024, Essential Picks Discover the Top 12 Easy-to-Use Flipscreen Cams</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-simplifying-slides-with-vimeo-video-integration-tutorial/"><u>In 2024, Simplifying Slides with Vimeo Video Integration Tutorial</u></a></li>
+<li><a href="https://fox-useful.techidaily.com/resolving-connection-problems-with-your-apple-id-server-top-10-tips/"><u>Resolving Connection Problems with Your Apple ID Server: Top 10 Tips</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solution-steps-for-malfunctioning-logitech-microphone-and-webcam-setup/"><u>Solution Steps for Malfunctioning Logitech Microphone & Webcam Setup</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/the-art-of-instagram-covers-your-stepwise-journey-begins-here-for-2024/"><u>The Art of Instagram Covers Your Stepwise Journey Begins Here for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/the-yield-strength-of-a-material-is-a-key-factor-in-determining-safe-test-pressures-during-hydrostatic-testing/"><u>The Yield Strength of a Material Is a Key Factor in Determining Safe Test Pressures During Hydrostatic Testing.</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Starter Kit  The Essential YouTube Setup\""
-date: 2024-07-29T16:38:52.510Z
-updated: 2024-07-30T16:38:52.510Z
+date: 2025-02-10T16:37:30.514Z
+updated: 2025-02-16T20:05:16.266Z
 tags:
   - ai video
   - ai youtube
@@ -55,48 +55,48 @@ The best camera for beginners is the one you already have. Most smartphones thes
 
 Check out my full list of [10 Things To Look For In A Vlogging Camera](https://www.filmora.io/community-blog/10-things-to-look-for-in-a-vlogging-camera-393.html) to understand the importance of these camera features.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Best Cheap Vlogging Cameras
 
 Below are the best cheap vlogging cameras that you can get for under $500\. They all record at least 1080p HD video and all but the Sony Alpha a5100 come with optical image stabilization (if you want OIS with the Sony a5100, you’ll have it get it in the lens).
 
 | Camera             | Release Date                                                                                       | Camera Type  | Flip Screen       | 4K          | Price   |             |
 | ------------------ | -------------------------------------------------------------------------------------------------- | ------------ | ----------------- | ----------- | ------- | ----------- |
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 | Yi 4KAction Camera | ![Yi 4K](https://images.wondershare.com/filmora/article-images/yi-4k-action-camera.jpg)            | February2017 | Action Camera     | **No**      | **Yes** | $169 (MSRP) |
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 | NikonCoolpixA900   | ![Nikon A900](https://images.wondershare.com/filmora/article-images/nikon-coolpix-a900-camera.png) | February2016 | Compact           | Flip Up     | **Yes** | $399 (MSRP) |
 | NikonCoolpixB500   | ![Nikon B500](https://images.wondershare.com/filmora/article-images/nikon-coolpix-b500-camera.jpg) | February2016 | SLR-like (bridge) | **Tilting** | **No**  | $250 (MSRP) |
+
 <!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 | PolaroidCube+      | ![Polaroid Cube](https://images.wondershare.com/filmora/article-images/polaroid-cube-camera.jpg)   | June2015     | Action Camera     | **No**      | **No**  | $99 (MSRP)  |
 | SonyAlphaa5100     | ![Sony a5100](https://images.wondershare.com/filmora/article-images/sony-a5100-camera.jpg)         | August2014   | Mirrorless        | Flip Up     | **No**  | $450 (MSRP) |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 | ![Polaroid Cube](https://images.wondershare.com/filmora/article-images/polaroid-cube-camera.jpg)   | **Best cheap vlogging camera under $100:** Polaroid Cube+ Even before GoPro released their GoPro Session, Polaroid was the first to come out with a 1.4-inch, cube-shaped action camera, small enough to mount on a bike or a helmet. This camera has built-in magnets so that you can attach them to metal surfaces. This action camera is water-resistant, shock-proof, and weather-proof. It can record full HD 1080p videos at 60 fps with its wide-angle lens. You can connect this camera with your phone to preview and take your shots.          |
 | -------------------------------------------------------------------------------------------------- | -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 | ![Yi 4K](https://images.wondershare.com/filmora/article-images/yi-4k-action-camera.jpg)            | **Best cheap vlogging camera under $200:** Yi 4K At $200, you can record 4K videos with the Yi 4K action camera. Like many other action cameras, this camera is small, durable, and shoots through a wide-angle lens. You won't be able to take this camera underwater though because it isn't waterproof. You'll need to buy the right accessories for that.                                                                                                                                                                                            |
 | ![Nikon B500](https://images.wondershare.com/filmora/article-images/nikon-coolpix-b500-camera.jpg) | **Best cheap vlogging camera under $300:** Nikon B500 The Nikon B500 gives you a non-interchangeable zoom lens so that you have more control over how you compose your shots. This camera records full HD 1080p videos at either 30 or 25 fps. You can only set its ISO as high as 3200, so it's not going to perform the best in low-light conditions. The tilting LCD screen does not have touchscreen and cannot be fully flipped up or flipped to the side, it only tilts. For a camera in its price range, the Nikon B500 offers a lot of features. |
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 | ![Nikon A900](https://images.wondershare.com/filmora/article-images/nikon-coolpix-a900-camera.png) | **Best cheap vlogging camera under $400:** Nikon A900 The Nikon A900 not only comes with a non-interchangeable zoom lens, but it can also record videos in UHD 4K quality. Like the Nikon B500, the A900's ISO goes only up to 3200, making it a weak performer in poorly lit conditions.                                                                                                                                                                                                                                                                |
 | ![Sony a5100](https://images.wondershare.com/filmora/article-images/sony-a5100-camera.jpg)         | **Best cheap vlogging camera under $500:** Sony a5100 Among the cameras listed in our top cheap cameras list, the Sony a5100 is the only one you can interchange lenses with. All Sony E-mount lenses are compatible with this camera. This camera can record up to 1080p videos at 60 fps. Out of all of the above top cheap cameras, this one also auto focuses the best.                                                                                                                                                                              |
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ###  
 
 ### **Best Entry-Level and Mid-Range Vlogging Cameras**
@@ -108,28 +108,30 @@ If you have a bigger budget to work with, the following vlogging cameras are gre
 | CanonEOSM50       | ![Canon M50](https://images.wondershare.com/filmora/article-images/canon-m50-vlog-camera.jpg)   | February2018 | Mirrorless   | Fully Articulated | **Yes** | $- |
 | CanonEOSM100      | ![Canon M100](https://images.wondershare.com/filmora/article-images/canon-m100-vlog-camera.jpg) | August2017   | Mirrorless   | Flip Up           | **No**  | $  |
 | CanonEOS RebelSL2 | ![Canon SL2](https://images.wondershare.com/filmora/article-images/canon-sl2-vlog-camera.jpg)   | June2017     | Compact SLR  | Fully Articulated | **Yes** | $  |
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 | CanonEOS RebelT7i | ![Canon T7i](https://images.wondershare.com/filmora/article-images/canon-t7i-vlog-camera.jpg)   | February2017 | Mid-size SLR | Fully Articulated | **Yes** | $- |
+
 <!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 | CanonEOS80D       | ![Canon 80D](https://images.wondershare.com/filmora/article-images/canon-80d-vlog-camera.jpg)   | February2016 | Mid-size SLR | Fully Articulated | **Yes** | $$ |
 
 <!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 | ![Canon M100](https://images.wondershare.com/filmora/article-images/canon-m100-vlog-camera.jpg) | **Best entry-level mirrorless camera for vlogging:** Canon EOS M100 The Canon M100 is a small and powerful camera that can shoot full HD (1080p) videos up to 60 fps. The touchscreen LCD of this camera flips up so that you can see yourself as you vlog in selfie mode.                                                                                                                                  |
 | ----------------------------------------------------------------------------------------------- | ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 | ![Canon M50](https://images.wondershare.com/filmora/article-images/canon-m50-vlog-camera.jpg)   | **Best mid-range mirrorless camera for vlogging:** Canon EOS M50 The Canon EOS M50 can shoot UHD 4K videos at 23.98 fps. You can also record 120 fps slow-motion videos at 720p. Unlike the M100, which only has a flip up screen, the M50 has a fully articulated screen, so you can use this camera in selfie mode, all while using an on-camera shotgun microphone attached to the camera hot/cold shoe. |
 | ![Canon T7i](https://images.wondershare.com/filmora/article-images/canon-t7i-vlog-camera.jpg)   | **Best DSLR camera for daily vlogging:** Canon EOS T7i The Canon EOS T7i is a great DSLR camera for daily vlogging. It can record full HD 1080p videos at 60 fps, it can create HDR and time-lapse movies, and it also has a fully articulated screen.                                                                                                                                                      |
 | ![Canon SL2](https://images.wondershare.com/filmora/article-images/canon-sl2-vlog-camera.jpg)   | **Best entry-level DSLR camera for vlogging:** Canon EOS SL2 The Canon EOS SL2 delivers a lot of power at a low price. This DSLR camera can capture full HD 1080p videos at 60 fps.                                                                                                                                                                                                                         |
 | ![Canon 80D](https://images.wondershare.com/filmora/article-images/canon-80d-vlog-camera.jpg)   | **Best mid-range DSLR camera for vlogging:** Canon EOS 80D The Canon 80D is an exceptional mid-range DSLR vlogging camera with many features. Coming with a 45-point all cross phase detection autofocusing and a dual pixel CMOS AF system, the camera is great at finding the right focus while recording video.                                                                                          |
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ###  
 
 ## Part 2: YOUTUBE EQUIPMENT: LENS
@@ -142,9 +144,6 @@ When you start looking into bigger cameras, though, you’ll have to think about
 
 Every YouTuber should have a **wide-angle lens**. With this kind of lens, you can fit much more of a scene into your camera frame, including your own face when you’re just an arm’s length away from your camera. This is especially important for YouTubers because most YouTubers have to operate their camera on their own, without the assistance of an additional camera person.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Optical Image Stabilization
 
 You should also look for a lens with **optical image stabilization** if you’re shooting a lot of your YouTube videos handheld.
@@ -152,20 +151,15 @@ You should also look for a lens with **optical image stabilization** if you’re
 For more information on camera lenses, check out my [Vlogger’s Guide To Camera Lenses](https://www.filmora.io/community-blog/a-vloggers-guide-to-camera-lenses-408.html).
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 3: YOUTUBE EQUIPMENT: TRIPOD
 
 | ![Tripod](https://images.wondershare.com/filmora/article-images/tripod-youtube-starter-must-have-equipment.jpg) | **Tripod** If you plan to film yourself talking in front of the same, unchanging background for an extended period of time, it doesn’t make sense to film yourself handheld the entire time. You’ll just end up tiring your arm out and adding distracting shakiness to your footage. A tripod is a great solution to this problem. You can set up your framing once, press record, and leave your camera in its fixed position while you talk with both hands free.        |
 | --------------------------------------------------------------------------------------------------------------- | --------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 | ![Joby GorillaPod SLR-Zoom](https://images.wondershare.com/filmora/article-images/joby-gorillapod-tripod.jpg)   | **Joby GorillaPod With Ballhead** When you film yourself handheld, it’s difficult to keep your arm higher up so that your camera shoots down at an ideal angle. You may also notice that a lot of your arm gets into your shot, which you and other viewers might find distracting. Holding your camera up by a GorillaPod, however, can give you the extension you need to get that higher angle shot more easily, all without so much of your arm getting into your shot. |
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 4: YOUTUBE EQUIPMENT: MICROPHONE
 
 Most vlogging cameras come with a built-in microphone that gets the job done. If you want higher quality audio recordings, though, you should check out the following list of top microphones.
@@ -176,9 +170,6 @@ Most vlogging cameras come with a built-in microphone that gets the job done. If
 
 To read more about each of these microphones, check out our post on [The 19 Best YouTube Microphones 2018 – Options for Music, Voiceovers, Vlogging, and more!](https://www.filmora.io/community-blog/the-19-best-youtube-microphones-2018---options-for-music-352.html)
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 5: YOUTUBE EQUIPMENT: SMARTPHONE ACCESSORIES
 
 ![SMARTPHONE ACCESSORIES for YouTube Starter](https://images.wondershare.com/filmora/article-images/youtube-equipment-smartphone-accessories.jpg)
@@ -194,9 +185,6 @@ Using your smartphone’s camera to film your YouTube videos is a great idea sin
 
 Read about each one of these items and more in [The 9 Best Smartphone Camera Accessories For Vloggers](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 6: YOUTUBE EQUIPMENT: LIGHT
 
 Lighting for home living and lighting for filming is very different. If you try to make use of just the lights you have at home, you may find that your footage is too dark, grainy, and orange-tinted.
@@ -205,28 +193,17 @@ The solution to this problem is getting additional video lighting equipment with
 
 | ![Daytime Light Bulbs](https://images.wondershare.com/filmora/article-images/daytime-light-bulbs.jpg)   | **Daytime Light Bulbs** Your home is most likely lit with incandescent light bulbs that illuminate orange-tinted light. You can remove those light bulbs and replace them with daytime light bulbs that illuminate more of a white colored light.                                                                                                                                                     |
 | ------------------------------------------------------------------------------------------------------- | ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 | ![On-Camera LED Light](https://images.wondershare.com/filmora/article-images/on-camera-led-light.jpg)   | **On-Camera LED Light** If you need more light just in front of the camera and you need this light to be portable, LED lights that attach to your camera’s hot/cold shoe will do the job.                                                                                                                                                                                                             |
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 | ![LED Ring Light](https://images.wondershare.com/filmora/article-images/led-ring-light.jpg)             | **LED Ring Light** If you need more light just in front of the camera, you don’t have a lot of space, and you don’t need this light to be small and portable, an LED ring light is the best piece of equipment for you. You can position your camera inside the circular space of the ring light. This kind of light also gives your eyes the circular shaped highlight that many people like to see. |
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 | ![Softbox Video Light](https://images.wondershare.com/filmora/article-images/softbox-video-light.jpg)   | **Softbox Video Light** If you need more light and have more space, another piece of lighting equipment good for beginners is a softbox video light.                                                                                                                                                                                                                                                  |
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
-<!-- affiliate ads end -->
 | ![Umbrella Video Light](https://images.wondershare.com/filmora/article-images/umbrella-video-light.jpg) | **Umbrella Video Light** Umbrella video lights are very portable and affordable. The direction of the light from umbrella lights are more difficult to control than the light from softbox video lights.                                                                                                                                                                                              |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 If you're looking for recommendations on which piece of lighting equipment to buy, check out my list of the [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->
 ## Part 7: YOUTUBE EQUIPMENT: COMPUTER
 
 After you’ve recorded all your footage, you’ll need a computer to edit your video clips together. You can perform basic video editing tasks and upload your video onto YouTube with any computer less than ten years old.
@@ -235,9 +212,6 @@ Laptop computers are popular among YouTubers because their portability allows yo
 
 The following three laptop computers handle video editing very well:
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Computers for YouTube Starter](https://images.wondershare.com/filmora/article-images/youtube-equipment-for-beginner-computer-list.jpg)
 
 1. MacBook Pro With Touch Bar
@@ -254,9 +228,6 @@ Read more about these laptop computers for 4K video editing in [The Best Laptops
 | ------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- | ------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 | [OpenShot Video Editor](https://www.openshot.org/) (Windows, Mac, Linux) [ShotCut](https://shotcut.org/) (Windows, Mac, Linux) [Hitfilm Express](https://hitfilm.com/express) (Windows, Mac) [VideoPad Video Editor](http://www.nchsoftware.com/videopad/index.html) (Windows) [Lightworks](https://www.lwks.com/) (Windows, Mac, Linux) [VSDC Video Editor](http://www.videosoftdev.com/) (Windows) [Machete Video Editor Lite](http://www.machetesoft.com/home/about-machete-video-editor-lite.html) (Windows) [Avidemux](http://avidemux.sourceforge.net/) (Windows, Mac, Linux, BSD) Read more about each of these softwares in our post about [The Best Free Video Editing Software for YouTube](https://tools.techidaily.com/wondershare/filmora/download/). | [Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/) (Windows, Mac) - $40 one year license, $79.99 perpetual license. Free trial [Final Cut Pro](https://www.apple.com/ca/final-cut-pro/) (Mac) - $299.99, Free trial [Vegas Movie Studio](https://www.vegascreativesoftware.com/ca/vegas-movie-studio/) (Windows) - $49.99 |
 
-<!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## YOUTUBE EQUIPMENT: AUDIO
 
 ### **Music Libraries**
@@ -287,14 +258,11 @@ Sumia Rafique is a writer and a lover of all things video.
 
 Follow @Sumia Rafique
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -303,4 +271,17 @@ Follow @Sumia Rafique
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-step-1-to-50-building-a-foundation-for-mukbang-creation/"><u>[New] 2024 Approved Step 1 to 50 Building a Foundation for Mukbang Creation</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-stream-masters-list-elite-software-and-devices-for-youtubers/"><u>[New] 2024 Approved Stream Masters List Elite Software & Devices for Youtubers</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-affordable-high-performance-gaming-keyboards-listed/"><u>[New] In 2024, Affordable High-Performance Gaming Keyboards Listed</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-enhance-branding-the-ultimate-guide-to-custom-urls-for-youtube/"><u>[New] In 2024, Enhance Branding The Ultimate Guide to Custom URLs for YouTube</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-melodic-melding-understanding-sound-transition/"><u>[Updated] Melodic Melding Understanding Sound Transition</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-quieten-system-sounds-on-pc-and-mac-devices/"><u>[Updated] Quieten System Sounds on PC and Mac Devices</u></a></li>
+<li><a href="https://fox-triigers.techidaily.com/easy-to-use-3sat-downloader-for-hd-videos-download-in-popular-formats-such-as-flv-mov-avi/"><u>Easy-to-Use 3Sat Downloader for HD Videos: Download in Popular Formats Such as FLV, MOV, AVI</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-deciding-on-a-personal-social-media-platform-tiktok-or-youtubes-shorts/"><u>In 2024, Deciding on a Personal Social Media Platform TikTok or YouTubes' Shorts?</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-downloading-standardized-youtube-images-with-ease-and-precision/"><u>In 2024, Downloading Standardized Youtube Images with Ease & Precision</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-testing-and-verdict-on-the-exceptional-netgear-nighthawk-c7000-range-extender/"><u>In-Depth Testing and Verdict on the Exceptional Netgear Nighthawk C7000 Range Extender</u></a></li>
+</ul></div>
 

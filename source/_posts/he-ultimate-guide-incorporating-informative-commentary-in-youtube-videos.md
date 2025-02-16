@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Ultimate Guide  Incorporating Informative Commentary in YouTube Videos\""
-date: 2025-01-22T16:11:54.760Z
-updated: 2025-01-25T16:18:44.970Z
+date: 2025-02-14T20:01:07.771Z
+updated: 2025-02-16T21:53:53.145Z
 tags:
   - ai video
   - ai youtube
@@ -50,6 +50,10 @@ The main difference between annotation and cards is their outlook. Cards are mor
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to add YouTube Cards
 
 YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
@@ -63,10 +67,6 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
 * Click on the create button which will open the corresponding video
 * Once you finish the subsequent information required click create card
@@ -74,11 +74,11 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Apply changes and exit
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to add YouTube annotations
 
@@ -91,7 +91,7 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
@@ -100,7 +100,7 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Apply changes
@@ -142,7 +142,7 @@ No matter what kind of annotations you are using, you should never use more than
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -166,24 +166,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-navigating-through-youtubes-revenue-flow-after-monetization/"><u>[New] 2024 Approved Navigating Through YouTube's Revenue Flow After Monetization</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-top-10-online-screen-video-recorders/"><u>[New] 2024 Approved Top 10 Online Screen Video Recorders</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/harting-your-way-to-frequent-payments-from-youtube/"><u>[New] Charting Your Way to Frequent Payments From YouTube</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/treamlining-your-verification-process-on-yt/"><u>[New] Streamlining Your Verification Process on YT</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-top-picks-11-affordable-innovative-yt-moniker-generators/"><u>[Updated] 2024 Approved Top Picks 11 Affordable, Innovative YT Moniker Generators</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-key-tools-every-new-youtuber-needs/"><u>[Updated] Key Tools Every New YouTuber Needs</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-where-the-magic-of-video-editing-begins-on-youtube/"><u>[Updated] Where the Magic of Video Editing Begins on YouTube</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-increase-engagement-must-try-youtube-seo-tools/"><u>2024 Approved Increase Engagement Must-Try YouTube SEO Tools</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/2024-approved-journey-to-the-world-of-tiktok-download-guide-for-macbook/"><u>2024 Approved Journey to the World of TikTok Download Guide for MacBook</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/compare-and-contrast-the-new-apple-watch-se-vs-previous-models/"><u>Compare & Contrast: The New Apple Watch SE Vs. Previous Models</u></a></li>
-<li><a href="https://win-best.techidaily.com/diagnosing-a-sluggish-windows-experience-expert-tips-from-yl-computing/"><u>Diagnosing a Sluggish Windows Experience: Expert Tips From YL Computing</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/discover-the-top-20-free-screen-recording-apps-of-2023-your-comprehensive-listing/"><u>Discover the Top 20 Free Screen Recording Apps of 2023: Your Comprehensive Listing!</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-lava-yuva-2-pro-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Lava Yuva 2 Pro? | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-5-quick-methods-to-bypass-honor-magic-v2-frp-by-drfone-android/"><u>In 2024, 5 Quick Methods to Bypass Honor Magic V2 FRP</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/in-2024-the-ultimate-guide-to-time-lapse-video-editing-software-free-and-paid/"><u>In 2024, The Ultimate Guide to Time-Lapse Video Editing Software (Free & Paid)</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/se-time-stamping-on-youtube-a-practical-approach-for-2024/"><u>Precise Time-Stamping on YouTube A Practical Approach for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/phone-cinematography-mastery-designing-impactful-youtube-thumbnails-for-2024/"><u>Smartphone Cinematography Mastery Designing Impactful YouTube Thumbnails for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/the-ultimate-guide-to-enhancing-zoom-meetings-with-effects-for-2024/"><u>The Ultimate Guide to Enhancing Zoom Meetings With Effects for 2024</u></a></li>
-<li><a href="https://ai-video-editing.techidaily.com/updated-2024-approved-templates-increase-the-editing-possibilities-for-beginners-and-professionals-read-this-article-to-learn-about-some-customizable-slow-m/"><u>Updated 2024 Approved Templates Increase the Editing Possibilities for Beginners and Professionals. Read This Article to Learn About some Customizable Slow-Motion CapCut Templates</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-choosing-the-right-medium-audio-vs-video-based-platforms/"><u>[New] Choosing the Right Medium Audio vs Video-Based Platforms</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-web-development-hacks-embedding-youtubes-playlists-effortlessly/"><u>[New] In 2024, Web Development Hacks Embedding YouTube's Playlists Effortlessly</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-making-waves-in-popularity-how-to-earn-vimeo-writers-picks-for-2024/"><u>[New] Making Waves in Popularity How to Earn Vimeo' Writers’ Picks for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-expert-tips-activating-or-deactivating-youtube-comments/"><u>[Updated] Expert Tips Activating or Deactivating YouTube Comments</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-asmr-recommendations-for-android-users/"><u>[Updated] In 2024, ASMR Recommendations for Android Users</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-step-by-step-tutorial-for-aspiring-mukbang-creators/"><u>[Updated] In 2024, Step-by-Step Tutorial for Aspiring Mukbang Creators</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-visionary-viewership-to-virtual-value/"><u>[Updated] In 2024, Visionary Viewership to Virtual Value</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-skyrocket-your-channels-reach-with-smart-backlink-strategies/"><u>[Updated] Skyrocket Your Channel's Reach with Smart Backlink Strategies</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/aifc-file-transformation-no-cost-fast-and-easy-via-movavi/"><u>AIFC File Transformation: No Cost, Fast & Easy via Movavi</u></a></li>
+<li><a href="https://extra-information.techidaily.com/client-visionaries-shaping-brand-narratives-through-video/"><u>Client Visionaries Shaping Brand Narratives Through Video</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/determining-the-ideal-processing-speed-for-your-personal-computer/"><u>Determining the Ideal Processing Speed for Your Personal Computer</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ess-online-invitation-crafting-youtube-subscription-buttons/"><u>Flawless Online Invitation Crafting YouTube Subscription Buttons</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/insight-into-autopilot-mode-discovering-the-reason-behind-self-starting-windows-11-systems/"><u>Insight Into Autopilot Mode: Discovering the Reason Behind Self-Starting Windows 11 Systems</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/mastering-your-trackpad-or-magic-mouse-turn-off-mac-os-x-acceleration-settings/"><u>Mastering Your Trackpad or Magic Mouse: Turn Off Mac OS X Acceleration Settings</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-elevating-sound-design-a-comprehensive-approach-to-gradual-audio-diminishment-and-magnification-with-adobe-after-effects/"><u>New Elevating Sound Design A Comprehensive Approach to Gradual Audio Diminishment and Magnification with Adobe After Effects</u></a></li>
 </ul></div>
 

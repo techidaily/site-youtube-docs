@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Nine All-Inclusive Free Holiday Movies Streamed on YouTube\""
-date: 2025-01-23T16:09:23.269Z
-updated: 2025-01-25T16:03:20.068Z
+date: 2025-02-15T20:01:53.460Z
+updated: 2025-02-16T19:33:27.590Z
 tags:
   - ai video
   - ai youtube
@@ -31,12 +31,16 @@ If you are looking for Christmas entertainment this season you may be quick to l
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1. The nutcracker 1990
 
 The Nutcracker is a holiday classic that many people seek out every year on the stage. This family ballet classic was filmed by the Pacific Northwest ballet in a huge and lavish version of the production in 1986\. This still stands as one of the best versions of the Nutcracker ever captured on film and you can watch it for free on YouTube. You can find the Nutcracker at :
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2. A smoky mountain Christmas
@@ -44,7 +48,7 @@ The Nutcracker is a holiday classic that many people seek out every year on the 
 A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and starring Lee Majors and Dolly Parton. The full musical fairy tale can be found online on YouTube and it's about a country singer who is trying to spend a quiet Christmas holiday at home. She suddenly becomes involved with a mysterious mountain man, an evil witch and is forced to protect seven orphans over the holidays. This film can be found at:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3. Ernest saves Christmas
@@ -56,16 +60,12 @@ This film from 1989 features Jim Varney and his most famous character Ernest in 
 A Christmas story has long been one of the favorite Christmas movies for many families. In this film from 1983 we travel back in time to a traditional 1940s Christmas. In this film we follow the nine-year-old Ralphie who is looking for the famous red Ryder BB gun for Christmas and will stop at absolutely nothing to get it. A Christmas story can be found at:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 5. Richie Rich's Christmas wish
 
 In this film from 1998 we hear the story of the richest kid in the world on Christmas. In this film we see the richest in the world wishing that he had never been born with the wish coming true. Richie needs to find himself a new wishing machine and a way out of the parallel universe he gets stuck in to get back to his family. You can find this film at:
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 6. On the second day of Christmas
 
@@ -74,10 +74,6 @@ This film stars the hulk Mark Ruffalo in one of his earlier roles as a store emp
 ### 7. Santa Who?
 
 Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday classic Santa suffers a severe case of amnesia on Christmas Eve and needs to recover for Christmas day in order to make it through and deliver presents to all of the good children of the world. See if Santa gets his Christmas memories back by watching Santa Who here:
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 8. A Christmas Carol
 
@@ -88,6 +84,10 @@ In this film from 1984 George C Scott brings to life the role of Ebenezer Scroog
 In this recreation of the original film from 1947 this shortened full-length version from 1955 per trade is the classic story of santa on trial. A department store Santa suggests that he's the real santa and goes on trial to prove it. In this version of miracle on 34th Street starring Thomas Mitchell and Macdonald Carey we learn who really believes in Santa Claus. You can find this classic film here:
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -110,15 +110,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-yearly-insights-the-most-impactful-social-graphs/"><u>[New] Yearly Insights - The Most Impactful Social Graphs</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-how-to-convert-youtube-to-mp4-safely/"><u>[Updated] How to Convert YouTube to MP4 Safely?</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-navigating-through-youtubes-minis/"><u>[Updated] In 2024, Navigating Through YouTube's Minis</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-perfect-spectrum-balancer/"><u>[Updated] Perfect Spectrum Balancer</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-29-cost-free-youtube-sound-extractors-free-youtube-audio-downloads/"><u>2024 Approved 29 Cost-Free YouTube Sound Extractors Free YouTube Audio Downloads</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/best-ways-on-how-to-unlockbypassswiperemove-vivo-y78t-fingerprint-lock-by-drfone-android/"><u>Best Ways on How to Unlock/Bypass/Swipe/Remove Vivo Y78t Fingerprint Lock</u></a></li>
-<li><a href="https://win11.techidaily.com/clearing-up-headphone-connection-errors-in-windows/"><u>Clearing Up Headphone Connection Errors in Windows</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-fix-android-app-not-installed-error-on-oppo-a1-5g-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android App Not Installed Error on Oppo A1 5G Quickly? | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-mastering-macs-green-screen-fix-for-youtube-videos/"><u>In 2024, Mastering Mac's Green Screen Fix for YouTube Videos</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/s-top-online-video-editing-platforms-for-chromebooks/"><u>S Top Online Video Editing Platforms for Chromebooks</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-rising-above-the-crowd-trending-techniques-for-youtubers/"><u>[New] In 2024, Rising Above the Crowd Trending Techniques for YouTubers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-banner-bonanza-unlimited-50-free-youtube-designs/"><u>[Updated] 2024 Approved Banner Bonanza Unlimited 50 FREE YouTube Designs!</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-sim-savvy-savant-techniques-a-complete-guide-to-capturing-the-essence-of-sims-gameplay/"><u>[Updated] 2024 Approved Sim-Savvy Savant Techniques A Complete Guide to Capturing the Essence of Sims Gameplay</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-tips-on-how-to-edit-youtube-channel-description/"><u>[Updated] 2024 Approved Tips on How to Edit YouTube Channel Description</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-breaking-down-barriers-adding-chapters-to-create-cohesive-youtube-lessons/"><u>[Updated] Breaking Down Barriers Adding Chapters to Create Cohesive YouTube Lessons</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-beyond-boundaries-recognizing-leading-women-in-digital-storytelling/"><u>[Updated] In 2024, Beyond Boundaries Recognizing Leading Women in Digital Storytelling</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-boost-your-earnings-on-youtube-shorts-a-guide/"><u>[Updated] In 2024, Boost Your Earnings on YouTube Shorts A Guide</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-how-to-dominate-tiktoks-trending-topics-for-more-engagement/"><u>[Updated] In 2024, How to Dominate TikTok's Trending Topics for More Engagement</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/effortless-intel-nvme-driver-downloads-get-your-system-up-to-speed/"><u>Effortless Intel NVMe Driver Downloads - Get Your System Up to Speed!</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-partner-up-strategies-optimal-selection-for-youtube-teams/"><u>In 2024, Partner Up Strategies Optimal Selection for YouTube Teams</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-youtube-awareness-tactics-for-social-media-visibility/"><u>In 2024, YouTube Awareness Tactics for Social Media Visibility</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-depth-analysis-of-slomo-video-capture-tool-for-2024/"><u>In-Depth Analysis of SloMo Video Capture Tool for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/mastering-video-capture-on-periscope-a-comprehensive-manual-for-2024/"><u>Mastering Video Capture on Periscope A Comprehensive Manual for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/e-networking-necessities-affordable-monetized-platforms/"><u>Novice Networking Necessities Affordable Monetized Platforms</u></a></li>
+<li><a href="https://extra-information.techidaily.com/stepwise-strategies-for-high-quality-time-lapse-videos-in-gopro-studio/"><u>Stepwise Strategies for High Quality Time Lapse Videos in GoPro Studio</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/unlocking-screen-capture-mastery-in-windows-os/"><u>Unlocking Screen Capture Mastery in Windows OS</u></a></li>
+<li><a href="https://fox-that.techidaily.com/1721475231945-why-isnt-my-iphone-alarm-working-fix-it-now/"><u>Why Isn't My iPhone Alarm Working? Fix It Now!</u></a></li>
 </ul></div>
 
