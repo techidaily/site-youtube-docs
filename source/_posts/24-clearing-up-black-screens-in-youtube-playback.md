@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Clearing Up Black Screens in YouTube Playback"
-date: 2024-07-29T16:35:57.705Z
-updated: 2024-07-30T16:35:57.705Z
+date: 2025-03-01T16:04:17.357Z
+updated: 2025-03-05T16:25:20.352Z
 tags:
   - ai video
   - ai youtube
@@ -90,9 +90,6 @@ After launching the web browser (Google Chrome is used here for example), go to 
 
 Switch between the **Basic** and **Advanced** tabs on the **Clear browsing data** box to choose the records that you want to delete, and then choose your preferred duration of the records from the **Time range** drop-down list.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ![clear google chrome browsing data](https://images.wondershare.com/filmora/article-images/clear-browsing-data-chrome.jpg)
 
 Click **Clear data** from the bottom-right corner to clear browsing caches.
@@ -105,9 +102,6 @@ Launch Google Chrome and go to the **Customize and control Google Chrome** menu,
 
 Turn off the switch for each of the installed extensions to check if the issue is fixed.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![disable google chrome extension](https://images.wondershare.com/filmora/article-images/disable-google-chrome-extensions.jpg)
 
 **Note:** If this solution works, you can try enabling the extensions one at a time, and check turning on which one causes **YouTube video black screen**. Once the culprit extension is found, you can click **Remove** to get rid of it altogether.
@@ -124,9 +118,6 @@ If the video is visible on a different web browser, probably the default one tha
 
 • Follow the on-screen instructions from there to remove the web browser from your PC. Next, use Microsoft Edge (or any other browser) to download and install a fresh copy of Google Chrome and see if the issue is fixed
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 2\. ISP or Internet Speed Solution(s)
 
 If you are experiencing a slow Internet connection, the issue might be either from your Internet Service Provider’s (ISP’s) side, or on your part. In any case, you can try the following solutions to fix the issue:
@@ -151,9 +142,6 @@ Type **CMD** in the **Cortana** search box, and click **Run as administrator** f
 
 Click **Yes** on the **User Account Control** confirmation box, and in the **Command Prompt** window, type **IPCONFIG /FLUSHDNS** and press Enter
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![use command to fix YouTube black screen](https://images.wondershare.com/filmora/article-images/use-command-to-fix-youtube-black-screen.jpg)
 
 Try opening the YouTube video again and see if the issue is fixed
@@ -166,19 +154,12 @@ Right-click **Start** and go to **Device Manager** from the context menu
 
 Expand the **Display adapters** tree on the **Device Manager** snap-in, and right-click the graphics card from the list and select **Update driver** from the context menu.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
-<!-- affiliate ads end -->
 ![upgrade graphic card to fix YouTube black screen](https://images.wondershare.com/filmora/article-images/upgrade-graphic-card-to-fix-youtube-video-black-screen.jpg)
 
 Click **Search automatically for drivers** from the next screen that appears and follow the on-screen instructions from there to update the graphic card driver.
 
 **Note:** If your PC has multiple graphic cards installed in it, you will have to follow this procedure for each of them individually.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## Part 3: How to Troubleshoot YouTube Black Screen on Mobile?
 
 If you wish to watch online videos on your smartphone, but experience **YouTube video black screen**, the process of fixing the issue on the phones is comparatively simple. The steps that are given below explain the procedure:
@@ -193,10 +174,6 @@ Tap it and then select **Clear data and Clear cache**. Relaunch YouTube and see 
 
 ![fix YouTube black screen on Android](https://images.wondershare.com/filmora/article-images/fix-youtube-video-black-screen-android.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ### How to Troubleshoot YouTube Black Screen On iOS
 
 **Delete and Reinstall the App**
@@ -211,14 +188,11 @@ Go to **App Store** and download and install a fresh copy of YouTube, and see if
 
 There could be several reasons for **YouTube black screen**, and depending on the root cause of the issue, the troubleshooting methods may vary. While some inconsistencies can be fixed from within the web browser itself, at times you may need to tweak your operating system to get an accurate solution. Likewise, while using an Android smartphone, you can clear YouTube data and cache; and remove and reinstall the app altogether when on an iOS device.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -227,4 +201,22 @@ There could be several reasons for **YouTube black screen**, and depending on th
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/ackward-glance-decoding-youtube-video-reversals-for-2024/"><u>[New] Backward Glance Decoding YouTube Video Reversals for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-premium-selection-of-webinar-technologies/"><u>[New] In 2024, Premium Selection of Webinar Technologies</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-seamless-clip-recording-solutions/"><u>[Updated] 2024 Approved Seamless Clip Recording Solutions</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-expert-tips-for-dealing-with-youtube-copyright-notifications/"><u>[Updated] Expert Tips for Dealing With YouTube Copyright Notifications</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-how-to-innovate-transforming-raw-footage-into-youtube-thumbnails-via-smartphones-for-2024/"><u>[Updated] How to Innovate Transforming Raw Footage Into YouTube Thumbnails via Smartphones for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-key-factors-for-long-term-profitability-with-youtube-shorts-for-2024/"><u>[Updated] Key Factors for Long-Term Profitability with YouTube Shorts for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-crafting-worldly-stories-startup-guide-for-future-travel-vloggers/"><u>2024 Approved Crafting Worldly Stories Startup Guide for Future Travel Vloggers</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/cutting-edge-methods-for-faster-epic-game-installs/"><u>Cutting-Edge Methods for Faster Epic Game Installs</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-life360-notify-when-you-log-out-on-xiaomi-mix-fold-3-drfone-by-drfone-virtual-android/"><u>Does Life360 Notify When You Log Out On Xiaomi Mix Fold 3? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-6s-to-other-iphone-12-pro-max-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 6s To Other iPhone 12 Pro Max devices? | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-perfecting-your-yt-earning-monetization-verification-steps/"><u>In 2024, Perfecting Your YT Earning Monetization Verification Steps</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-simplified-guide-to-saving-instagrams-dynamic-content/"><u>In 2024, Simplified Guide to Saving Instagram's Dynamic Content</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ntly-professional-masterful-thumbnails-created-fast/"><u>Instantly Professional Masterful Thumbnails Created Fast!</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-the-0x80240034-glitch-in-windows-11-updates-effective-strategies-for-success/"><u>Troubleshooting the 0X80240034 Glitch in Windows 11 Updates – Effective Strategies for Success</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/shing-youtube-potential-the-best-shortcuts-to-higher-views/"><u>Unleashing YouTube Potential The Best Shortcuts to Higher Views</u></a></li>
+</ul></div>
 

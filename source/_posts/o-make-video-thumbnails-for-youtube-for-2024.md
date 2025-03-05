@@ -1,7 +1,7 @@
 ---
 title: "How to Make Video Thumbnails for YouTube for 2024"
-date: 2025-02-13T21:12:00.352Z
-updated: 2025-02-16T21:38:44.956Z
+date: 2025-03-03T16:52:03.841Z
+updated: 2025-03-05T17:11:44.443Z
 tags:
   - ai video
   - ai youtube
@@ -47,14 +47,6 @@ Here are 5 easy tips for creating thumbnails that get views.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. Have a Consistent Layout
 
 Your thumbnails all must look like part of the same set. You want viewers to recognize your videos like yours, and they are more likely to do that if you build up a standard layout that they can start associating with you.
@@ -69,29 +61,17 @@ People feel automatically connected and drawn into images that make eye contact.
 
 Also, if somebody recognizes you in your thumbnail from a previous video of yours, that will go a long way towards making them click.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 3\. Use Graphics/Emojis that are On Topic
 
 Anybody can take a screenshot of themselves in their video and use it as a thumbnail. To make your thumbnails look polished, consider using small images (like emojis or hearts) to stand out. This will add color and personality to your thumbnail.
 
 Make sure the images you choose are relevant to the topic of your video.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 4\. Make Your Text Huge
 
 If you use text in your thumbnail (you don’t have to) then it should be to add context. For example, if the main image is just you smiling then you might need some text to let viewers know the video is a makeup tutorial.
 
 Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 5\. Keep it Clutter-Free
 
@@ -126,18 +106,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/mbracing-constructive-feedback-ignoring-the-rest-for-2024/"><u>[New] Embracing Constructive Feedback, Ignoring the Rest for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-ultimate-guide-to-youtube-thumbnail-creation-on-mac/"><u>[New] In 2024, Ultimate Guide to YouTube Thumbnail Creation on Mac</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-restore-lost-airdrop-functionality-with-easy-solutions-for-iosmacos/"><u>[New] Restore Lost Airdrop Functionality with Easy Solutions for iOS/macOS</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-solutions-to-solve-common-issues-for-youtube-shorts/"><u>[Updated] 2024 Approved Solutions to Solve Common Issues for YouTube Shorts</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-voice-modification-gear-top-picks-for-creators/"><u>[Updated] Voice Modification Gear Top Picks for Creators</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-sweep-viewers-off-their-feet-templates-that-work-wonders/"><u>2024 Approved Sweep Viewers Off Their Feet Templates That Work Wonders</u></a></li>
-<li><a href="https://win-alternatives.techidaily.com/5pa55rov5q246yke5asw572u56gs55uk5yiw5ywi5ymn54mi5pysic0g6k6t5l2g6yen5l6g5lia5qyh/"><u>方法歸還外置硬盤到先前版本 - 讓你重來一次</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/finding-your-dream-role-with-the-help-of-chatgpt/"><u>Finding Your Dream Role with the Help of ChatGPT</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-full-guide-on-mirroring-your-infinix-note-30i-to-your-pcmac-drfone-by-drfone-android/"><u>In 2024, Full Guide on Mirroring Your Infinix Note 30i to Your PC/Mac | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-the-ultimate-guide-to-fostering-viewer-commitment-in-youtube-videos/"><u>In 2024, The Ultimate Guide to Fostering Viewer Commitment in YouTube Videos</u></a></li>
-<li><a href="https://win-answers.techidaily.com/1723013442900-quick-solutions-overcome-battlefield-5-not-starting-problem-in-minutes/"><u>Quick Solutions: Overcome 'Battlefield 5 Not Starting' Problem in Minutes!</u></a></li>
-<li><a href="https://media-tips.techidaily.com/synchronize-your-workout-tunes-with-spotify-and-fitbit-a-complete-guide/"><u>Synchronize Your Workout Tunes with Spotify and Fitbit - A Complete Guide</u></a></li>
-<li><a href="https://discover-dash.techidaily.com/windows-ve-mac-kabul-edersemizse-mp4-formatted-videosinin-8-mtste-donusturulmesine-yaklasmamizin-en-etkili-uzerine-yaptigi-durumlarimiz-ozellikleri-ve-tutul15/"><u>Windows Ve Mac Kabul Edersemizse, MP4-Formatted Videosinin 8 MTS'te Dönüştürülmesine Yaklaşmamızın En Etkili Üzerine Yaptığı Durumlarımız: Özellikleri Ve Tutulduktaki Riske</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/avigating-the-backlink-jungle-a-video-content-guide-for-2024/"><u>[New] Navigating the Backlink Jungle A Video Content Guide for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/uick-cover-art-crafting-for-fighting-games-for-2024/"><u>[New] Quick Cover Art Crafting for Fighting Games for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-silent-shifts-mastering-crossfades-efficiently/"><u>[New] Silent Shifts Mastering Crossfades Efficiently</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-art-of-influence-essential-marketing-expressions-explained/"><u>[New] The Art of Influence Essential Marketing Expressions Explained</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-perfect-skype-recordings-mastering-the-art-of-obs/"><u>[Updated] 2024 Approved Perfect Skype Recordings Mastering the Art of OBS</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-step-into-the-spotlight-on-instagram-with-these-tricks/"><u>[Updated] 2024 Approved Step Into the Spotlight on Instagram with These Tricks</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-beautifying-videos-for-youtube-viewers-for-2024/"><u>[Updated] Beautifying Videos for YouTube Viewers for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-channeling-success-the-essential-elements-for-profitable-video-trailers-for-2024/"><u>[Updated] Channeling Success The Essential Elements for Profitable Video Trailers for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-youtube-video-organization-the-art-of-chapter-addition/"><u>[Updated] YouTube Video Organization The Art of Chapter Addition</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-youtubes-adsense-income-strategy-calculating-per-thousand-viewers/"><u>[Updated] Youtube's AdSense Income Strategy Calculating Per Thousand Viewers</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-boost-your-videos-best-editing-apps-for-android-pc-users/"><u>2024 Approved Boost Your Videos Best Editing Apps for Android, PC Users</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ou-lawfully-archive-youtube-content/"><u>Can You Lawfully Archive YouTube Content?</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/discover-if-someone-is-using-an-apple-airtag-to-locate-you-expert-advice/"><u>Discover If Someone Is Using An Apple AirTag To Locate You - Expert Advice</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-teach-you-to-transfer-files-from-samsung-galaxy-a05-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways To Teach You To Transfer Files from Samsung Galaxy A05 to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-elevate-video-rankings-proven-youtube-seo-solutions/"><u>In 2024, Elevate Video Rankings Proven YouTube SEO Solutions</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-ultimate-live-streaming-mic-guide-choosing-from-the-best-6/"><u>In 2024, The Ultimate Live-Streaming Mic Guide Choosing From the Best 6</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/izing-information-mastery-seamless-integration-of-chapters-in-youtube-videos/"><u>Organizing Information Mastery Seamless Integration of Chapters in YouTube Videos</u></a></li>
+<li><a href="https://some-tips.techidaily.com/unlocking-potential-with-magix-paint-pro-for-2024/"><u>Unlocking Potential with MAGIX Paint Pro for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unraveling-gadgets-with-toms-hardware-expertise/"><u>Unraveling Gadgets with Tom's Hardware Expertise</u></a></li>
 </ul></div>
 

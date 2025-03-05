@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Beauty Breakdown  Mastering Makeup and Hauls Online\""
-date: 2024-07-29T16:33:46.634Z
-updated: 2024-07-30T16:33:46.634Z
+date: 2025-03-04T16:06:16.517Z
+updated: 2025-03-05T16:43:31.001Z
 tags:
   - ai video
   - ai youtube
@@ -95,10 +95,6 @@ Here are some common types of beauty and lifestyle videos:
 * Kid’s Makeup Challenge
 * No Mirror Makeup Challenge
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## **How to Get Products to Review**
 
  You probably already know that a lot of the products popular beauty YouTubers review in their videos were sent to them for free. Brands want to get their products into the hands of creators who have ‘influence’ both in the hopes that their audiences will decide to buy them and as part of generating buzz – getting more people talking about their products so more people become interested.
@@ -120,9 +116,6 @@ Here are 4 tips for getting free products for review:
 Make sure to link to your channel so they can verify what you say (do not hide your subscriber count).  
 Emphasize what value you could provide the brand with (i.e. ‘I’ve had a lot of success with videos on managing acne and I’m sure my subscribers would love to see a review of your cream’) and outline what kind of video you’d like to make (i.e. a five-minute review focusing on the product, or a short feature in a longer makeup tutorial).
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Simple Camera Setup for Beauty Vloggers**
 
 There are a lot of different ways to set up your camera for a ‘talking head’ video (anything that is primarily you talking to the camera). Keep reading to learn about a popular ring-light setup for beauty videos, or [click here to learn 4 different camera setups](https://www.filmora.io/community-blog/4-ways-to-set-up-your-talking-head-shots-for-youtube-431.html).
@@ -146,9 +139,6 @@ You might want to experiment with sitting at different distances to see how the 
 
 **_Step 2:_** Set your camera up a bit higher than your face and tilt it down towards yourself (shooting from slightly above is always more flattering). It should be set up at about a 15° angle to you.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
-<!-- affiliate ads end -->
 ![tilt down your camera](https://images.wondershare.com/filmora/article-images/tilt-down-camera1.jpg)
 
 **_Step 3:_** Check your frame (this is easiest if your camera has a screen that flips out) to make sure there’s not too much empty space in your shot.
@@ -167,21 +157,10 @@ An aperture of f/5.0 is good if you’re going to be moving around a lot, but if
 
 ISO 400 should be a happy medium for shooting inside with your ring light, but you may need to try out a couple of settings to find one perfect for your situation.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
-<!-- affiliate ads end -->
 ![set film speed](https://images.wondershare.com/filmora/article-images/set-film-speed3.jpg)
 
 For more info on [camera settings for beauty videos, click here](https://www.filmora.io/video-tutorials/how-to-set-up-your-camera-%E2%80%93-the-makeup-series-12.html).
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Lighting for Beauty**
 
 The key to achieving a high-quality picture for your beauty video is having a lot of light.
@@ -194,9 +173,6 @@ There are, however, some reasons you might want additional light:
 
 If you only have a ring light/front light then you may end up looking like you’re surrounded by shadows. If you want more light for your space you can use windows, household lamps, or professional video lights like softboxes or LED panels.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->
  ![light background](https://images.wondershare.com/filmora/article-images/light-background4.jpg)
 
 #### **To Stand Out Against your Background (‘Backlighting’)**
@@ -221,9 +197,6 @@ You can use softboxes, LED panels, clamp lights, household lamps, or any other l
 * **_Clamp lights ($10 each) and paper lanterns ($10 each) provide great lighting and are much more affordable than professional lighting kits._ The paper lanterns will provide even, diffused, light and the clamp lights will be easy to set up wherever you need them.**
 * **_Check out these [DIY tips for creating your own reflectors and diffusers](https://www.filmora.io/community-blog/save-money-with-clever-diy-youtube-gear%21-462.html)._**
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Top Ring Lights for YouTube**
 
 ####  
@@ -232,9 +205,6 @@ You can use softboxes, LED panels, clamp lights, household lamps, or any other l
 
 One cool feature of the Neewer Ring Light is that you can choose between daylight and a more orange-tinted light depending on which of the included filters you use. In almost all situations you’ll want to use white light/daylight because the orange light will make you look orange, but if you ever wanted to create a warmer image to achieve a particular effect you’d have that option with this light.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Neewer Ring Light ](https://images.wondershare.com/filmora/article-images/neewer-ring-light5.jpg)
 
 This light is dimmable and can be adjusted to the angle that suits your shot. That’s true of our number 2 pick too, and the second place light actually has a slight edge over the Neewer light because its color temperature is 5400K which is slightly closer to daylight than Neewer’s 5500K, but that’s honestly not super important for YouTube. They’re close enough that you won’t be able to tell the difference, and this light is over $100 more affordable.
@@ -305,10 +275,6 @@ Remember to include what type of video you made, i.e. ‘tutorial’, ‘review�
 
  Are you already making beauty videos? If so, let us know if you have any of your own tips!
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -317,14 +283,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -333,4 +296,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/ction-packed-shoots-creating-dynamic-video-stories-on-youtube/"><u>[New] Action-Packed Shoots Creating Dynamic Video Stories on YouTube</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-accurate-recordings-of-console-games-on-home-computers/"><u>[Updated] Accurate Recordings of Console Games on Home Computers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-essential-steps-for-mp3-streams-on-youtube-for-2024/"><u>[Updated] Essential Steps for MP3 Streams on Youtube for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-quick-cover-art-crafting-for-fighting-games/"><u>[Updated] In 2024, Quick Cover Art Crafting for Fighting Games</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-transforming-youtube-content-using-the-power-of-imovie/"><u>[Updated] In 2024, Transforming YouTube Content Using the Power of iMovie</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-rethinking-wirecast-choices/"><u>[Updated] Rethinking WireCast Choices</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-how-to-promote-your-youtube-channel-with-high-impact-showcase-techniques/"><u>2024 Approved How to Promote Your YouTube Channel with High-Impact Showcase Techniques</u></a></li>
+<li><a href="https://techidaily.com/complete-tutorial-for-vivo-v27e-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Complete Tutorial for Vivo V27e Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://some-tips.techidaily.com/exclusive-july-savings-get-your-hands-on-affordable-iphone-apple-watch-and-ipads-special-deals-from-zdnet/"><u>Exclusive July Savings: Get Your Hands on Affordable iPhone, Apple Watch, and iPads - Special Deals From ZDNET</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/zero-to-hero-in-the-youtube-world-starting-your-channel-and-earning-money-for-2024/"><u>From Zero to Hero in the Youtube World Starting Your Channel & Earning Money for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-delete-gmail-account-withwithout-password-on-tecno-camon-20-pro-5g-by-drfone-android/"><u>In 2024, Delete Gmail Account With/Without Password On Tecno Camon 20 Pro 5G</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-forgotten-the-voicemail-password-of-motorola-moto-g-stylus-2023-try-these-fixes-by-drfone-android/"><u>In 2024, Forgotten The Voicemail Password Of Motorola Moto G Stylus (2023)? Try These Fixes</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-monetize-mastery-series-behind-the-scenes-with-carminati-ajay/"><u>In 2024, Monetize Mastery Series Behind the Scenes with Carminati (AJay)</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/navigating-the-latest-tech-2024s-best-ereaders-unveiled/"><u>Navigating the Latest Tech: 2024'S Best eReaders Unveiled</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/revolutionizing-film-production-how-the-latest-updates-to-final-cut-pro-for-ipad-transform-creators-experiences-insights-from-zdnet/"><u>Revolutionizing Film Production: How the Latest Updates to Final Cut Pro for iPad Transform Creators' Experiences – Insights From ZDNet</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-2024-approved-vlog-like-a-pro-10-essential-editing-apps-for-ios-and-android/"><u>Updated 2024 Approved Vlog Like a Pro 10 Essential Editing Apps for iOS and Android</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/everyone-needs-to-know-about-asmr-videos/"><u>What Everyone Needs to Know About ASMR Videos</u></a></li>
+</ul></div>
 

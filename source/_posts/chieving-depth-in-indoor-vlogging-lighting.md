@@ -1,7 +1,7 @@
 ---
 title: "[New] Achieving Depth in Indoor Vlogging Lighting"
-date: 2025-02-09T17:18:36.890Z
-updated: 2025-02-16T17:49:16.795Z
+date: 2025-03-01T16:04:27.671Z
+updated: 2025-03-05T16:28:38.768Z
 tags:
   - ai video
   - ai youtube
@@ -33,17 +33,9 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Video Lighting Basics: Three Point Lighting
 
 ![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
@@ -85,29 +77,17 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
 
 If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
 
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -130,22 +110,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-top-5-video-tweaking-apps-for-social-networking/"><u>[New] 2024 Approved Top 5 Video Tweaking Apps for Social Networking</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-drafting-dynamic-denouements/"><u>[New] In 2024, Drafting Dynamic Denouements</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-thorough-examination-of-gecata-recorder/"><u>[New] In 2024, Thorough Examination of Gecata Recorder</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-pioneers-leading-the-charge-in-virtual-experiences-for-2024/"><u>[New] Pioneers Leading the Charge in Virtual Experiences for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/nlocking-youtubes-potential-a-detailed-guide-on-tracking-earnings-and-audiences-for-2024/"><u>[New] Unlocking YouTube's Potential A Detailed Guide on Tracking Earnings and Audiences for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-scrutinizing-youtubes-comment-clusters/"><u>[Updated] 2024 Approved Scrutinizing YouTubes' Comment Clusters</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-create-captivating-yt-thumbnails-fast-in-2024/"><u>[Updated] Create Captivating YT Thumbnails Fast, In 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-master-the-art-of-video-cuts-essential-tools-for-mac-users/"><u>[Updated] In 2024, Master the Art of Video Cuts Essential Tools for Mac Users</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-perfect-settings-for-live-broadcasts/"><u>[Updated] In 2024, Perfect Settings for Live Broadcasts</u></a></li>
-<li><a href="https://discover-dash.techidaily.com/1-capture-video-and-sound-seamlessly-utilize-winxvideo-ais-advanced-recording-features/"><u>1. Capture Video & Sound Seamlessly: Utilize WinxVideo AI's Advanced Recording Features</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/p-rated-digital-video-cutting-tools/"><u>10 Top-Rated Digital Video Cutting Tools</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-experience-the-new-unleash-a-set-of-50-designs-for-free/"><u>2024 Approved Experience the New Unleash a Set of 50 Designs for Free</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-starting-a-sports-network-with-your-mac/"><u>2024 Approved Starting a Sports Network with Your Mac</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/beyond-video-chats-webcam-alternatives-for-2024/"><u>Beyond Video Chats Webcam Alternatives for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-from-youtube-to-high-definition-prime-downloader-choices/"><u>In 2024, From YouTube to High Definition Prime Downloader Choices</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/premiere-changes-for-images-pictureshift-genius-for-2024/"><u>Premiere Changes for Images PictureShift Genius for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/top-8-essential-uses-of-auto-gpt-a-comprehensive-guide/"><u>Top 8 Essential Uses of Auto-GPT: A Comprehensive Guide</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-effortlessly-increase-youtube-video-dimensions/"><u>[New] Effortlessly Increase YouTube Video Dimensions</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ow-to-create-engaging-visual-hooks-a-guide-to-video-thumbnail-making/"><u>[New] How to Create Engaging Visual Hooks A Guide to Video Thumbnail Making</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-navigating-video-landscape-vimeo-and-youtube-distinguished/"><u>[Updated] 2024 Approved Navigating Video Landscape Vimeo and YouTube Distinguished</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-cloud-savings-guide-comparing-costs-and-top-deals-for-2024/"><u>[Updated] Cloud Savings Guide Comparing Costs & Top Deals for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-maximizing-impact-with-every-second-in-a-youtube-short/"><u>[Updated] In 2024, Maximizing Impact with Every Second in a YouTube Short</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-maximizing-youtube-engagement-with-strategic-hashes/"><u>[Updated] Maximizing YouTube Engagement with Strategic Hashes</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-minuscule-motifs-musical-characters-tale-for-2024/"><u>[Updated] Minuscule Motifs Musical Characters’ Tale for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-saving-youtube-videos-a-legal-overview/"><u>[Updated] Saving YouTube Videos A Legal Overview</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-free-location-spoofers-to-fake-gps-location-on-your-realme-narzo-n53-drfone-by-drfone-virtual/"><u>10 Free Location Spoofers to Fake GPS Location on your Realme Narzo N53 | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-engaging-students-the-power-of-youtube-in-education/"><u>2024 Approved Engaging Students The Power of YouTube in Education</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/affordable-innovation-showdown-is-the-new-apple-ipad-air-a-steal-next-to-ipad-pro/"><u>Affordable Innovation Showdown: Is the New Apple iPad Air a Steal Next to iPad Pro?</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-dynamic-duo-image-taker-plus-melody-recorders/"><u>In 2024, Dynamic Duo Image Taker + Melody Recorders</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-elevate-your-channels-visibility-through-proven-methods/"><u>In 2024, Elevate Your Channels Visibility Through Proven Methods</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-seamless-visual-storytelling-through-advanced-chroma-techniques/"><u>In 2024, Seamless Visual Storytelling Through Advanced Chroma Techniques</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/mastering-in-game-audio-capture-in-overwatch/"><u>Mastering In-Game Audio Capture in Overwatch</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/streamlining-remote-work-merging-skype-and-zoom-together-for-2024/"><u>Streamlining Remote Work Merging Skype and Zoom Together for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-oppo-a38-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Oppo A38 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/unraveling-the-process-of-gaining-facebooks-blue-badge-for-2024/"><u>Unraveling the Process of Gaining Facebook's Blue Badge for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/update-your-hp-laserjet-p1007-fresh-printer-drivers-available-now/"><u>Update Your HP LaserJet P1007: Fresh Printer Drivers Available Now!</u></a></li>
 </ul></div>
 

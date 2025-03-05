@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  From Novice to Pro  How to Evade the Most Critical 8 Mistakes on YouTube\""
-date: 2024-08-08T16:44:30.929Z
-updated: 2024-08-09T16:44:30.929Z
+date: 2025-03-04T17:18:27.722Z
+updated: 2025-03-05T16:34:21.584Z
 tags:
   - ai video
   - ai youtube
@@ -28,25 +28,16 @@ thumbnail: https://thmb.techidaily.com/7b4c05e427ef93175f84d0a703341dbe0517d72f4
 
 In the ten years that I’ve been a YouTuber, I’ve made a lot of mistakes. I learned from those mistakes and have helped many new YouTubers start their own channels. Here is a list of eight common mistakes that new YouTubers should avoid, along with tips to do things in a better way.
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Mistakes To Avoid As a New YouTuber](https://images.wondershare.com/filmora/mistakes-to-avoid-as-a-new-youtuber.jpg)
 
 ###  
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1\. Failing to have a long-term vision
 
 One common mistake that a lot of new YouTubers make is failing to have a long-term vision. Without a long-term vision, you’re more likely to poorly brand your YouTube channel, drop your YouTube channel activity in busier times, and, midway through, change the type of content you create and upload. None of these are good for your channel!
 
 If you can think of the kind of content you’ll love to consistently create and share in the long-run, you’ll not only be able to narrow down your brand and effectively communicate to your audience who you are and what your channel is all about, but you’ll also have a better idea on what to put out next.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. Choosing an ineffective custom URL
 
 Another mistake I made with my first YouTube channel was choosing an ineffective custom URL. Because my last name is Kim, I wanted to make my custom URL “YouTube.com/kimagination.” But it wasn’t available. So, I took “kimaginati0n” with a zero where the “o” should be. I thought it was a good idea back then but it was a terrible idea.
@@ -67,9 +58,6 @@ New YouTubers tend to think about their thumbnail images after they’ve finishe
 
 Even before filming, you should think about how you’re going to title your video to get the most views. After that, you should then try to picture, in your head, a thumbnail image that matches your title and creates curiosity and excitement. When you go into filming, you can then make sure to include some footage of you recreating that image.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 5\. Making weak intros
 
 After you’ve managed to get someone to click on your video through your effective title and thumbnail image strategy, the next challenge is to keep that person watching your video without closing it too early. A typical viewer on YouTube decides within the first ten to fifteen seconds of landing on a video whether or not he or she will stay or leave. This short window of time is so important to set the tone of the rest of your video and build excitement and curiosity in your viewer with an effective, high-energy intro.
@@ -78,9 +66,6 @@ New YouTubers often make the mistake of having weak intros. Starting at the begi
 
 To read more on how some of the most successful YouTubers effectively do their intros, check out my blogpost on “[How To Edit YouTube Videos Like a YouTuber](https://tools.techidaily.com/wondershare/filmora/download/).”
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 6\. Forgetting to engage with subscribers
 
 An important thing to do as a new YouTuber is engaging with your subscribers. Some new YouTubers, though, are so focused and busy with the production side of things that they forget to do the community side of things, including responding to comments. By not responding to comments as a new YouTuber, you hurt your potential to get more comments consistently from your subscribers. If your video’s comments section is very active, YouTube ranks your video higher in the videos it recommends to viewers.
@@ -101,9 +86,6 @@ But rather than leaving interesting comments that are related to the video, rath
 
 Spam comments annoy YouTubers. It would be much more beneficial to your channel to build good relationships with other YouTubers to possibly collaborate on a video together in the future.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -112,14 +94,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -128,6 +107,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-crafting-channel-graphics-icons-banners-and-thumbnails/"><u>[New] 2024 Approved Crafting Channel Graphics Icons, Banners & Thumbnails</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-professionals-approach-to-video-editing-on-youtube-for-2024/"><u>[New] A Professional's Approach to Video Editing on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ngaging-presentations-tips-for-uploading-youtube-videos-into-slides/"><u>[New] Engaging Presentations Tips for Uploading YouTube Videos Into Slides</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ree-audio-treasures-to-amplify-youtube-in-2024/"><u>[New] Free Audio Treasures to Amplify YouTube, In 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-endless-entertainment-loop-youtube-content-on-tv/"><u>[New] In 2024, Endless Entertainment Loop YouTube Content on TV</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-the-audio-file-alchemy-converting-srt-to-multiple-formats-professionally/"><u>[New] The Audio File Alchemy Converting SRT to Multiple Formats Professionally</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-precision-trimming-elevating-your-youtube-video-quality/"><u>[Updated] 2024 Approved Precision Trimming Elevating Your YouTube Video Quality</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-video-production-pro-tips-incorporating-audio-into-youtube-content/"><u>[Updated] 2024 Approved Video Production Pro Tips Incorporating Audio Into YouTube Content</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-hand-held-balance-for-sharp-images/"><u>[Updated] In 2024, Hand-Held Balance for Sharp Images</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-selecting-the-superior-cloud-vaults-for-your-digital-needs/"><u>[Updated] Selecting the Superior Cloud Vaults for Your Digital Needs</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-role-of-lighting-in-professional-youtube-content-creation/"><u>[Updated] The Role of Lighting in Professional YouTube Content Creation</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-boosting-views-with-customized-thumbnail-sizes-on-youtube/"><u>2024 Approved Boosting Views with Customized Thumbnail Sizes on YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-dial-up-your-digital-presence-tips-for-confident-video-creators/"><u>2024 Approved Dial Up Your Digital Presence Tips for Confident Video Creators</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-realme-gt-5-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Realme GT 5 | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/tart-your-channel-with-these-top-10-video-editing-tips-for-2024/"><u>Jumpstart Your Channel with These Top 10 Video Editing Tips for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/aging-finalcut-pro-for-high-quality-youtube-production-for-2024/"><u>Leveraging FinalCut Pro for High-Quality YouTube Production for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782339-9781591432340-the-suppressed-history-of-american-banking/"><u>The Suppressed History of American Banking | Free Book</u></a></li>
+<li><a href="https://fox-within.techidaily.com/ultimate-guide-to-3-leading-free-windows-1er-backup-software-for-new-users/"><u>Ultimate Guide to 3 Leading Free Windows 1Er Backup Software for New Users</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Realme Narzo 60x 5G? | Dr.fone</u></a></li>
+</ul></div>
 

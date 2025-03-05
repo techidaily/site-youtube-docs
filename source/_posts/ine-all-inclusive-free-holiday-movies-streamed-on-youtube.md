@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Nine All-Inclusive Free Holiday Movies Streamed on YouTube\""
-date: 2025-02-15T20:01:53.460Z
-updated: 2025-02-16T19:33:27.590Z
+date: 2025-03-02T17:04:00.387Z
+updated: 2025-03-05T17:33:27.966Z
 tags:
   - ai video
   - ai youtube
@@ -31,25 +31,13 @@ If you are looking for Christmas entertainment this season you may be quick to l
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1. The nutcracker 1990
 
 The Nutcracker is a holiday classic that many people seek out every year on the stage. This family ballet classic was filmed by the Pacific Northwest ballet in a huge and lavish version of the production in 1986\. This still stands as one of the best versions of the Nutcracker ever captured on film and you can watch it for free on YouTube. You can find the Nutcracker at :
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2. A smoky mountain Christmas
 
 A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and starring Lee Majors and Dolly Parton. The full musical fairy tale can be found online on YouTube and it's about a country singer who is trying to spend a quiet Christmas holiday at home. She suddenly becomes involved with a mysterious mountain man, an evil witch and is forced to protect seven orphans over the holidays. This film can be found at:
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3. Ernest saves Christmas
 
@@ -58,10 +46,6 @@ This film from 1989 features Jim Varney and his most famous character Ernest in 
 ### 4. A Christmas story
 
 A Christmas story has long been one of the favorite Christmas movies for many families. In this film from 1983 we travel back in time to a traditional 1940s Christmas. In this film we follow the nine-year-old Ralphie who is looking for the famous red Ryder BB gun for Christmas and will stop at absolutely nothing to get it. A Christmas story can be found at:
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 5. Richie Rich's Christmas wish
 
@@ -85,10 +69,6 @@ In this recreation of the original film from 1947 this shortened full-length ver
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -110,22 +90,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-rising-above-the-crowd-trending-techniques-for-youtubers/"><u>[New] In 2024, Rising Above the Crowd Trending Techniques for YouTubers</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-banner-bonanza-unlimited-50-free-youtube-designs/"><u>[Updated] 2024 Approved Banner Bonanza Unlimited 50 FREE YouTube Designs!</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-sim-savvy-savant-techniques-a-complete-guide-to-capturing-the-essence-of-sims-gameplay/"><u>[Updated] 2024 Approved Sim-Savvy Savant Techniques A Complete Guide to Capturing the Essence of Sims Gameplay</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-tips-on-how-to-edit-youtube-channel-description/"><u>[Updated] 2024 Approved Tips on How to Edit YouTube Channel Description</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-breaking-down-barriers-adding-chapters-to-create-cohesive-youtube-lessons/"><u>[Updated] Breaking Down Barriers Adding Chapters to Create Cohesive YouTube Lessons</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-beyond-boundaries-recognizing-leading-women-in-digital-storytelling/"><u>[Updated] In 2024, Beyond Boundaries Recognizing Leading Women in Digital Storytelling</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-boost-your-earnings-on-youtube-shorts-a-guide/"><u>[Updated] In 2024, Boost Your Earnings on YouTube Shorts A Guide</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-how-to-dominate-tiktoks-trending-topics-for-more-engagement/"><u>[Updated] In 2024, How to Dominate TikTok's Trending Topics for More Engagement</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/effortless-intel-nvme-driver-downloads-get-your-system-up-to-speed/"><u>Effortless Intel NVMe Driver Downloads - Get Your System Up to Speed!</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-partner-up-strategies-optimal-selection-for-youtube-teams/"><u>In 2024, Partner Up Strategies Optimal Selection for YouTube Teams</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-youtube-awareness-tactics-for-social-media-visibility/"><u>In 2024, YouTube Awareness Tactics for Social Media Visibility</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-depth-analysis-of-slomo-video-capture-tool-for-2024/"><u>In-Depth Analysis of SloMo Video Capture Tool for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/mastering-video-capture-on-periscope-a-comprehensive-manual-for-2024/"><u>Mastering Video Capture on Periscope A Comprehensive Manual for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/e-networking-necessities-affordable-monetized-platforms/"><u>Novice Networking Necessities Affordable Monetized Platforms</u></a></li>
-<li><a href="https://extra-information.techidaily.com/stepwise-strategies-for-high-quality-time-lapse-videos-in-gopro-studio/"><u>Stepwise Strategies for High Quality Time Lapse Videos in GoPro Studio</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/unlocking-screen-capture-mastery-in-windows-os/"><u>Unlocking Screen Capture Mastery in Windows OS</u></a></li>
-<li><a href="https://fox-that.techidaily.com/1721475231945-why-isnt-my-iphone-alarm-working-fix-it-now/"><u>Why Isn't My iPhone Alarm Working? Fix It Now!</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nd-credits-designed-for-you-free-top-6-suggestions/"><u>[New] End Credits Designed for You Free Top 6 Suggestions</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/aster-the-art-of-customization-for-youtube-shorts-thumbnails/"><u>[New] Master the Art of Customization for YouTube Shorts Thumbnails</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-innovators-roundtable-for-youtube/"><u>[Updated] 2024 Approved Innovators’ Roundtable for YouTube</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/1716069696481-updated-engaging-recorders-within-huawei-mate-and-p-series-for-video-capture-for-2024/"><u>[Updated] Engaging Recorders Within Huawei Mate and P-Series for Video Capture. For 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-maximize-engagement-learn-from-tubebuddy-experts/"><u>[Updated] Maximize Engagement - Learn From TubeBuddy Experts</u></a></li>
+<li><a href="https://discover-great.techidaily.com/1-preserve-and-analyze-video-content-the-power-of-vlcs-frame-by-frame-tool/"><u>1. Preserve and Analyze Video Content: The Power of VLC's Frame-by-Frame Tool</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-creators-uniting-for-marvels-digital-future/"><u>2024 Approved Creators Uniting for Marvel's Digital Future</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-top-ae-titles-for-striking-visual-impact/"><u>2024 Approved Top AE Titles for Striking Visual Impact</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/a-brief-history-of-virtual-reality/"><u>A Brief History of Virtual Reality</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/get-ready-zoom-integrates-with-vision-pro-headsets-bringing-a-new-dimension-to-virtual-meetings-insights-from-zdnet/"><u>Get Ready: Zoom Integrates with Vision Pro Headsets, Bringing a New Dimension to Virtual Meetings – Insights From ZDNet</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Realme 12 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-in-2024-find-the-perfect-green-screen-software-for-your-mac-workflow/"><u>New In 2024, Find the Perfect Green Screen Software for Your Mac Workflow</u></a></li>
+<li><a href="https://win-popular.techidaily.com/professionelle-tipps-und-tricks-problemlosen-bei-windows-7-task-manager-antwortlos/"><u>Professionelle Tipps Und Tricks: Problemlösen Bei 'Windows 7 Task Manager Antwortlos'</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/er-sonatas-top-10-humorous-hits-for-2024/"><u>Snicker Sonatas Top 10 Humorous Hits for 2024</u></a></li>
 </ul></div>
 

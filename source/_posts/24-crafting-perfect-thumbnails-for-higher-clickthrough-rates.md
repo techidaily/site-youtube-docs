@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Crafting Perfect Thumbnails for Higher Clickthrough Rates"
-date: 2024-07-29T16:33:16.478Z
-updated: 2024-07-30T16:33:16.479Z
+date: 2025-03-04T16:18:50.320Z
+updated: 2025-03-05T16:00:34.530Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/07cfabd2fe9acb782e30cca8205dc0f557a2c3371
 
 # The Ultimate Guide to YouTube Thumbnails that Get Views
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -39,9 +36,6 @@ Viewers click on thumbnails that both standout and feel relevant to their search
 4. [How to Make Thumbnails that Get Clicks (Without Clickbait!)](#clicks)
 5. [Animated YouTube Thumbnails](#gif)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
-<!-- affiliate ads end -->
 ## Part 1: How to Make a YouTube Thumbnail
 
 In order to create a custom video thumbnail, you’ll need a program to put it together in. You can use an image editing program like Photoshop if you have one, but if you don’t you can check out these [free thumbnail makers](#makers).
@@ -106,9 +100,6 @@ In your thumbnail maker or a program like Photoshop, you’ll need to put your p
 
 If instead of an object you plan to fill the other side of your thumbnail with text, question marks, emojis, or some other graphic element then now is the time to add it.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 2: How to Upload a YouTube Thumbnail
 
 When you upload a new video to YouTube, you will see a **Custom thumbnail** option under **Video thumbnails** after your upload is complete.
@@ -140,9 +131,6 @@ You can make changes to the colors in your Spark thumbnail easily by selecting a
 
 Click to check more [YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
 ## Part 4: How to Make Thumbnails That Get Clicks (Without Clickbait!)
 
 Here are the top 10 best practices for creating effective YouTube thumbnails:
@@ -189,16 +177,10 @@ As of now, this only works in the Google Chrome desktop browser. Videos have to 
 
 Alright, now that you know everything about YouTube thumbnails, go make one! Tell us in the comments what you’re going to do to make your video thumbnails stand out.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Touch Up YouTube Videos with Effects & Elements in Filmora
 
 As one of the most widely used video editing software in YouTube video editing, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) provides lots of templates and effects with an intuitive interface. Download the free trial version and get started now.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -209,14 +191,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -225,4 +204,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/ccess-short-videos-anywhere-the-top-6-free-and-online-youtube-short-download-apps/"><u>[New] Access Short Videos Anywhere The Top 6 Free & Online YouTube Short Download Apps</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/utting-edge-techniques-for-resolving-youtube-short-issues/"><u>[New] Cutting-Edge Techniques for Resolving YouTube Short Issues</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-discover-best-deals-high-quality-budget-friendly-asmr-tech-secrets-for-2024/"><u>[New] Discover Best Deals - High-Quality, Budget-Friendly ASMR Tech Secrets for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-messvid-grabber-for-social-media/"><u>[New] In 2024, MessVid Grabber for Social Media</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-multimedia-designers-space/"><u>[New] In 2024, Multimedia Designer's Space</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-techniques-for-successfully-incorporating-a-streaming-youtube-playlist/"><u>[Updated] 2024 Approved Techniques for Successfully Incorporating a Streaming YouTube Playlist</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-the-first-time-filmmakers-guide-to-gear-selection/"><u>[Updated] 2024 Approved The First-Time Filmmaker's Guide to Gear Selection</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-avoiding-the-crowd-stand-out-with-unique-youtube-persona/"><u>[Updated] In 2024, Avoiding the Crowd Stand Out with Unique YouTube Persona</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-inside-look-how-youtube-funds-are-transforming-content-creation/"><u>[Updated] In 2024, Inside Look How YouTube Funds Are Transforming Content Creation</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-ranking-the-top-16-youtube-intros-to-amplify-views-for-2024/"><u>[Updated] Ranking the Top 16 YouTube Intros to Amplify Views for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-ultimate-hook-creation-tool-for-online-titles/"><u>[Updated] Ultimate Hook-Creation Tool for Online Titles</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-picture-perfect-support-portal/"><u>2024 Approved Picture Perfect Support Portal</u></a></li>
+<li><a href="https://win11.techidaily.com/counteracting-sticky-note-desynchronization-in-w11/"><u>Counteracting Sticky Note Desynchronization in W11</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/floor-dynamics-top-rated-dj-video-selections-for-2024/"><u>Dancefloor Dynamics Top-Rated DJ Video Selections for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/essential-six-social-media-locations-for-business-enhancement/"><u>Essential Six Social Media Locations for Business Enhancement</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-top-30-pro-tiktok-edits-techniques/"><u>In 2024, Top 30 Pro TikTok Edits Techniques</u></a></li>
+<li><a href="https://extra-information.techidaily.com/methods-to-project-epoch-shifts/"><u>Methods to Project Epoch Shifts</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/photo-editing-basics-unveiled-dive-into-lunapic-for-2024/"><u>Photo Editing Basics Unveiled Dive Into LunaPic for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/the-highest-resolution-elevating-quality-with-drone-edits-for-2024/"><u>The Highest Resolution Elevating Quality with Drone Edits for 2024</u></a></li>
+</ul></div>
 

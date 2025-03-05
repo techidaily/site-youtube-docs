@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Enhancing Video Visibility on YouTube with Imaginative Thumbnails\""
-date: 2024-08-08T16:44:43.869Z
-updated: 2024-08-09T16:44:43.869Z
+date: 2025-03-02T17:18:39.678Z
+updated: 2025-03-05T17:12:44.797Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/9639571683ee2faea594be2c39567620326555f8b
 
 # How to Make Video Thumbnails for YouTube
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -43,9 +40,6 @@ Here are 5 easy tips for creating thumbnails that get views.
 
 ## Edit Your Videos Before Creating Video Thumbnails
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ## 1\. Have a Consistent Layout
@@ -54,14 +48,8 @@ Your thumbnails all must look like part of the same set. You want viewers to rec
 
 An example of a standard layout could be you in the middle of the screen wearing an expression that matches the theme of your video, with your title written underneath your face. Every individual thumbnail would still be different, but you and the text would always be in the same spot.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **2\. Use Your Face**
 
 People feel automatically connected and drawn into images that make eye contact. This makes thumbnails which feature faces more click-able than thumbnails which don’t, in most genres (i.e. if you make food videos then this may not apply – featuring the food might be more important than featuring your face). [Check out more tips like this here](https://tools.techidaily.com/wondershare/filmora/download/).
@@ -74,19 +62,12 @@ Anybody can take a screenshot of themselves in their video and use it as a thumb
 
 Make sure the images you choose are relevant to the topic of your video.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 4\. Make Your Text Huge
 
 If you use text in your thumbnail (you don’t have to) then it should be to add context. For example, if the main image is just you smiling then you might need some text to let viewers know the video is a makeup tutorial.
 
 Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## 5\. Keep it Clutter-Free
 
 It’s great to add text and emojis to your thumbnails, but you do need to be careful not to add too much. You never want your thumbnails to look cluttered. Viewers should be able to glance at your thumbnails and know exactly what kind of video to expect – that’s difficult to do if there’s too much to process.
@@ -105,14 +86,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -121,6 +99,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-essential-guide-to-editing-full-degree-videos-with-premiere-pro-for-2024/"><u>[New] Essential Guide to Editing Full Degree Videos with Premiere Pro for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/rom-iciness-to-comfort-five-warm-backdrops-ideas/"><u>[New] From Iciness to Comfort Five Warm Backdrops Ideas</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-crafting-curls-and-contours-creating-a-personalized-beauty-channel/"><u>[New] In 2024, Crafting Curls and Contours Creating a Personalized Beauty Channel</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-mirthvid-quick-start-for-video-makers/"><u>[New] In 2024, MirthVid Quick Start for Video Makers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-quick-guide-to-rearranging-your-youtube-collection/"><u>[New] In 2024, Quick Guide to Rearranging Your YouTube Collection</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-side-by-side-hero4-vs-hero5-analysis-for-2024/"><u>[New] Side by Side Hero4 vs Hero5 Analysis for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/upercharge-your-channel-growth-harness-the-potential-of-collaborative-videos-for-2024/"><u>[New] Supercharge Your Channel Growth Harness the Potential of Collaborative Videos for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/he-future-of-streaming-money-youtube-update/"><u>[New] The Future of Streaming Money YouTube Update</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-unveiling-the-perfect-process-iphones-podcast-downloading-technique/"><u>[New] Unveiling the Perfect Process IPhone's Podcast Downloading Technique</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-tailoring-your-video-content-for-wide-platform-distribution/"><u>[Updated] In 2024, Tailoring Your Video Content for Wide Platform Distribution</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-youtube-master-of-moneymaking-skills-for-2024/"><u>[Updated] YouTube Master of Moneymaking Skills for 2024</u></a></li>
+<li><a href="https://win-docs.techidaily.com/enhancing-sales-through-thankfulness-the-impact-of-polite-gestures-on-profit-growth-using-massmail-tech/"><u>Enhancing Sales Through Thankfulness: The Impact of Polite Gestures on Profit Growth Using MassMail Tech</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138544592-9781547546985-il-libro-delle-affermazioni/"><u>Il libro delle affermazioni | Free Book</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/secrets-to-buying-and-downloading-ebooks-on-your-ios-device-with-books-app/"><u>Secrets to Buying and Downloading eBooks on Your iOS Device with Books App</u></a></li>
+<li><a href="https://driver-install.techidaily.com/secure-and-safe-download-tp-links-usb-wi-fi-driver/"><u>Secure & Safe: Download TP Link's USB Wi-Fi Driver</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/the-unsung-heroes-of-canvas-open-source-paintings/"><u>The Unsung Heroes of Canvas Open-Source Paintings</u></a></li>
+</ul></div>
 

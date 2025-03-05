@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Influencers' Utopia Summit"
-date: 2025-02-09T16:09:30.722Z
-updated: 2025-02-16T16:06:29.551Z
+date: 2025-03-03T17:39:01.918Z
+updated: 2025-03-05T17:32:24.724Z
 tags:
   - ai video
   - ai youtube
@@ -56,10 +56,6 @@ There were some clues as to what the rest of the summit was like hiding amongst 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. A map of Dumbo
 
 The hotel YouTube put the creators up in was in Dumbo, Brooklyn. ‘Dumbo’ is an acronym for Down Under the Manhattan Bridge Overpass. While it used to be primarily an industrial area, Dumbo is now the most expensive neighborhood in Brooklyn with many of the old industrial spaces now serving as luxury residential lofts. Dumbo is also a hub for tech startups.
@@ -72,27 +68,15 @@ Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 3\. S’well bottle
 
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 4\. Branded slippers
 
 To help them relax after long days at the summit, YouTube provided creators with YouTube-branded slippers. They look pretty comfy. Plus, now every time these YouTubers look down at their feet they’ll be reminded to go make some videos.
 
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 _thinknoodles wearing his YouTube slippers._
 
@@ -116,10 +100,6 @@ Want to join the YouTube Creator Summit in the future? We all know that there is
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -141,22 +121,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-turning-product-analysis-into-income-via-video-platforms/"><u>[New] In 2024, Turning Product Analysis Into Income via Video Platforms</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-understanding-t-series-youtube-business-model/"><u>[New] In 2024, Understanding T-Series YouTube Business Model</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/aking-an-impact-with-your-youtube-shorts-content-for-2024/"><u>[New] Making an Impact with Your YouTube Shorts Content for 2024</u></a></li>
-<li><a href="https://some-tips.techidaily.com/new-surfings-new-era-top-cam-tech/"><u>[New] Surfing's New Era - Top Cam Tech</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/he-comprehensive-blueprint-to-youtube-banner-effectiveness-for-2024/"><u>[New] The Comprehensive Blueprint to YouTube Banner Effectiveness for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-craft-a-powerhouse-channel-with-studio-expertise/"><u>[Updated] In 2024, Craft a Powerhouse Channel with Studio Expertise</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-real-time-view-count-detectors/"><u>[Updated] Real-Time View Count Detectors</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/2024-approved-expert-techniques-for-ps4-gameplay-documentation/"><u>2024 Approved Expert Techniques for PS4 Gameplay Documentation</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-jumpstart-traffic-top-tier-video-seo-tools/"><u>2024 Approved Jumpstart Traffic – Top-Tier Video SEO Tools</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/93-vital-spanish-expressions-your-passport-to-seamless-travels/"><u>93 Vital Spanish Expressions: Your Passport to Seamless Travels</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ing-seamless-connections-spotify-to-youtube-music-conversion/"><u>Creating Seamless Connections Spotify to YouTube Music Conversion</u></a></li>
-<li><a href="https://extra-information.techidaily.com/detailed-review-and-how-to-for-video-show-24/"><u>Detailed Review & How-To for Video Show '24</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-2024-auditory-accents-integrating-tracks-into-video-on-modern-windows/"><u>In 2024, Auditory Accents Integrating Tracks Into Video on Modern Windows</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-nine-superior-choices-for-live-streaming-now/"><u>In 2024, Nine Superior Choices for Live Streaming Now</u></a></li>
-<li><a href="https://network-issues.techidaily.com/mend-hidden-graphic-card-discrepanrances/"><u>Mend Hidden Graphic Card Discrepanrances</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-take-your-chromebook-to-the-next-level-installing-linux-made-easy/"><u>New In 2024, Take Your Chromebook to the Next Level Installing Linux Made Easy</u></a></li>
-<li><a href="https://some-skills.techidaily.com/streamlining-tiktok-production-zooms-role-for-2024/"><u>Streamlining TikTok Production Zoom's Role for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/xamining-video-sharing-platforms-the-vimeo-and-youtube-divide-for-2024/"><u>[New] Examining Video Sharing Platforms The Vimeo & YouTube Divide for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-proven-youtube-seo-methods-for-video-rankings/"><u>[New] In 2024, Proven YouTube SEO Methods for Video Rankings</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/cale-up-your-youtube-audience-by-the-hundredfold/"><u>[New] Scale Up Your YouTube Audience by the Hundredfold</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-discover-9-free-whole-film-festive-movie-gems-on-youtube/"><u>[Updated] Discover 9 Free, Whole-Film Festive Movie Gems on Youtube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-navigate-your-net-worth-with-youtube-the-threefold-approach-to-assessing-earnings/"><u>[Updated] In 2024, Navigate Your Net Worth with YouTube The Threefold Approach to Assessing Earnings</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-your-top-tools-for-facebook-video-retrieval-revealed-for-2024/"><u>[Updated] Your Top Tools for Facebook Video Retrieval Revealed for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-cost-effective-pc-image-capture-options/"><u>2024 Approved Cost-Effective PC Image Capture Options</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-digital-paintbrushes-at-your-fingertips-explore-11-color-correction-essentials/"><u>2024 Approved Digital Paintbrushes at Your Fingertips Explore 11 Color Correction Essentials</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-understanding-youtube-post-upload-process/"><u>2024 Approved Understanding YouTube Post-Upload Process</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/complete-guide-to-fix-total-war-three-kingdoms-game-crashes-successfully/"><u>Complete Guide to Fix Total War: Three Kingdoms Game Crashes Successfully</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/fix-and-enhance-blue-snowball-performance-on-windows-with-updated-drivers/"><u>Fix and Enhance Blue Snowball Performance on Windows with Updated Drivers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/raw-to-refined-tailoring-youtube-videos-with-premiere-pro-for-2024/"><u>From Raw to Refined Tailoring YouTube Videos with Premiere Pro for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/o-make-a-youtube-intro-video-2-ways/"><u>How to Make A YouTube Intro Video [2 Ways]</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/in-2024-fb-chronicles-the-hidden-viewer/"><u>In 2024, FB Chronicles The Hidden Viewer</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlocking-the-power-of-smart-lock-a-beginners-guide-for-realme-narzo-60-5g-users-by-drfone-android/"><u>In 2024, Unlocking the Power of Smart Lock A Beginners Guide for Realme Narzo 60 5G Users</u></a></li>
+<li><a href="https://video-capture.techidaily.com/microsoft-screen-recorder-for-2024/"><u>Microsoft Screen Recorder for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/overcoming-lan-gaming-challenges-on-pc-winsminecraft/"><u>Overcoming LAN Gaming Challenges on PC, WinsMinecraft</u></a></li>
 </ul></div>
 

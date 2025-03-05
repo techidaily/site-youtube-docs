@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Zippy Typography  Two Approaches to Liven Up Your Letters\""
-date: 2025-02-10T16:00:28.263Z
-updated: 2025-02-16T18:04:53.975Z
+date: 2025-03-04T16:38:30.905Z
+updated: 2025-03-05T17:31:44.706Z
 tags:
   - ai video
   - ai youtube
@@ -31,10 +31,6 @@ Earlier, you learned how to have a **[bounce text effect in Adobe After Effects]
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Method 1: How to Create Bouncing Text in Filmora Video Editor?
 
 When talking about [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/), the application is populated with several presets for texts and titles, animations, effects, filters, and much more.
@@ -55,10 +51,6 @@ In the timeline, double-click the title you just added, use the upper-left secti
 
 ![Create Bouncing Text video Filmora9](https://images.wondershare.com/filmora/article-images/add-up-down-animation-to-bounce.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3: Add Shake Filters**
 
 Go to **Effects** from the standard toolbar, expand the **Filters** category from the left pane, and click **Shake**. From the Library window, click and drag your preferred shake filter to the timeline. Here, I will choose Mild.
@@ -75,10 +67,6 @@ Click **EXPORT** from the top of the interface, go to the **Local** tab in the *
 
 ![Filmora9 Export Options](https://images.wondershare.com/filmora/article-images/export-filmora9-video.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Now, you can add the bouncing text video and the background video to the timeline, and then place the bouncing text video above the background video track.
 
 Double click the text track, go to the **Chroma Key** effect, select the **Color Picker** tool, and click anywhere in the Preview window to get things right. Finally, export the entire project to your preferred output format as explained in **Step 4**.
@@ -86,14 +74,6 @@ Double click the text track, go to the **Chroma Key** effect, select the **Color
 As explained before, Wondeshare Filmora makes the entire process of creating and adding **bounce text** effect pretty simple. With all the pre-build templates, and the versatility of the options that can be used to customize those presets, you can come up with the effects that are usually obtained when you start generating them from the scratch.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Method 2: Generate Animated Bouncing Texts Online
 
@@ -168,22 +148,24 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-cutting-edge-strategies-for-transmitting-obs-livestreams-to-facebook-for-2024/"><u>[New] Cutting-Edge Strategies for Transmitting OBS Livestreams to Facebook for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-youtube-equipment-for-gaming-channels-best-gaming-gears/"><u>[New] In 2024, YouTube Equipment for Gaming Channels - Best Gaming Gears</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/outhful-youtube-ventures-crafting-creative-videos-on-a-mac/"><u>[New] Youthful YouTube Ventures Crafting Creative Videos on a Mac</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-5-dreamy-winter-scenes-as-youtube-backdrops-for-2024/"><u>[Updated] 5 Dreamy Winter Scenes as YouTube Backdrops for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-edu-topic-10-selective-learning-channels-online-for-2024/"><u>[Updated] Edu-Topic 10 Selective Learning Channels Online for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-how-much-could-you-make-on-youtube-snippets-for-2024/"><u>[Updated] How Much Could You Make on YouTube Snippets for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-crafting-viral-videos-how-to-excel-in-youtubers-music-reactions/"><u>[Updated] In 2024, Crafting Viral Videos How to Excel in Youtubers' Music Reactions</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-the-best-cameras-for-youtube-from-beginners-to-professionals/"><u>[Updated] In 2024, The Best Cameras for YouTube From Beginners to Professionals</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-the-commercial-viability-of-creative-video-content/"><u>[Updated] In 2024, The Commercial Viability of Creative Video Content</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-strategic-insights-for-optimal-tech-upgrades/"><u>[Updated] Strategic Insights for Optimal Tech Upgrades</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-the-blueprint-to-hitting-it-big-with-instagram-videos/"><u>2024 Approved The Blueprint to Hitting It Big with Instagram Videos</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-top-11-budget-friendly-recorders-for-vloggers/"><u>2024 Approved Top 11 Budget-Friendly Recorders for Vloggers</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/best-video-editing-tools-using-images/"><u>Best Video Editing Tools Using Images</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/gpt-in-terminal-how-to-engage-via-shellgpt-bash-commands/"><u>GPT in Terminal: How to Engage via ShellGPT Bash Commands</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-vivo-y36i-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Vivo Y36i to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/in-2024-how-to-change-location-on-facebook-dating-for-your-tecno-phantom-v-fold-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location On Facebook Dating for your Tecno Phantom V Fold | Dr.fone</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211335807-9788197062483-what-becomes-of-the-soul-after-death/"><u>What Becomes of the Soul After Death | Free Book</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-from-individual-tracks-to-albums-building-a-personalized-soundtrack-on-web-and-mobile/"><u>[New] In 2024, From Individual Tracks to Albums Building a Personalized Soundtrack on Web & Mobile</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-how-to-create-impactful-online-ads-on-a-limited-budget/"><u>[New] In 2024, How to Create Impactful Online Ads on a Limited Budget</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-mycam-review-is-there-a-better-alternative-available/"><u>[New] In 2024, MyCam Review Is There A Better Alternative Available?</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-strategic-steps-towards-uncovering-youtubes-secret-videos/"><u>[Updated] 2024 Approved Strategic Steps Towards Uncovering YouTube's Secret Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-revenue-breakdown-how-much-money-stem-from-each-watcher/"><u>[Updated] In 2024, Revenue Breakdown How Much Money Stem From Each Watcher</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-practical-measures-for-capturing-vimeo-videos/"><u>[Updated] Practical Measures for Capturing Vimeo Videos</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-top-10-virtual-reality-biking-must-haves/"><u>[Updated] Top 10 Virtual Reality Biking Must-Haves</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/dell-webcam-wont-work-heres-how-to-solve-it-on-your-pc/"><u>Dell Webcam Won't Work? Here's How to Solve It on Your PC</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/different-methods-to-unlock-your-apple-iphone-11-pro-max-drfone-by-drfone-ios/"><u>Different Methods To Unlock Your Apple iPhone 11 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/te-your-youtube-presence-filmmaking-with-filmora-for-2024/"><u>Elevate Your YouTube Presence Filmmaking with Filmora for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/exploring-lenovos-revolutionary-see-through-laptop-unveiled-at-mwc-with-zdnets-personal-insights/"><u>Exploring Lenovo's Revolutionary See-Through Laptop Unveiled at MWC with ZDNET's Personal Insights</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ering-fonts-2-innovative-text-techniques/"><u>Flickering Fonts 2 Innovative Text Techniques</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-android-app-not-installed-error-on-honor-play-8t-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android App Not Installed Error on Honor Play 8T Quickly? | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/icloud-unlocker-download-unlock-icloud-lock-for-your-apple-iphone-15-by-drfone-ios/"><u>iCloud Unlocker Download Unlock iCloud Lock for your Apple iPhone 15</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-exploring-effective-financial-gains-through-youtube-shorts/"><u>In 2024, Exploring Effective Financial Gains Through YouTube Shorts</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ative-approaches-to-youtube-teaser-trailblazing/"><u>Innovative Approaches to YouTube Teaser Trailblazing</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/tigating-spotlighted-comments-online-for-2024/"><u>Investigating Spotlighted Comments Online for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-top-time-lapse-video-editors-free-and-paid-options/"><u>New In 2024, Top Time-Lapse Video Editors Free and Paid Options</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/simplifying-laptop-edits-with-inshot-software-for-2024/"><u>Simplifying Laptop Edits with Inshot Software for 2024</u></a></li>
 </ul></div>
 

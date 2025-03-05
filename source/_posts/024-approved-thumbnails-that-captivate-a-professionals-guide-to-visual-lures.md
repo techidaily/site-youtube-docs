@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Thumbnails That Captivate  A Professional's Guide to Visual Lures\""
-date: 2024-07-29T16:34:34.395Z
-updated: 2024-07-30T16:34:34.395Z
+date: 2025-03-01T16:45:48.671Z
+updated: 2025-03-05T17:02:30.737Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/b9c87935bcb636b8006c11267defd1b13d4f0a546
 
 # The Ultimate Guide to YouTube Thumbnails that Get Views
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -47,9 +44,6 @@ Here are some examples of popular thumbnail styles.
 
  ![Popular YouTube Thumbnail Layout](https://images.wondershare.com/filmora/article-images/popular-youtube-thumbnail-layout.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1\. The Classic Thumbnail (Photo or Screenshot)
 
 A photo that shows what happens in your video – whether that means the finished ‘look’ from your makeup tutorial or you posing in front of the landmark you shot your travel vlog in front of – is a great way to let viewers know what to expect. While curiosity can be a big motive behind clicking on a video thumbnail (or anything online), when people have searched for a specific topic they want to be convinced that your video has what they’re looking for.
@@ -76,18 +70,12 @@ You should also avoid fonts that are harder to read. Fonts with a lot of curves 
 
 Another tactic used in successful thumbnails is to add small graphics, like emojis or small images (i.e. pumpkins for a Halloween video), which are related to your video’s content. As with text, you don’t want to overload your thumbnail with images, but they’re a great way to add something eye-catching that’s a bit different from competing thumbnails.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. The Emotional Laser (Background + Face Reacting)
 
 One increasingly popular style of YouTube thumbnail is what we’re going to call the ‘Emotional Laser’. It’s bright (like, blindingly bright), it communicates a clear feeling, and it creates high expectations for how exciting the video’s content is going to be.
 
 The three main elements of the Emotional Laser thumbnail are a background (usually bright), your face on the right wearing an over-pronounced expression, and either the thing your expression is in reaction to (i.e. food, a product, the topic of your video in text) or reinforcement of your emotion (i.e an emoji or question marks) on the left.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 #### #1. Ham It Up (Take Your Reaction Photo)
@@ -112,9 +100,6 @@ In your thumbnail maker or a program like Photoshop, you’ll need to put your p
 
 If instead of an object you plan to fill the other side of your thumbnail with text, question marks, emojis, or some other graphic element then now is the time to add it.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2: How to Upload a YouTube Thumbnail
 
 When you upload a new video to YouTube, you will see a **Custom thumbnail** option under **Video thumbnails** after your upload is complete.
@@ -132,9 +117,6 @@ YouTube recommends that thumbnail images have a resolution of **1280x720px**, an
 
 Make sure that all of your thumbnails adhere to YouTube’s Community guidelines. Anything sexually suggestive, violent, or otherwise graphic could result in your video being age-restricted.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: YouTube Thumbnail Makers
 
 You don’t have to go out and buy a photo editor like Photoshop to make custom video thumbnails (although it’s a good thing to use if you already have it). Here are two free online programs you can use instead:
@@ -209,14 +191,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -225,4 +204,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/implify-your-sales-scrutiny-googles-straightforward-steps-to-track-income-from-youtube-for-2024/"><u>[New] Simplify Your Sales Scrutiny Google's Straightforward Steps to Track Income From YouTube for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/he-makeup-mavens-handbook-youtube-edition-for-2024/"><u>[New] The Makeup Maven’s Handbook YouTube Edition for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-depth-analysis-complete-revamp-of-facetune-app/"><u>[Updated] In-Depth Analysis Complete Revamp of Facetune App</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-into-the-unknown-how-to-start-and-flourish-as-a-travel-videographer-for-2024/"><u>[Updated] Into the Unknown How To Start & Flourish As a Travel Videographer for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/p-editing-apps-at-no-cost-online/"><u>10 Top Editing Apps at No Cost Online</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-step-by-step-process-to-set-trending-tiktok-beats-as-your-cellphone-alarm/"><u>2024 Approved Step-by-Step Process to Set Trending TikTok Beats as Your Cellphone Alarm</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/a-how-to-guide-on-bypassing-the-apple-iphone-14-pro-max-icloud-lock-by-drfone-ios/"><u>A How-To Guide on Bypassing the Apple iPhone 14 Pro Max iCloud Lock</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/embrace-the-eclipse-with-iphone-night-vision/"><u>Embrace the Eclipse with iPhone Night Vision</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/essential-tools-for-efficient-mp4-segmentation-on-mac/"><u>Essential Tools for Efficient MP4 Segmentation on Mac</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-the-complete-guide-to-astonishing-lyric-videos-with-lyric-video-maker/"><u>In 2024, The Complete Guide to Astonishing Lyric Videos with Lyric Video Maker</u></a></li>
+<li><a href="https://fox-tips.techidaily.com/the-aftermath-of-the-great-leap-forward-in-modern-china-insights-from-yl-software-experts-yl-computing/"><u>The Aftermath of the Great Leap Forward in Modern China - Insights From YL Software Experts | YL Computing</u></a></li>
+</ul></div>
 

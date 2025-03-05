@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Crafting Captivating Thumbnails  A Digital Marketer's Guidebook\""
-date: 2025-02-15T16:17:15.164Z
-updated: 2025-02-16T16:17:06.711Z
+date: 2025-03-04T16:04:30.413Z
+updated: 2025-03-05T16:48:56.008Z
 tags:
   - ai video
   - ai youtube
@@ -49,10 +49,6 @@ Here are some examples of popular thumbnail styles.
 
  ![Popular YouTube Thumbnail Layout](https://images.wondershare.com/filmora/article-images/popular-youtube-thumbnail-layout.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. The Classic Thumbnail (Photo or Screenshot)
 
 A photo that shows what happens in your video – whether that means the finished ‘look’ from your makeup tutorial or you posing in front of the landmark you shot your travel vlog in front of – is a great way to let viewers know what to expect. While curiosity can be a big motive behind clicking on a video thumbnail (or anything online), when people have searched for a specific topic they want to be convinced that your video has what they’re looking for.
@@ -78,10 +74,6 @@ In some cases you might use text to make it clear what type of video you’ve ma
 You should also avoid fonts that are harder to read. Fonts with a lot of curves can be harder to read, and you want to make sure you choose a color that stands out from your background. Yellow might work against black, but it probably won’t work against the beige wall of your sunny bedroom. Sans serif fonts tend to be best.
 
 Another tactic used in successful thumbnails is to add small graphics, like emojis or small images (i.e. pumpkins for a Halloween video), which are related to your video’s content. As with text, you don’t want to overload your thumbnail with images, but they’re a great way to add something eye-catching that’s a bit different from competing thumbnails.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. The Emotional Laser (Background + Face Reacting)
 
@@ -113,10 +105,6 @@ In your thumbnail maker or a program like Photoshop, you’ll need to put your p
 
 If instead of an object you plan to fill the other side of your thumbnail with text, question marks, emojis, or some other graphic element then now is the time to add it.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: How to Upload a YouTube Thumbnail
 
 When you upload a new video to YouTube, you will see a **Custom thumbnail** option under **Video thumbnails** after your upload is complete.
@@ -147,10 +135,6 @@ Generally, using Canva is as easy as dragging and dropping things where you want
 You can make changes to the colors in your Spark thumbnail easily by selecting a new color scheme or filter. You can even toggle through layouts easily. When you choose a new layout, Spark will rearrange all the pieces of your current thumbnail to align with the new layout so you can quickly see what it looks like instead of having to rebuild.
 
 Click to check more [YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 4: How to Make Thumbnails That Get Clicks (Without Clickbait!)
 
@@ -206,10 +190,6 @@ As one of the most widely used video editing software in YouTube video editing, 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -231,16 +211,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-information.techidaily.com/new-becoming-a-voice-alteration-virtuoso-with-morphvox/"><u>[New] Becoming a Voice Alteration Virtuoso with MorphVOX</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-video-mastery-without-relying-on-xsplit/"><u>[New] Video Mastery Without Relying on Xsplit</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-the-art-of-youtube-channels-crafting-brands-that-attract-viewers/"><u>[Updated] In 2024, The Art of YouTube Channels Crafting Brands That Attract Viewers</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-quick-ascent-to-youtube-affiliates-with-10k-vistas/"><u>2024 Approved Quick Ascent to YouTube Affiliates with 10K Vistas</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-revolutionize-your-image-layouts-with-these-tools/"><u>2024 Approved Revolutionize Your Image Layouts with These Tools</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/discover-the-leading-touchpad-notebooks-of-the-year-in-depth-analysis-and-expert-ratings-s-ultimate-guide/"><u>Discover the Leading Touchpad Notebooks of the Year: In-Depth Analysis & Expert Ratings 'S Ultimate Guide</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/vering-youtube-studio-where-ideas-become-engaging-content-for-2024/"><u>Discovering YouTube Studio Where Ideas Become Engaging Content for 2024</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-change-credit-card-from-your-apple-iphone-xr-apple-id-and-apple-pay-by-drfone-ios/"><u>How to Change Credit Card from Your Apple iPhone XR Apple ID and Apple Pay</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/mastering-smooth-gameplay-overcoming-lego-star-wars-skywalker-sagas-pc-glitches-in-the-latest-patch-of-2024/"><u>Mastering Smooth Gameplay: Overcoming Lego Star Wars Skywalker Saga's PC Glitches in the Latest Patch of 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/magic-studio-for-2024/"><u>PhotoMagic Studio for 2024</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/updated-discover-the-best-5-mp3-harmonizers-for-your-macs-audiophile-experience-for-2024/"><u>Updated Discover the Best 5 MP3 Harmonizers for Your Macs Audiophile Experience for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-from-hidden-channels-to-the-throne-of-1k-subscribers/"><u>[New] In 2024, From Hidden Channels to the Throne of 1K Subscribers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-tapping-into-youtubes-affiliate-income-streams/"><u>[Updated] 2024 Approved Tapping Into YouTube's Affiliate Income Streams</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-conquer-gopro-time-lapse-video-creation-like-a-pro/"><u>[Updated] Conquer GoPro Time Lapse Video Creation Like a Pro</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-finding-the-perfect-pitch-discover-no-cost-voice-alteration-apps/"><u>[Updated] Finding the Perfect Pitch Discover No-Cost Voice Alteration Apps</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-30-best-freefire-tagshashtags-for-youtube/"><u>[Updated] In 2024, 30 Best FreeFire Tags/Hashtags For YouTube</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-high-quality-captures-at-a-click-top-5-browsers-screen-recorders/"><u>[Updated] In 2024, High-Quality Captures at a Click Top 5 Browsers' Screen Recorders</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ring-crisp-sound-a-guide-to-superior-audio-recording/"><u>Capturing Crisp Sound A Guide to Superior Audio Recording</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/deep-into-designing-dynamic-youtube-live-thumbnails/"><u>Dive Deep Into Designing Dynamic YouTube Live Thumbnails</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/expert-tips-on-correcting-and-preventing-windows-update-error-0x80240017/"><u>Expert Tips on Correcting and Preventing Windows Update Error 0X80240017</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/new-reviewing-the-live-streaming-shopping-industry-in-china/"><u>New Reviewing the Live Streaming Shopping Industry in China</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/d-screen-and-upload-to-youtube-pc-mac-online-for-2024/"><u>Record Screen and Upload to YouTube [PC, Mac, Online] for 2024</u></a></li>
 </ul></div>
 

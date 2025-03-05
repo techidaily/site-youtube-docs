@@ -1,7 +1,7 @@
 ---
 title: "Masterclass for Viral Talent for 2024"
-date: 2025-02-13T17:21:12.890Z
-updated: 2025-02-16T18:20:51.125Z
+date: 2025-02-28T16:28:26.143Z
+updated: 2025-03-05T17:45:24.620Z
 tags:
   - ai video
   - ai youtube
@@ -72,43 +72,23 @@ One of the major benefits of attending this summit would have been networking wi
 
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 4\. Branded slippers
 
 To help them relax after long days at the summit, YouTube provided creators with YouTube-branded slippers. They look pretty comfy. Plus, now every time these YouTubers look down at their feet they’ll be reminded to go make some videos.
 
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 _thinknoodles wearing his YouTube slippers._
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 5\. Pins, pins, pins
 
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 6\. Denim jacket
 
 A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
 
 _![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
 
@@ -141,22 +121,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-lessons.techidaily.com/new-color-dynamics-bringing-artistic-vision-to-life/"><u>[New] Color Dynamics Bringing Artistic Vision to Life</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-how-to-add-music-to-imovie-from-youtube/"><u>[New] In 2024, How to Add Music to iMovie From YouTube?</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-win11-easy-capture-and-save-tool-for-2024/"><u>[New] Win11 Easy Capture & Save Tool for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-maximize-your-youtube-channels-financial-potential/"><u>[Updated] 2024 Approved Maximize Your YouTube Channel's Financial Potential</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-learn-how-to-solve-common-issues-for-youtube-shorts/"><u>2024 Approved Learn How to Solve Common Issues for YouTube Shorts</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ing-bygone-era-filmmaking-to-life-today-for-2024/"><u>Bringing Bygone Era Filmmaking to Life Today for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ng-with-youtubes-challenging-earnings-model-for-2024/"><u>Dealing with YouTube's Challenging Earnings Model for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/dive-into-drone-flying-with-the-syma-x5c-review-for-starters-for-2024/"><u>Dive Into Drone Flying with the Syma X5C Review for Starters for 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-track-imei-number-of-xiaomi-redmi-note-12-5g-through-google-earth-by-drfone-android/"><u>In 2024, How To Track IMEI Number Of Xiaomi Redmi Note 12 5G Through Google Earth?</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-the-10-best-iphone-and-android-apps-to-make-into-videos/"><u>In 2024, The 10 Best iPhone & Android Apps to Make Into Videos</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-the-essential-how-to-for-youtube-comment-control/"><u>In 2024, The Essential How-To for YouTube Comment Control</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-video-platform-economics-a-tale-of-two-titles-income-potentials/"><u>In 2024, Video Platform Economics A Tale of Two Titles' Income Potentials</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/mastering-airborne-shots-the-pivotal-role-of-dji-spark-in-selfie-culture/"><u>Mastering Airborne Shots The Pivotal Role of DJI Spark in Selfie Culture</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/mastering-screen-record-on-windows-10-devices-for-2024/"><u>Mastering Screen Record on Windows 10 Devices for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/izing-impact-with-customized-youtube-audiences/"><u>Maximizing Impact with Customized Youtube Audiences</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/online-video-conversion-converti-mp4-in-formato-asf-free-di-movavi/"><u>Online Video Conversion: Converti MP4 in Formato ASF Free Di Movavi</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/by-step-throwing-epic-intros-with-imovie/"><u>Step-by-Step Throwing Epic Intros with iMovie</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-essential-tips-for-audio-crossfades-in-premiere-pro/"><u>[New] 2024 Approved Essential Tips for Audio Crossfades in Premiere Pro</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/rafting-gifs-like-a-pro-industry-leaders-tools-for-2024/"><u>[New] Crafting GIFs Like a Pro Industry Leaders' Tools for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-essential-steps-for-starting-a-youtube-channel/"><u>[New] In 2024, Essential Steps for Starting a YouTube Channel</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-spin-the-wheel-of-viewers-how-to-stream-round-the-clock-videos-on-youtube/"><u>[New] In 2024, Spin the Wheel of Viewers How to Stream Round-the-Clock Videos on YouTube</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-ultimate-guide-premium-plugins-boosting-ae-projects/"><u>[New] In 2024, Ultimate Guide Premium Plugins Boosting AE Projects</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-the-top-10-capture-cards-for-youtube-you-should-know/"><u>[Updated] 2024 Approved The Top 10 Capture Cards for YouTube You Should Know</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-stop-unsolicited-youtube-suggestion-rollouts/"><u>[Updated] In 2024, Stop Unsolicited YouTube Suggestion Rollouts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-top-strategies-for-optimizing-zoom-video-quality/"><u>[Updated] Top Strategies for Optimizing Zoom Video Quality</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-google-pixel-8-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Google Pixel 8 | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/tifying-youtubes-keyword-power-play-for-2024/"><u>Demystifying YouTube's Keyword Power Play for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/freememogen-your-guide-to-free-memes/"><u>FreeMemoGen Your Guide to FREE Memes</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-xiaomi-redmi-note-12-pro-4g-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Xiaomi Redmi Note 12 Pro 4G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/be-glamour-a-guide-to-video-color-balance-for-2024/"><u>YouTube Glamour A Guide to Video Color Balance for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, The Aesthetic Almanac  Makeup, Hair & More on YouTube\""
-date: 2025-02-12T20:08:31.792Z
-updated: 2025-02-16T20:10:43.085Z
+date: 2025-02-28T16:37:21.471Z
+updated: 2025-03-05T16:44:02.382Z
 tags:
   - ai video
   - ai youtube
@@ -52,10 +52,6 @@ Wondershare Filmora is specifically made keeping quality on priority and to make
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Finding Your Niche in Beauty or Lifestyle**
 
 As a new makeup, beauty, or lifestyle YouTuber you’ll be jumping into a category that’s already packed with thousands of channels. In order to gain any momentum, you’ll have to decide on a particular thing you want to be known for. That’s your niche.
@@ -104,10 +100,6 @@ Here are some common types of beauty and lifestyle videos:
 * Kid’s Makeup Challenge
 * No Mirror Makeup Challenge
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **How to Get Products to Review**
 
  You probably already know that a lot of the products popular beauty YouTubers review in their videos were sent to them for free. Brands want to get their products into the hands of creators who have ‘influence’ both in the hopes that their audiences will decide to buy them and as part of generating buzz – getting more people talking about their products so more people become interested.
@@ -154,10 +146,6 @@ You might want to experiment with sitting at different distances to see how the 
 
 ![tilt down your camera](https://images.wondershare.com/filmora/article-images/tilt-down-camera1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **_Step 3:_** Check your frame (this is easiest if your camera has a screen that flips out) to make sure there’s not too much empty space in your shot.
 
 **_Step 4:_** Adjust your camera’s focus so your picture is clear. You may need to set up a lamp, chair, or stuffed animal as a stand-in for yourself while you stand behind the camera adjusting the focus.
@@ -169,10 +157,6 @@ Turn off autofocus and adjust your focus manually by turning the focus ring on y
 An aperture of f/5.0 is good if you’re going to be moving around a lot, but if you’re not going to be moving much and want a blurry background you might want to go with f/2.8 or lower.
 
 ![set f stop](https://images.wondershare.com/filmora/article-images/set-f-stop2.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 6:** Set your ISO (film speed). A lower ISO will give you a darker, but higher quality, image. A higher ISO will lower your quality and give you a brighter image.
 
@@ -217,10 +201,6 @@ You can use softboxes, LED panels, clamp lights, household lamps, or any other l
 
 * **_Clamp lights ($10 each) and paper lanterns ($10 each) provide great lighting and are much more affordable than professional lighting kits._ The paper lanterns will provide even, diffused, light and the clamp lights will be easy to set up wherever you need them.**
 * **_Check out these [DIY tips for creating your own reflectors and diffusers](https://www.filmora.io/community-blog/save-money-with-clever-diy-youtube-gear%21-462.html)._**
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Top Ring Lights for YouTube**
 
@@ -286,10 +266,6 @@ If you’re using autofocus, you can hold products up to the screen and wait for
 2. **_Highlight small details._** Describe what you’re doing in a lot of detail and don’t gloss over anything. Assume the person watching your tutorial doesn’t know anything about putting on makeup.
 3. **_Take stills for your thumbnail._** Remember to take some still photos of your finished makeup to use in your YouTube thumbnail.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **How to Make a Makeup Tutorial – After Shooting**
 
 Once you’ve finished recording and put away all your camera gear, there’s still work to do. You still need to edit your video and post it on YouTube. Here are some tips for that:
@@ -327,18 +303,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-tips-for-effective-game-playback-on-microsoft-os/"><u>[New] 2024 Approved Tips for Effective Game Playback on Microsoft OS</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ow-to-analyze-your-and-competitors-youtube-video/"><u>[New] How to Analyze Your and Competitor’s YouTube Video</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-essential-insights-mastering-youtube-keyword-strategies/"><u>[Updated] 2024 Approved Essential Insights Mastering YouTube Keyword Strategies</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-top-youtuber-earnings-worldwide/"><u>[Updated] 2024 Approved Top Youtuber Earnings Worldwide</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-effortless-entertainment-looping-youtube-videos-for-tv-viewers-for-2024/"><u>[Updated] Effortless Entertainment Looping YouTube Videos for TV Viewers for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-scaling-youtube-influence-a-comprerancial-guide-to-creator-studios-potential/"><u>[Updated] Scaling YouTube Influence A Comprerancial Guide to Creator Studio's Potential</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/6-tecnicas-oficiais-para-hackear-cds-e-dvds-protetados-por-direitos-autorais-no-macos-monterey/"><u>6 Técnicas Oficiais Para Hackear CDs E DVDS Protetados Por Direitos Autorais No macOS Monterey</u></a></li>
-<li><a href="https://win-answers.techidaily.com/fixing-the-relink-glitch-in-granblue-fantasy-a-comprehensive-guide-for-windows-users/"><u>Fixing the Relink Glitch in Granblue Fantasy - A Comprehensive Guide for Windows Users</u></a></li>
-<li><a href="https://win-dash.techidaily.com/get-your-latitude-e6420-running-smoothly-rapid-driver-downloads-and-installation-tips/"><u>Get Your Latitude E6420 Running Smoothly: Rapid Driver Downloads & Installation Tips</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-life360-shows-wrong-location-on-xiaomi-13-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Life360 Shows Wrong Location On Xiaomi 13 Ultra? | Dr.fone</u></a></li>
-<li><a href="https://article-files.techidaily.com/in-2024-timeless-stop-motion-films-a-celebratory-15-list/"><u>In 2024, Timeless Stop-Motion Films - A Celebratory 15 List</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/navigating-the-art-of-iptv-screen-recording/"><u>Navigating the Art of IPTV Screen Recording</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/reversal-tactics-unique-youtube-video-experiences/"><u>Time-Reversal Tactics Unique YouTube Video Experiences</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-iconic-imagery-stories-a-deep-dive/"><u>[New] Iconic Imagery Stories A Deep Dive</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-earnings-breakdown-youtubes-adsense-payments-by-thousands-of-views/"><u>[New] In 2024, Earnings Breakdown Youtube's AdSense Payments by Thousands of Views</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-from-oven-to-screen-cooking-videos-unveiled/"><u>[New] In 2024, From Oven to Screen Cooking Videos Unveiled</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-simplified-guide-instant-deletion-methods-for-youtube-discussions/"><u>[New] In 2024, Simplified Guide Instant Deletion Methods for Youtube Discussions</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-subtle-harmonies-on-desktop-systems/"><u>[New] Subtle Harmonies on Desktop Systems</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-25-top-free-tips-to-stream-online-learning-events-effectively/"><u>[Updated] 2024 Approved 25 Top Free Tips to Stream Online Learning Events Effectively</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-mastering-metadata-title-and-description-for-youtube-traction/"><u>[Updated] 2024 Approved Mastering Metadata Title and Description for YouTube Traction</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-how-to-add-timestamps-youtube-video-for-2024/"><u>[Updated] How to Add Timestamps YouTube Video for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-unveiling-the-rapidly-expanding-youtube-stars-for-inspiration/"><u>[Updated] In 2024, Unveiling the Rapidly Expanding YouTube Stars for Inspiration</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-the-ultimate-guide-to-youtube-channel-removal-pcphone/"><u>2024 Approved The Ultimate Guide to Youtube Channel Removal (PC/Phone)</u></a></li>
+<li><a href="https://win11.techidaily.com/combatting-windows-11s-default-read-only-settings/"><u>Combatting Windows 11'S Default Read-Only Settings</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ce-visibility-11-must-know-youtube-video-seo-tactics/"><u>Enhance Visibility 11 Must-Know YouTube Video SEO Tactics</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/poco-m6-pro-5g-screen-unresponsive-heres-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Poco M6 Pro 5G Screen Unresponsive? Heres How to Fix It | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/er-livestream-capture-software-for-video-bards/"><u>Premier Livestream Capture Software For Video Bards</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/snag-the-best-ultimate-cyber-monday-deals-on-high-performance-laptops-(1000-at-dell-costco-and-amazon-recommendations/"><u>Snag the Best: Ultimate Cyber Monday Deals on High-Performance Laptops <$1000 at Dell, Costco & Amazon | Recommendations</u></a></li>
+<li><a href="https://win-guides.techidaily.com/step-by-step-tutorial-for-upgrading-smaller-nvme-to-a-bigger-version-while-maintaining-secure-boot-integrity/"><u>Step-by-Step Tutorial for Upgrading Smaller NVMe to a Bigger Version While Maintaining Secure Boot Integrity</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/understanding-and-utilizing-the-mpv-container-standard-for-effective-media-viewing/"><u>Understanding and Utilizing the MPV Container Standard for Effective Media Viewing</u></a></li>
 </ul></div>
 

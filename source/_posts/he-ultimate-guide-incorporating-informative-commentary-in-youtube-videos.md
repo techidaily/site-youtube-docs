@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Ultimate Guide  Incorporating Informative Commentary in YouTube Videos\""
-date: 2025-02-14T20:01:07.771Z
-updated: 2025-02-16T21:53:53.145Z
+date: 2025-02-28T17:03:46.947Z
+updated: 2025-03-05T16:52:14.225Z
 tags:
   - ai video
   - ai youtube
@@ -50,10 +50,6 @@ The main difference between annotation and cards is their outlook. Cards are mor
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to add YouTube Cards
 
 YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
@@ -76,10 +72,6 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 * Apply changes and exit
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to add YouTube annotations
 
 YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
@@ -90,18 +82,10 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -141,10 +125,6 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -166,20 +146,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-tips.techidaily.com/new-choosing-the-right-medium-audio-vs-video-based-platforms/"><u>[New] Choosing the Right Medium Audio vs Video-Based Platforms</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-web-development-hacks-embedding-youtubes-playlists-effortlessly/"><u>[New] In 2024, Web Development Hacks Embedding YouTube's Playlists Effortlessly</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-making-waves-in-popularity-how-to-earn-vimeo-writers-picks-for-2024/"><u>[New] Making Waves in Popularity How to Earn Vimeo' Writers’ Picks for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-expert-tips-activating-or-deactivating-youtube-comments/"><u>[Updated] Expert Tips Activating or Deactivating YouTube Comments</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-asmr-recommendations-for-android-users/"><u>[Updated] In 2024, ASMR Recommendations for Android Users</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-step-by-step-tutorial-for-aspiring-mukbang-creators/"><u>[Updated] In 2024, Step-by-Step Tutorial for Aspiring Mukbang Creators</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-visionary-viewership-to-virtual-value/"><u>[Updated] In 2024, Visionary Viewership to Virtual Value</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-skyrocket-your-channels-reach-with-smart-backlink-strategies/"><u>[Updated] Skyrocket Your Channel's Reach with Smart Backlink Strategies</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/aifc-file-transformation-no-cost-fast-and-easy-via-movavi/"><u>AIFC File Transformation: No Cost, Fast & Easy via Movavi</u></a></li>
-<li><a href="https://extra-information.techidaily.com/client-visionaries-shaping-brand-narratives-through-video/"><u>Client Visionaries Shaping Brand Narratives Through Video</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/determining-the-ideal-processing-speed-for-your-personal-computer/"><u>Determining the Ideal Processing Speed for Your Personal Computer</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ess-online-invitation-crafting-youtube-subscription-buttons/"><u>Flawless Online Invitation Crafting YouTube Subscription Buttons</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/insight-into-autopilot-mode-discovering-the-reason-behind-self-starting-windows-11-systems/"><u>Insight Into Autopilot Mode: Discovering the Reason Behind Self-Starting Windows 11 Systems</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/mastering-your-trackpad-or-magic-mouse-turn-off-mac-os-x-acceleration-settings/"><u>Mastering Your Trackpad or Magic Mouse: Turn Off Mac OS X Acceleration Settings</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/new-elevating-sound-design-a-comprehensive-approach-to-gradual-audio-diminishment-and-magnification-with-adobe-after-effects/"><u>New Elevating Sound Design A Comprehensive Approach to Gradual Audio Diminishment and Magnification with Adobe After Effects</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nfographic-spotlight-on-emerging-23-trends/"><u>[New] Infographic Spotlight on Emerging '23 Trends</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-the-most-compelling-list-of-free-youtube-platforms-for-comic-book-illustrators/"><u>[Updated] 2024 Approved The Most Compelling List of Free YouTube Platforms for Comic Book Illustrators</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ning-news-outro-sequences-for-2024/"><u>Designing News Outro Sequences for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/track-to-1000-subscribers-in-youtube-landscape/"><u>Fast-Track To 1,000 Subscribers in Youtube Landscape</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-poco-c51-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Poco C51</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/optimize-your-workday-with-io-screen-capture-expertise-for-2024/"><u>Optimize Your Workday with IO Screen Capture Expertise for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/overcoming-compatibility-hurdles-making-itunes-recognize-an-iphone-on-a-windows-11-pc/"><u>Overcoming Compatibility Hurdles: Making iTunes Recognize an iPhone on a Windows 11 PC</u></a></li>
+<li><a href="https://extra-information.techidaily.com/simplifying-video-editing-on-iphone-trim-and-adjust-sizes/"><u>Simplifying Video Editing on iPhone Trim & Adjust Sizes</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-complete-guide-to-sharing-subtitle-files-socially/"><u>The Complete Guide to Sharing Subtitle Files Socially</u></a></li>
+<li><a href="https://blog-min.techidaily.com/transformacion-gratuita-de-archivos-webm-a-formatos-ogv-online-con-movavi/"><u>Transformación Gratuita De Archivos WebM a Formatos OGV Online Con Movavi</u></a></li>
 </ul></div>
 

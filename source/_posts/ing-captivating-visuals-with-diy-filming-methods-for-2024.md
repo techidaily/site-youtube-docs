@@ -1,7 +1,7 @@
 ---
 title: "Creating Captivating Visuals with DIY Filming Methods for 2024"
-date: 2025-02-10T20:59:43.030Z
-updated: 2025-02-16T20:59:48.939Z
+date: 2025-03-04T16:52:28.127Z
+updated: 2025-03-05T16:56:34.500Z
 tags:
   - ai video
   - ai youtube
@@ -36,23 +36,11 @@ A big part of being a YouTuber involves talking to the camera. How you set up yo
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Set Up Your Talking Heads Shots for YouTube Video \[Infographic\]
 
 We’ve summarized the key points about setting up talking head style video shots with the Infographic below. It is welcomed to share on social media.
 
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
@@ -70,10 +58,6 @@ Objects and people that just make it into the sides of the frame will appear mor
 
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2.  Medium Vlog Set-Up
 
 If you have more space and want to shoot a more professional-looking talking-head shot with more realistic perspectives, a medium vlog set-up may be a better alternative for you.
@@ -87,10 +71,6 @@ At the 39 second mark of the above video, electronic music producer deadmau5 is 
 You can see from how even the background and couch looks across the entire camera frame that there is no distortion or enhanced perspective.
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3.  Two Person Vlog Set-Up
 
@@ -145,22 +125,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-boosting-your-yt-subs-a-complete-strategy-guide/"><u>[New] In 2024, Boosting Your YT Subs A Complete Strategy Guide</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-how-to-effortlessly-eradicate-unwanted-youtube-post-comments/"><u>[New] In 2024, How to Effortlessly Eradicate Unwanted Youtube Post-Comments</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-perfecting-the-art-of-online-broadcasts-utilizing-zoom-and-youtube/"><u>[New] Perfecting the Art of Online Broadcasts Utilizing Zoom and YouTube</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/nlock-your-videos-potential-with-youtube-link-building-techniques/"><u>[New] Unlock Your Video's Potential with YouTube Link Building Techniques</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-videography-made-simple-efficient-recording-and-editing-in-adobe-connect/"><u>[New] Videography Made Simple Efficient Recording & Editing in Adobe Connect</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-reel-entertainment-top-20-youtube-film-sources/"><u>[Updated] 2024 Approved Reel Entertainment Top 20 YouTube Film Sources</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-a-compreshift-guide-to-creating-profitable-and-engaging-youtube-collaborations-for-2024/"><u>[Updated] A Compreshift Guide to Creating Profitable & Engaging YouTube Collaborations for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-building-brands-together-a-guide-to-selecting-youtube-teams/"><u>[Updated] In 2024, Building Brands Together A Guide to Selecting YouTube Teams</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-top-viral-tactics-key-tags-for-boosting-youtube-short-clips/"><u>[Updated] In 2024, Top Viral Tactics Key Tags for Boosting YouTube Short Clips</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-your-soundtrack-anytime-anywhere-6-top-ranked-free-apps-to-download-youtube-music/"><u>[Updated] In 2024, Your Soundtrack, Anytime, Anywhere 6 Top-Ranked Free Apps to Download Youtube Music</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-top-virtual-realities-ios-and-androids-best-apps/"><u>2024 Approved Top Virtual Realities IOS & Android's Best Apps</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/enhancing-engagement-best-practices-for-b-roll-integration/"><u>Enhancing Engagement Best Practices for B Roll Integration</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-use-special-features-virtual-location-on-vivo-y27-4g-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On Vivo Y27 4G? | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-best-3-realme-gt-neo-5-se-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>In 2024, Best 3 Realme GT Neo 5 SE Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-find-ispoofer-pro-activation-key-on-honor-magic-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Find iSpoofer Pro Activation Key On Honor Magic 5 Pro? | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/spoofing-life360-how-to-do-it-on-nokia-g310-drfone-by-drfone-virtual-android/"><u>Spoofing Life360 How to Do it on Nokia G310? | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/reators-currency-how-to-turn-streams-into-dollars/"><u>The Creator’s Currency How To Turn Streams Into Dollars</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-editors-face-off-which-is-superior-filmora-or-democreator/"><u>[New] 2024 Approved Editors Face-Off Which Is Superior, Filmora or Democreator?</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/rom-zero-to-viral-video-top-10-user-friendly-youtube-concepts-for-2024/"><u>[New] From Zero to Viral Video Top 10 User-Friendly YouTube Concepts for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-constructing-youtube-playlists-made-simple/"><u>[New] In 2024, Constructing YouTube Playlists Made Simple</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-transform-your-music-library-best-free-software-choices-for-youtube-to-mp3/"><u>[Updated] 2024 Approved Transform Your Music Library Best Free Software Choices for YouTube-to-MP3</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-decoding-instagrams-legal-framework-for-musicians/"><u>[Updated] In 2024, Decoding Instagram's Legal Framework for Musicians</u></a></li>
+<li><a href="https://extra-information.techidaily.com/a-prism-of-design-from-theory-to-practice-for-2024/"><u>A Prism of Design From Theory to Practice for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/7-multimedia-cameras-for-quality-live-streams-and-video-blogs/"><u>Best 7 Multimedia Cameras For Quality Live Streams & Video Blogs</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fixing-foneazy-mockgo-not-working-on-tecno-spark-10-pro-drfone-by-drfone-virtual-android/"><u>Fixing Foneazy MockGo Not Working On Tecno Spark 10 Pro | Dr.fone</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-animation-made-easy-top-10-software-solutions/"><u>New Animation Made Easy Top 10 Software Solutions</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/quick-fix-banish-win7-screen-flicker/"><u>Quick Fix: Banish Win7 Screen Flicker</u></a></li>
+<li><a href="https://fox-that.techidaily.com/top-7-factors-contributing-to-sluggish-mobile-wi-fi-connectivity/"><u>Top 7 Factors Contributing to Sluggish Mobile Wi-Fi Connectivity</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-best-adobe-premiere-pro-extensions-for-video-editing-free-and-paid/"><u>Updated Best Adobe Premiere Pro Extensions for Video Editing - Free & Paid</u></a></li>
 </ul></div>
 

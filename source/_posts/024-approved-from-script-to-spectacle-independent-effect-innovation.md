@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  From Script to Spectacle  Independent Effect Innovation\""
-date: 2024-08-08T16:44:29.887Z
-updated: 2024-08-09T16:44:29.887Z
+date: 2025-03-04T16:04:18.311Z
+updated: 2025-03-05T17:06:07.636Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/84120ce1dd040ef96ca974489513e09e6fd38ddc4
 
 # How to Animate and Make Your Own Effects
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -49,40 +46,24 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 
  All of these resources will teach Adobe After Effects, or a similar paid software. If you do not have access to Adobe After Effects, you might want to check out our post on [affordable animation software for video creators](https://www.filmora.io/community-blog/free-or-cheap-animation-software-for-video-creators-122.html).
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ## ** Mt. Mograph
 
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## ** Richard Harrington on Lynda
 
 Lynda isn’t free, but the 10-day free trial period is definitely long enough for you to watch this two-hour course.
 
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
-<!-- affiliate ads end -->
 ## ** Bloop Animation
 
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ** Video Copilot
 
 This site has a huge number of free After Effects tutorials. There are basic introductory lessons, and really advanced classes on creating custom cinematic FX, like explosions. There’s even a playlist on title design, which will be useful for anyone looking to create an intro sequence for their videos.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -91,14 +72,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -107,6 +85,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/new-convert-songs-to-calls-essential-websites-for-youtubetones-extraction-for-2024/"><u>[New] Convert Songs to Calls Essential Websites for YoutubeTones Extraction for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/emystifying-the-world-of-youtube-shorts/"><u>[New] Demystifying the World of YouTube Shorts</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-explore-the-best-ios-options-to-simulate-your-favorite-psp-classics/"><u>[New] Explore the Best iOS Options to Simulate Your Favorite PSP Classics</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-master-the-meme-making-process-top-6-techniques-that-define-creativity-in-gifs/"><u>[New] Master the Meme-Making Process Top 6 Techniques That Define Creativity in GIFs</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-best-alternative-top-10-flv-to-youtube-converter-apps-for-2024/"><u>[Updated] Best Alternative Top 10 FLV to YouTube Converter Apps for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-elevate-your-youtube-livestream-game-plan/"><u>[Updated] Elevate Your YouTube Livestream Game Plan</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-a-gamers-guide-to-twisting-videos-on-youtube-2e/"><u>[Updated] In 2024, A Gamer's Guide to Twisting Videos on YouTube (2E)</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-mastering-youtube-banner-success-a-complete-strategy/"><u>[Updated] In 2024, Mastering YouTube Banner Success A Complete Strategy</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-settled-evasive-behavior-of-shorts-content/"><u>[Updated] Settled Evasive Behavior of Shorts Content</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-top-30-latest-forgotten-free-speech-transcription-tools-for-macos/"><u>[Updated] Top 30 Latest, Forgotten Free Speech Transcription Tools for macOS</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-unlocking-youtube-profits-a-comprehensive-manual/"><u>2024 Approved Unlocking YouTube Profits A Comprehensive Manual</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-two-ways-to-track-my-boyfriends-xiaomi-redmi-note-12-5g-without-him-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Two Ways to Track My Boyfriends Xiaomi Redmi Note 12 5G without Him Knowing | Dr.fone</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/in-2024-windows-10-movie-creation-tools-our-top-picks/"><u>In 2024, Windows 10 Movie Creation Tools Our Top Picks</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/no-more-glitches-working-obs-cameras-for-2024/"><u>No More Glitches Working OBS Cameras for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/overcoming-windows-10-problems-restoring-functionality-to-the-windows-key/"><u>Overcoming Windows 10 Problems: Restoring Functionality to the Windows Key</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210712985-9781398431492-understanding-tarot/"><u>Understanding Tarot | Free Book</u></a></li>
+</ul></div>
 

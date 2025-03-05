@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Embracing Constructive Feedback, Ignoring the Rest\""
-date: 2024-08-08T16:42:44.498Z
-updated: 2024-08-09T16:42:44.498Z
+date: 2025-03-04T17:26:40.217Z
+updated: 2025-03-05T17:09:29.907Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/4a4364521475bc98d43a49b1c82e26ef445f3c795
 
 # How To Deal with YouTube Trolls and Negative Comments
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -29,9 +26,6 @@ thumbnail: https://thmb.techidaily.com/4a4364521475bc98d43a49b1c82e26ef445f3c795
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Deal with Negative Comments on YouTube
 
 #### 1\. Identifying Trolls / When Is A Troll Not a Troll?
@@ -58,9 +52,6 @@ thumbnail: https://thmb.techidaily.com/4a4364521475bc98d43a49b1c82e26ef445f3c795
 
  You will not get the troll to say they were wrong or apologize so that should never be your goal. What you can do is create a public record of the troll being corrected for others to judge for themselves. If you maintain a calm, unaffected, tone then the troll will find you boring.
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -69,14 +60,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -85,6 +73,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-the-finest-free-iphone-composition-and-photo-editing-tools-reviewed/"><u>[New] The Finest FREE iPhone Composition and Photo Editing Tools Reviewed</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/eroing-in-on-audio-quality-achievable-sans-mic-for-2024/"><u>[New] Zeroing in on Audio Quality Achievable Sans Mic for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-earning-through-online-beauty-networks/"><u>[Updated] In 2024, Earning Through Online Beauty Networks</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-structuring-engaging-online-vignettes/"><u>[Updated] In 2024, Structuring Engaging Online Vignettes</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-mastering-the-art-of-uploading-youtube-shorts-on-devices/"><u>[Updated] Mastering the Art of Uploading YouTube Shorts on Devices</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-hidden-threat-illegitimate-support-on-digital-platforms-for-2024/"><u>[Updated] The Hidden Threat Illegitimate Support on Digital Platforms for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-the-ultimate-guide-to-alternatives-to-streamlabs-obs/"><u>2024 Approved The Ultimate Guide to Alternatives to StreamLabs OBS</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ing-youtube-popularity-two-simple-strategies/"><u>Boosting YouTube Popularity Two Simple Strategies</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ng-powerhouses-free-top-6-video-closers/"><u>Closing Powerhouses Free Top 6 Video Closers</u></a></li>
+<li><a href="https://blog-min.techidaily.com/mastering-the-basics-of-srt-files-learn-about-their-purpose-tools-and-techniques-for-video-captioning/"><u>Mastering the Basics of SRT Files: Learn About Their Purpose, Tools, and Techniques for Video Captioning</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/new-dollar-store-diy-hacks-to-use-for-filmmaking/"><u>New Dollar-Store DIY Hacks to Use for Filmmaking</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722976768958-quick-guide-get-your-ft232r-serial-to-usb-bridge-driver-instantly/"><u>Quick Guide: Get Your FT232R Serial to USB Bridge Driver Instantly!</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ess-video-to-text-best-ones-online-at-your-fingertips/"><u>Seamless Video-to-Text Best Ones Online at Your Fingertips</u></a></li>
+<li><a href="https://solve-luxury.techidaily.com/1726028165286-tiktokpc/"><u>TikTokビデオのカスタマイズ：PCによる編集方法」</u></a></li>
+<li><a href="https://article-helps.techidaily.com/videology-app-analysis-and-ratings/"><u>Videology App Analysis & Ratings</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Simplified Approach to Removing YouTube Comments with Ease"
-date: 2025-02-09T20:31:03.025Z
-updated: 2025-02-16T18:03:02.645Z
+date: 2025-02-28T17:22:51.537Z
+updated: 2025-03-05T17:41:44.972Z
 tags:
   - ai video
   - ai youtube
@@ -41,10 +41,6 @@ So how do you delete all YouTube comments? In this how-to blog, we will show you
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Delete YouTube Comments from Desktop?
 
 In this section, we will tell you how you can do it from your desktop.
@@ -65,10 +61,6 @@ The steps to deleting someone else’s YouTube comments from your mobile are sim
 3. Select the video from where you want to delete a comment. Scroll down to reach the desired comment.
 4. Once you reach the target comment, click on the three vertical dots at the bottom corner. There should be an option called Remove. Tap on it.
 5. This will create another dialog box on the mobile app where you have to click on Remove again to delete the comment.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How Do You Delete Your Comments from YouTube?
 
@@ -95,10 +87,6 @@ If it is your video where the comment to be removed is, you can go to My Channel
 
 1. Once you locate the video, you need to find the comment you want to delete. On the YouTube app, you may need to scroll down for a while to do this.
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Delete Other People’s Comments on Others’ Channels
 
@@ -129,10 +117,6 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
@@ -140,10 +124,6 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
@@ -174,22 +154,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-demystifying-payment-systems-in-shortform-creator-ecosystem/"><u>[New] In 2024, Demystifying Payment Systems in Shortform Creator Ecosystem</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-elevate-your-game-strategies-for-stellar-gaming-youtube-banners/"><u>[New] In 2024, Elevate Your Game Strategies for Stellar Gaming YouTube Banners</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/nnovative-editing-methods-for-yt-videos-with-windows-movie-maker-for-2024/"><u>[New] Innovative Editing Methods for YT Videos with Windows Movie Maker for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-leading-apps-to-monitor-facebook-twitter-and-instagram-tags-for-2024/"><u>[New] Leading Apps to Monitor Facebook, Twitter and Instagram Tags for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-perfect-playback-overcoming-mutes-on-linkedin-video-posts/"><u>[New] Perfect Playback Overcoming Mutes on LinkedIn Video Posts</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/r-adventures-that-will-captivate-you/"><u>[New] VR Adventures That Will Captivate You</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-elevate-your-soundbites-insights-for-youtube-short-tunes/"><u>[Updated] 2024 Approved Elevate Your Soundbites Insights for YouTube Short Tunes</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-streamlining-the-process-of-youtube-data-interpretation/"><u>[Updated] 2024 Approved Streamlining the Process of YouTube Data Interpretation</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-visual-victory-apple-and-android-highlight-covers/"><u>[Updated] Visual Victory Apple & Android Highlight Covers</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-your-gateway-to-success-with-a-bundle-of-50-free-adornments-in-2024/"><u>[Updated] Your Gateway to Success with a Bundle of 50 FREE Adornments, In 2024</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-organizing-soundtracks-formulating-a-youtube-music-list/"><u>2024 Approved Organizing Soundtracks Formulating a YouTube Music List</u></a></li>
-<li><a href="https://techtrends.techidaily.com/comprehensive-guide-on-latest-powerpoint-update-procedures/"><u>Comprehensive Guide on Latest PowerPoint Update Procedures</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/la-recente-evolution-des-fonctionnalites-de-finereader-14-dabbyy-support-extendu-pour-plus-de-formats-pdf/"><u>La Récente Évolution Des Fonctionnalités De FineReader 14 D'ABBYY: Support Extendu Pour Plus De Formats PDF</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/341255-9780307422316-the-psychic-pathway/"><u>The Psychic Pathway | Free Book</u></a></li>
-<li><a href="https://media-tips.techidaily.com/top-strategies-for-flawless-conversion-of-audio-files-into-mp3wma-format-without-quality-loss/"><u>Top Strategies for Flawless Conversion of Audio Files Into MP3/WMA Format Without Quality Loss</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ling-the-numbers-comprehensive-guide-to-count-views-clicks-and-cash-in-youtube/"><u>Unveiling the Numbers Comprehensive Guide to Count Views, Clicks, and Cash in YouTube</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/upcoming-apple-marvel-watch-ultra-2-insider-rumors-on-features-cost-predictions-and-when-it-hits-shelves/"><u>Upcoming Apple Marvel - Watch Ultra 2: Insider Rumors on Features, Cost Predictions & When It Hits Shelves</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-elevate-your-content-game-studio-aptitude-essentials/"><u>[New] In 2024, Elevate Your Content Game Studio Aptitude Essentials</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-techniques-in-motivating-viewers-with-lifestyle-vlogs/"><u>[New] In 2024, Techniques in Motivating Viewers with Lifestyle Vlogs</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-chuckling-chords-and-clever-cuts-10-parody-classics/"><u>[Updated] 2024 Approved Chuckling Chords & Clever Cuts 10 Parody Classics</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-mastering-youtubes-sound-enhancement-techniques/"><u>[Updated] 2024 Approved Mastering YouTube's Sound Enhancement Techniques</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-captivation-creator-for-articles/"><u>[Updated] In 2024, Captivation Creator for Articles</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-mastery-of-fb-instream-ad-setup-and-evaluation-techniques-in-digital-marketing/"><u>[Updated] In 2024, Mastery of FB Instream Ad Setup & Evaluation Techniques in Digital Marketing</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-speak-and-save-voice-memo-on-iphone-2024/"><u>[Updated] Speak & Save - Voice Memo on iPhone 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-professional-insights-into-androids-recording-features/"><u>2024 Approved Professional Insights Into Android's Recording Features</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/a-detailed-study-of-vsdcs-screen-capture-prowess-and-competing-products-for-2024/"><u>A Detailed Study of VSDC's Screen Capture Prowess & Competing Products for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/best-practices-for-correcting-group-policy-client-service-errors-during-login-fixed/"><u>Best Practices for Correcting Group Policy Client Service Errors During Login [FIXED]</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-ranking-the-most-rapidly-expanding-youtube-talks-of-inspiration/"><u>In 2024, Ranking the Most Rapidly Expanding YouTube Talks of Inspiration</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-video-vanguard-sj6-legend-against-xiaomis-yi-kickstart/"><u>In 2024, Video Vanguard SJ6 Legend Against Xiaomi's Yi Kickstart</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/izing-youtube-visibility-with-key-hashtags-for-2024/"><u>Maximizing YouTube Visibility with Key #Hashtags for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/er-directory-of-economical-visual-content-providers-for-2024/"><u>Premier Directory of Economical Visual Content Providers for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ring-trailers-for-virtual-broadcasts/"><u>Tailoring Trailers for Virtual Broadcasts</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782619-9781620555941-the-norse-shaman/"><u>The Norse Shaman | Free Book</u></a></li>
+<li><a href="https://blog-min.techidaily.com/transform-your-media-projects-using-movavis-comprehensive-video-editing-software/"><u>Transform Your Media Projects Using Movavi's Comprehensive Video Editing Software</u></a></li>
+<li><a href="https://fox-tips.techidaily.com/understanding-driver-issues-why-certain-gadgets-lack-proper-support-insights-from-yl-computing/"><u>Understanding Driver Issues: Why Certain Gadgets Lack Proper Support - Insights From YL Computing</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ding-tunes-a-guide-to-posting-on-youtube-for-2024/"><u>Uploading Tunes A Guide to Posting on YouTube for 2024</u></a></li>
 </ul></div>
 
